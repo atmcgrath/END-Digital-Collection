@@ -800,7 +800,7 @@ The novelty of my behaviour struck the countess with amazement and grief. My tas
 
 "My company is, of late, grown very hateful to you - I will know the reason - to-morrow at noon I'll be in the China-temple -
 
-“Insist not upon my meeting you there - Icannot bear the torture of a fierce, and vain desire - inflict not that punishment upon a man who adores you - 
+“Insist not upon my meeting you there - I cannot bear the torture of a fierce, and vain desire - inflict not that punishment upon a man who adores you - 
 
 "And you love me still?" - 
 
@@ -812,7 +812,7 @@ The novelty of my behaviour struck the countess with amazement and grief. My tas
 
 “Will you come to the China-temple? - 
 
-“Will you leave virtue behind, and have love only in your attendance ?” -
+“Will you leave virtue behind, and have love only in your attendance?” -
 
 The countess sighed, and whispered a No. I left the window, and went to the card-table. As I was playing, lord C----- received a letter; and after having read it, said he was obliged to go to Lincoln the next day. - 
 
