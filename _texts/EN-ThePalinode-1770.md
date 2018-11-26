@@ -109,6 +109,7 @@ Women of rank, fortune, or good education, dear Francis, have generosity, virtue
 
 To that School I owe the esteem of the world; had it not been for it, I should probably be below their contempt.
 Adieu.
+<<<<<<< HEAD
 
 London 1770.
 
@@ -120,6 +121,19 @@ Sir Francis Crosley, to John Rambler, Esq.
 
 My reason is proof againss words, Jack. Either cease to maintain that women are virtuous, or illustrate thy assertion with facts. Name me some beauties, who having loved, have triumphed over their own desires, and the attacks of their lovers - then - then only, will I believe thee.
 
+=======
+
+London 1770.
+
+---
+
+## LETTER II.
+
+Sir Francis Crosley, to John Rambler, Esq.
+
+My reason is proof againss words, Jack. Either cease to maintain that women are virtuous, or illustrate thy assertion with facts. Name me some beauties, who having loved, have triumphed over their own desires, and the attacks of their lovers - then - then only, will I believe thee.
+
+>>>>>>> master
 Bath 1770.
 
 ---
@@ -165,10 +179,17 @@ Ineed not tell thee, Francis, that I made no objection to his generosity. I pock
 
 The sight and feeling of the twenty guineas, tempted me often to leave lord C -----’s service, and I know not what would have been the consequence of that perpetual temptation, had not my father’s letter occurred, to my mind. I had adopted the notion, that the man who prides in being just and grateful, was born to be the fool of an artful knave. - Lord C ----- was that man --  
 that reflection determined me. I remained in the post fortune had placed me, and filled its duty with care, alacrity, and to the utmost satisfaction of his lordship.
+<<<<<<< HEAD
 
 I had not been three weeks in the house, before a favourite footman initiated me into the secret of his master's passions. Jealousy was the predominant in his heart. The countess was young, gay, handsome, and it was whispered abroad, she was not the most faithful of wives. I asked whether she had confirmed his lordship’s suspicions. - “We all sincerely believe, answered the footman, that she has not. From the coquettry of her carriage, and her love of dissipation only, he questions her virtue. Since that whim has entered his head, many are the dismal hours he passes alone in his closet, many the vexations the countess labours under.” - I am afraid he will at last force his lady to realise his fears, and deserve the opinion he unjustly entertains of her. - I know not for a wife a greater incentive to infidelity than the unjust suspicions of her husband - the charms of a lover have not, half their
 power and seduction. - This reflection I kept to myself.
 
+=======
+
+I had not been three weeks in the house, before a favourite footman initiated me into the secret of his master's passions. Jealousy was the predominant in his heart. The countess was young, gay, handsome, and it was whispered abroad, she was not the most faithful of wives. I asked whether she had confirmed his lordship’s suspicions. - “We all sincerely believe, answered the footman, that she has not. From the coquettry of her carriage, and her love of dissipation only, he questions her virtue. Since that whim has entered his head, many are the dismal hours he passes alone in his closet, many the vexations the countess labours under.” - I am afraid he will at last force his lady to realise his fears, and deserve the opinion he unjustly entertains of her. - I know not for a wife a greater incentive to infidelity than the unjust suspicions of her husband - the charms of a lover have not, half their
+power and seduction. - This reflection I kept to myself.
+
+>>>>>>> master
 Sometime after we all set out for Elverton castle, a seat of his lordship’s in Lincolnshire.
 
 Lord C ----- was extremely fond of horses, but like most of the nobility knew very little of that noble and useful animal. As he would however pass for a connoisseur, I proved him so effectually he was a perfect one, that I ngratiated myself into his affection. Every day my conversation pleasing him better, he resolved to take me from the stable to the antichamber.
@@ -350,6 +371,7 @@ closet, I opened the door and bolted it. Then, fearless of danger, and full of d
 and struck every particle of blood with the want of pleasure.
 
 “The luxurious banquet is prepared for me, said I to myself; if I do not feast like a god, never shall I deserve to be entertained with another”.
+<<<<<<< HEAD
 
 After this reflection, I resolved to do honour to the generosity of my noble inviter, and to enjoy the bliss she offered. Respect, and the cursed apprehension of offending, moderated the fiery pressure of my lips. - A sigh the countess breathed, and the lively colouring of her cheeks, told me plainly I might dare - yet I durst not -
 
@@ -357,6 +379,15 @@ After this reflection, I resolved to do honour to the generosity of my noble inv
 
 How my heart beat! - her words proved her awake; her eyes closely shur said she was asleep. I hesitated.
 
+=======
+
+After this reflection, I resolved to do honour to the generosity of my noble inviter, and to enjoy the bliss she offered. Respect, and the cursed apprehension of offending, moderated the fiery pressure of my lips. - A sigh the countess breathed, and the lively colouring of her cheeks, told me plainly I might dare - yet I durst not -
+
+“Yes - love thee. Rambler, exclaimed the countess". -
+
+How my heart beat! - her words proved her awake; her eyes closely shur said she was asleep. I hesitated.
+
+>>>>>>> master
 "Yes - I love thee - resumed she again". -
 
 My courage revived. I was go to confirm my triumph, when she stretched her hands, glanced her fingers her eyes, and turned to the to the other side of the bed. The fear she should awake, had at the first motion of her arm forced me to retreat behind the curtain. Then I began to think tthat the countess was really a steep. She had seemed to partake of my desire. But could not nature have, unknown to her, created those symptoms of passion? - had she only feigned to sleep would she not have continued the delusion? - This thought made me circumspect, diffident - I sat down up a chair, curling inwardly against my vanity and ill fortune.
@@ -572,6 +603,7 @@ not being disliked, I’ll be content and happy - What is a smile - a line? -  D
 
 "The villain! Exclaimed lord C----- when he had read. How he has abused my confidence and friendship! He made an absolute fool of me - it was he, Rambler, who created my suspicions against lady C-----. He observed to me, that she was courted, and often whispered to by some young men, who compose her society - by his advice I forbid the countess to admit the visit of those he pointed out to me for her favourites, and prevented her from forming connexions he did not approve of - My diffidence of her altered my temper - an offensive severity succeeded my former indulgence, and my good nature gave way to misanthropy. From this change in me, and my implicit adhesion to his counsels, he hoped, the villain! to meet with a more favourable reception from a woman exasperated against her husband - I am ashamed of the part the scoundrel has engaged me to perform. - I owe a reparation to the countess, and I will give it - She must not any more curse the hour when she became my wife. - My sole care will be to make her happy - this instant I’ll go to her, fall at her feet, and ask for the past. -
 
+<<<<<<< HEAD
 “Betray me not, my lord — I stole this billet from her - let me not be miserable for having served you.” -
 
 “Fear not, Rambler; I answer for her gratitude: she will reward thee for a treason, which gives her back the esteem and affection of her husband - no longer art thou my servant, but my friend - this very day I’ll make thee independent - thou shalt sit at my table, and my people will make no difference between thee and me. - The man who has made me happy, has a lawful claim to my fortune and respect." - 
@@ -801,6 +833,491 @@ have a faithful and sagacious agent in London, who will carry a secret correspon
 
 “I’ll fix to-morrow the day of your departure, and write in the mean time to all my friends in London in your favour. I'll have you make a handsome figure, and partake of every diversion of that capital.”  -
 
+=======
+“Betray me not, my lord — I stole
+f
+this billet from her — let me not be mi serable for having Served you.” — : -- --
+“Fear not. Rambler; I answer for her gratitude: she will reward thee for
+a treason, which gives her back the
+esteem
+■* «
+K
+%
+t 75 ]
+esteem and affection of her liushand — ’
+- - s
+no longer art thou my Servant, but my
+>
+friend — this very day i’ll make thee
+independent — thou shalt sit at my table,
+and my people will make no difference
+— •
+between thee and me. — The man who has made me happy, has a lawful claim to my fortune and respect— —
+me not, my lorcl, with obligations I shall never be able to repay — I have done but what I ought to do
+9
+— it was my duty to Serve my master and benefactor— — make him as happy as it lay in my power.” - —
+“My gratitude argues not in that manner. Rambler. — For my happiness I am indebted to thee — thy own I must
+E 2 Secure
+[ 76 ]
+Secure— — — only can I acquit myself
+towards thee.” —
+( I
+And without waiting for my reply, he passed into his lady’s apartment.
+\
+S
+I
+i
+\
+t
+I
+4
+-. 4
+LET.
+V
+I
+/ >
+V
+f 77 I
+t
+%
+/
+L E T T E R X
+/
+w OOD Godr Exclaimed
+when lord C — ^ was gone, what a lucky fellow I am! this day I shall be rich, independent! Have I heard well? — So much generosity III a lord! — I am confounded — What Service
+have I done t — Oh! if he had read in my heart, he would have Spurned me away, and doomed me to a deserved misery — I am a monster still more contemptible
+than benson -- -- -1 must tear this fatal
+passion from my heart — — I have been
+already too guilty -- Lord — ^ — is
+worthy of the Sacrifice -- -- though it
+should
+t
+r 78 ]
+should cause my death -- -- -- honour re
+%
+it ^honour! how weak thy voice!
+love! how Seducing and powerful thy
+impulse! — if I stay. i’ll continue to adore
+the countess — it will be impossible for me to See her, and keep grateful to
+my lord — I have not virtue enough to
+conquer over beauty and nature — • I
+must leave the place — leave the place !-
+— oh! my heart, my heart — what a
+confiidi: in my heart!” —
+/
+I was absorbed in thought, when a
+Servant came to tell me that lord and
+/
+lady C -- -- -- wanted to Speak with me,
+I parted instantly with the anxiety, which had, in Spite of myself, Spread over my features, and assuming a cheerful
+look went to my lady’s.
+#
+‘‘ Come,
+[ 79 3
+Come, and partake of our joy, Rambler, cried his lordship, as Soon as he Saw me. The countess has forgiven
+your theft, and approved of the pro
+• ^
+I have made you— — you not, Augusta? —
+I
+I have, my lord, and the Sooner
+you fulfil them, the greater will be my obligations to you. —
+“You see. Rambler, you was wrong to fear my wife’s displeasure, ” —
+, The apprehension of betraying myself tied my tongue, and threw me into an awkwardness of countenance which forced a Smile from his lordship. To finish this troublesome Scene, I fell at their feet, and thanked them for the
+favours
+[ So J
+favourtth: y intended to bestow upon me.
+\
+♦
+“We must invent a tale, Said his lordship, that the real cause of the dis tinftion we will treat you with may remain unknown. As you are born in a distant county, anything will easily be believed. i’ll say that an uncle of yours died a few months ago in Jamaica, and left you a handsome fortune;
+t
+nobody will doubt my word. That
+your appearance may not belie my aster
+/
+ril settle upon you an annuity of
+I
+five hundred pounds a year. With that Sum, and your personal merit, you will adl naturally the part of a gentleman. My house is yours -- -- -- -- -- -- be
+my companion and friend. Whenever you are tired of this place, follow
+your
+t
+r s. 1
+your fancy, and take a trip to any part of the world you will be pleased to See, or live in. You are, Rambler, at full liberty to dispose of yourself as you like the best. new thanks are unnecessary
+;. Spare them to the countess and me. — Stay here with my lady, till I have acquainted my people with the character under which you are going
+to appear
+/
+%
+######
+
+“Sit down, ffquirc Rambler, ’* Said the countess with a Smile.
+4
+“I will, answered I. But as it is the first time, I enjoy this privilege in your presence, it must be marked with a peculiar favour.” —
+And I took her upon my knee.
+'E 5 “Is
+I
+0
+[ g2 ] '
+. “Is it thus. Rambler, you repay the
+generosity of his lordship —
+>
+The air of dignity, with which the countess pronounced those words, kindled in my breast a not yet extinguished Sparkle of virtue. I opened my arms ' to Set her free; and when she had with
+s
+drawn from them, looked pensive and dejedted. The countess walked in the' room Seemingly as disturbed as I was. The hue of different contradictory pas fions coloured alternately her cheeks:
+nor was it poshble to discern which prevailed the most. She came and sat by me,
+“Rambler, ”
+*
+And she took my hand in hers
+%
+«
+[ 83 J
+\
+y Will you not Speak to me,
+“Would you were less handsome, or my lord had been less generous! I ’ wish Jr could recall the past, and undo what I have done — I was So happy in your ladyship’s Service — the favours of
+j
+fortune are not a compensation for the loss IHAVE made — 'for one kiss from you, readily would I give away the advantages of my new Situation — had you
+• T • * *.
+loved me, you would have opposed my lord’s generosity —
+/
+“opposed his generosity, when it was So beneficial to you! —
+♦
+You did not consider that I lost
+I
+V
+more than I gained —
+♦
+H c You
+[ 84 ]
+\
+“You will see me as often as before —
+** Not with the Same freedom can I any longer enter your apartment. I must wait for the hours, when it is open indiscriminately to all the ' world. -- -- -- -
+“As a friend you shall have a free
+admittance into it at any time of the
+\
+day —.
+“The frequency of my visits will be remarked — Oh! would I were still what I was an hour ago! — My lord’s kindness has made me miserable — it has changed your heart — " - ■
+I
+« It
+%
+#
+V
+[ «5 1
+“It has not. Rambler -- -- My heart
+feels as it did.” __
+And she turned her head to conceal a sigh she could not Smother. I drew
+%
+nearer the countess, and passing my arm round her waist, strained her amo roussy to my bosom.,
+“Rambler !” i
+1 lift my head up our lips met — »•
+“I am too weak— — not those caresses from me. Rambler — the noble be
+haviovv of my husband bids us to be
+erate
+%
+1
+[ 86 ]
+grateful -- -- I have forgiven my past
+wrongs — However painful self-denial,
+s
+it is just and necessary
+You love me not — —
+k.
+“Speak not the word again.” ^ -- -- ^
+And a tear drop’d from her eye. 1 wiped away that tear with a kiss.
+“Either be more difereet, or I will cease to See you —
+t
+Give me then the heart you have taken from me — Restore it, cold, insensible, Such as it was before I law
+you -- -- Discretion and love arc at a
+peri
+
+[ 8? ]
+perpetual war -- -- if you can reconcile
+them, you are indifferent, and love me not.” —
+$
+“I love you -- -- -- -- and yet will reconcile them -- -- -- -- -- in vain does love call
+you in my arms, virtue will oppose your approach........speak, look, flatter,
+against love, she will gain the day. -- -- --
+“Often has he been ready to triumph over her. — —
+“The greater her resistance, the
+more glorious her conquest. -- -- -- -- -- --
+Envy
+[ 88 J
+Envy me not my yidlory, dear Rambler: had you got it, my heart would be now oppressed with grief and despair — I would be the most wretched of my Sex” - — '
+#
+“O thou lovely and virtuous wo’ man, I adore thee! — Never will I inflame thy fenles to a want of enjoying; — I will help thee against thyself— — virtue has passed into my heart — I feel myself another mass’ —
+“If thou perfeverest in thy resolution, dear Rambler, we shall be
+happy — No remorse will embitter our V life —
+But
+/
+r *9 j
+** But no pleasure will enliven it — ^
+f
+- I
+“Modesty forbids it — I ^ a womair, and love thee — Some innocent caresses I will grant —
+“those caresses will be a temptation to greater favours — Fll be prompted to steal what you will choose to deny — I do not answer for my virtue when I am with you —
+“I cannot part with thee, Rambler — thy company is a delight to me — yet my hushand’s honour must not Suffer from our mutual passion — What, he has done for thee requires an acknowledgment from us both — he dci serves the Sacrifice of our desires —
+t
+« Can
+t 90 ]
+Can we hope to escape a danger to which we will hourly expose ourselves ^ Dear my lady! let me go to London for a few months — time and absence will perhaps strengthen my virtue — here I cannot think but of love and pleasure —
+“I will not part with thee, Rami' bier —
+$
+%
+<
+.
+Talk not then to me any longer of my obligations to my lord — Your presence obliterates them from my mind — Indeed I cannot remember them.” —
+ms
+
+And 1 printed a kiss upon her lovely ' breast,
+%
+“O
+\
+/
+I
+[9* 1
+O Rambler, Rambler! I fear WS must part, ” —
+«
+• I
+.And she Suffered, tremblingly, the. wanton play of my lips.
+“There is Sure no sin in this trifling token of my affection for thee!
+I do not injure my husband for a few kisses — A woman as tender and pas sionate as I am, who beggars herself of enjoyment, cannot be guilty for a few
+kisses! — Decency! forgive — to virtue only can I obey, —
+X
+Though the countess made this re solution, she opposed however an other attack to her bosom, and reasoned me into discretion,
+My
+[ 92 1'
+My lord came back.
+•• You have won the hearts of my
+#
+people So effectually, Rambler, that there is not one among them who is not sincerely pleased with the news I have told them. They will make this a holiday in your honour — Let joy reign everywhere — this day, dear Augusta, Fll mark as the happiest of my life— — more shalt thou have reason to hate thy husband— — had Surrounded me with a mist — Rambler has dispelled it — I have found my wife, and acquired a real friend — I am happy, fuprerhely happy. —
+“Would I had always Seen your Such as you appear now, my lord! answered the countess.” —
+And
+I 93 ]
+%
+And she Saluted him with the un -- feigned tenderness of an affedlionatc wife. After this a general conversation ensued, in which I Supported with spirit the part of friendship and indifference.
+• I
+/
+r
+t *
+I
+K
+/
+LET.
+t 94 ]
+0
+♦
+i LETTER XI
+^
+T WILL pass over, Francis, the
+compliments I received upon this occasion from my fellow Servants, a amongst whom, by the advice of lord
+C -- -- -- -, I distributed one hundred
+guineas. The nobility, and gentry in the neighbourhood were not less Sensible to the change of my fortune. As
+Soon as the report of my new Situation
+/
+Spread abroad, Elverton Castle was crowded by men of all ranks, who to pay their court to lord C -- —, vied with
+each other in their demonstrations of
+\
+esteem and attachment to me.
+Nothing,
+I
+t 95 ]
+Nothing, dear Francis, woidd have,
+sheen wanting to my happiness, could I
+/
+have forgot the countess; but her virtue was a new fuel to my passion for her, and made me pant eagerly after her possession. The nearer I had been of finishing her conquest, the more desperately I Sought for the opportuni
+i • ^
+ty again. — The countess was upon her guard — no opportunity would she give
+— no opportunity could I create.
+%
+One morning that lord C -- -- -- -- - had
+O
+gone a riding, I perceived the countess taking a Solitary walk in the garden; and after a few turns entering a cover ed alley, which led to a wilderness terminated by a beautiful canal. I went after her, and following her steps fouiid her laying down upon a bed of turf.
+A blush
+%
+[96]
+A blush forced itself upon the cheeh of thepountess at my unexpedled appear ance. She arose, and, with love an( virtue blended in her features, step’i towards me.
+I
+“Your company, Rambler, is a fa your: I wastiredof being by myself.” —
+%
+\
+I
+And she came out of the grove.
+t
+“Still afraid of me, my lady? —
+/
+/
+“Still more afraid of myself, Ram
+\ '
+bier. — — let’s walk to the canal.” — -
+id.
+t
+The canal was as private a place a: the grove; but as it comrnanded ar extensive profpeff, the countess though
+herself more Safe against nature anc
+me
+’ [ 97 ]
+trie. Passing by a china temple I in treated her to rest in it. She would —
+then looking upon me slop’d, and would '
+«
+not. The freshness of tyre water invited
+t
+her to sit down upon the bank of the canal.
+.The countess vas in a dishabille, wshich Seemed rather made to veil her charms than to conceal them. In fit ting down, her left leg vas left almost
+%
+undiscovered; vnor did she perceive it
+»
+till I had ventured my hand, upon it, —
+Be discreet, Rambler.” '........-
+I
+f
+And she attempted to arise; but I reclined her upon the grass. The motion of my arm had thrown her drels in a disorder which would have: induced
+vol. I. F mighty
+\
+[ 98 ]
+mighty Jove to gaze on with delight from heaven, and to undeify himself in her favour. — My soul was in a flame.
+“This opportunity, exclaimed I, I neither will nor can lose/’.^.. — ^
+Then — -
+The conntess lay trembling in my arms. -- -- -
+“Lord! have 1 fled from the grove,
+t
+and avoided the china temple to fall in this place? — Rambler! — unlucky hour! — By whatever is Sacred, I Swear
+never
+\ ^
+4
+[ 99 ]
+never to forgive -- if thou wilt not this
+instant leave me..” -- -- --
+A
+Virtue was too strongly marked in the tone of her voice, to be mistaken for hypocrisy- -- -- —
+
+“Is it in my power to obey? -- --
+“It is if you love me — compel me
+not to despile and abhor you — Sacrifice
+♦
+not thy Augusta to thy passion.” -- --
+“Too Severe Augusta !” -- -- --
+/
+And almost fainting through the intolerable keeness of my disappointment,
+I Sat down by her.
+#
+“Dear Rambler, now have you
+proved that you Sincerely. love me —
+F 2 Would
+t
+[ 100 ]
+Would I could reward thee as thou de'
+'^
+Virtue permits it not — I am more unhappy than thou art. —
+The tenderness of her expressions,
+Soon revived my soul, ready to fly in an agony of desires and Sorrow. The Speaking voluptuousness of the Situation
+I was in, forced many a sigfffrom her lips -- -- she turned her head, then fixed
+again her eyes upon me.
+O virtue! cried she; I repent
+\
+not -- -- -- But it is a torment to obey
+thee !” -- -- -
+The vainness of my attempts against the countess discouraged me totally — Despairing of ever being successful, I re solved to avoid a tete a tete with her,
+and
+/
+/
+[ lot ]
+and to Seek in dissipation a remedy a gainst love. In this resolution 1 had the firmness to persevere, and I appeared at’ lady only when a third
+perfofl Was between her and nie
+4
+I
+4
+i
+t
+%
+4
+I
+%
+$
+I
+LET.
+%
+/
+I
+f
+t
+$
+%
+\.
+>
+[ j02 3
+»..
+LETTER XII
+The novelty of my behaviour struck
+/
+the countess with amazement and grief. My taste for hunting, and my excursions in the country, which lasted Sometimes two or three days, made her apprehensive of my indifference. She fancied my reason had conquered over passion, and that I found in a new attachment the pleasures she had denied me. Although unwilling to favour me, she could not think of a rival without pain.
+One afternoon that she was engaged at whist, I retired to a window to breathe the fresh air. The game being Soon at
+an end, she came to me.
+.< My
+[ loj ]
+My company is, of late, grown
+/
+very hateful to you — — I will know the
+s
+reason- -- -- at noon Till be in
+\
+the china temple — —
+t
+. I ^
+“Insist not upon my meeting you there- -- -- -- cannot bear the torture of
+m.
+a fierce, and vain desire -- -- -- inssidt
+not that punishment upon a man who
+V
+adores you — — -
+/ %
+** And you love me still ?■ — >
+I
+I wish I did not — —
+y
+••
+Form not that wish -- -- thy hatred
+would make me miserable —
+/
+“My love cannot make you happy -- -- -- - '
+‘‘ Will
+[ '04 I
+“Will you come to the china temple? -- r— —
+
+m
+%
+9
+“Will you leave virtue behind, and
+Jpave love only in your attendance ?” • —
+1
+The countess sighed, and whispered a No. I left the window, and went to the car^ table. As I was playing, lord
+C -- -- -- received a letter; and after
+having read it. Said he was obliged to go to Lincoln the next day. -- -- -- -- -
+If my company is agreeable, my lord, i’ll wait upon you to that place —
+“■ Trump, cried the countess very loudly, to prevent my lord from hearing me, whilst she trod upon my toe.”
+\
+Hi
+/
+[ 5^ J
+\
+His lordship had heard me; he’
+thankfully accepted my offen The? hue of indignation glanced upon the cheeks of the countess, and I Saw a
+f
+tear attempting to force its passage from her eye. The rubber finished; / a walk into' the garden was proposed.
+Lord C -- -- -- -, as the company withdrew
+from the ^drawing room, took me apart. -- --
+“don’t go with them; I must Speak
+with you.” —
+^ • •
+I followed him to his closen
+$
+“The business, Rambler, which
+I «
+calls me to Lincoln oblio es me to
+O
+have a faithful and Sagacious agent in London, who will carry a Secret corf
+5 respondence,
+[ io; i
+respondence between the minister and me. I have fixed upon you to ad in
+f
+that character— — — you any pb jedion? -- --
+“None, my lord: I’H endeavour to prove niyself worthy of your confidence; and I will Set out when you please.” -- -
+“i’ll six tomorrow the day of your departure, and write in the mean time to all my friends in London in your favour. ni have you make a handsome figure, and partake of every diversion of that capital.” -- -
+>>>>>>> master
 I was enchanted to have So fair an
 *
 occasion of removing from elverton cas tle, which my unhappy passion for the
