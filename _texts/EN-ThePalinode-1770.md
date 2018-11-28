@@ -941,43 +941,22 @@ The last scene with the countess, being still present to my mind, I forgot mysel
 
 “It did -
 
-And I gaz’d upon her with an air, which meant, “It is' you whom I love.” -- -- -- -
+And I gaz’d upon her with an air, which meant, “It is you whom I love.” -
 
-“I am glad of it.” -- -- --
-r
-t V
->
-This answer she did not pronounce;
-i
-but I read it on her features, Suddenly animated with an unusual joy.
-1 lest her chair, ashing to myself, how I came to express what I did not feel. Nature explained that question. — “She is handsome, and I am young, her concern talked to my senses; and these betrayed me into a language I did
-not intend to Speak, ” — I went to the
-G 2 other
-L 124 J
-Other side of the table opposite to Mrs
-\
-Guery. — I was Soon confirmed in th certainty I was not indifferent to her That discovery made me behold he: with a curiosity, which no woman, be the countess, had yet inspired me with My attention enlivened her charms; sh grew lovely in proportion to th(
-pleasure I showed in Seeing her. 1 wa;
-". ♦ 1
-amazed at my having been, till thai
-instant, insensible of her beauty, and bl her affeflion for me. — The return 01 the countess put an end to my wonder — I had then no eyes, no attention bui for her. — Like an agreeable dream, Mrs. Guery vanished from my memory — the countess took possession ol my heart and mind.
-%
-^ ^ ^ ^ ^
-^ ^ ^ ^ ^
-The
-#
-[ 125 ]
-The countess had hardly graced the circle with her presence, when a gentleman came in, who told the company be had met Mr. benson in the greatest distress two miles from the castle — saint r ing, unable to Speak, Screaming at every jolt of his chaise, through ..the. Severity of a whipping he had undergone in Elverton park.
-“A whipping] Are you in earnest,? — was the general exclamation.
-One of his Servants told me his master had been Seized by four ruffians, tied to a tree, and whipped almost to
-4
-death. I asked him if he knew the authors, and the cause of the ’squire’s misadventure. They were mashed. — For the cause he knew nothing of it,
-as
-[ >^6 ]
-as he was kept at too great a distance to hear the Scourgers; and his master had not Said a word about it. — -- --
-In the park! cried the countess; mimicking a natural surprise. — What
-audacity! -- -- Mr. Rambler, order my
-people to mount their horses, and go in Search of those russians.
+“I am glad of it.” -
+
+This answer she did not pronounce; but I read it on her features, suddenly animated with an unusual joy.
+
+I left her chair, asking to myself, how I came to express what I did not feel. Nature explained that question. - “She is handsome, and I am young, her concern talked to my senses; and these betrayed me into a language I did not intend to speak. ” - I went to the other side of the table opposite to Mrs. Guery. - I was soon confirmed in the certainty I was not indifferent to her. That discovery made me behold her with a curiosity, which no woman, but the countess, had yet inspired me with my attention enlivened her charms; she grew lovely in proportion to the pleasure I showed in seeing her. I was amazed at my having been, till that instant, insensible of her beauty, and of her affection for me. The return of the countess put an end to my wonder - I had then no eyes, no attention but for her. - Like an agreeable dream, Mrs. Guery vanished from my memory - the countess took possession ol my heart and mind.
+
+The countess had hardly graced the circle with her presence, when a gentleman came in, who told the company be had met Mr. Benson in the greatest distress two miles from the castle - fainting, unable to speak, screaming at every jolt of his chaise, through the severity of a whipping he had undergone in Elverton park.
+
+“A whipping! Are you in earnest? - was the general exclamation.
+
+"One of his servants told me his master had been seized by four ruffians, tied to a tree, and whipped almost to death. I asked him if he knew the authors, and the cause of the ’squire’s misadventure. They were masked. - For the cause he knew nothing of it, as he was kept at too great a distance to hear the scourgers; and his master had not said a word about it. 
+
+"In the park! cried the countess, mimicking a natural surprise. - What audacity! - Mr. Rambler, order my people to mount their horses, and go in search of those ruffians.
+
 “Spare them that trouble. Said Mrs. Guery; I dare Say that Mr, benson has deserved his punishment, and that those, who inssided it, are Safe. A husband or a lover, has revenged his wrongs
 upon the ’squire’s back. -- -- May every
 calumniator of female virtue Suffer the Same chastisement! I could kiss the man who has had the humanity to be the avenger of my Sex.” — "
@@ -995,7 +974,7 @@ of
 <
 [ 128 3
 , of the person of whom he could Speak tio good, he would break out into — “it may he — buv — then he would have paused, and changed the conversation. — Every one of you, ladies, has been honoured with his — “it may » buv -- -- -- -- --
-Every one <ss us, cried the coin tcfsl* — — -
+Every one us, cried the coin tcfsl
 \
 I
 “Yes,, You, yourself my lady hav Bot been Spared. — —
