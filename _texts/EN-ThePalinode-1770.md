@@ -92,7 +92,7 @@ John Rambler, Esq; to Sir Francis Crosley.
 
 Though I have told thee twenty times, dear Francis, that to women I am indebted for the good qualities thou praisest in me, thou still perseverest in thy incredulity - Why dost thou not believe me?
 
-- "Experience has taught thee that the fair may make a vicious, but never a virtuous man." - Thy experience proves only thou hast sacrificed thy taste, delicacy, and reason, to the want of thy senses. Were I to conclude from lord S-w-h's irreligion and
+"Experience has taught thee that the fair may make a vicious, but never a virtuous man." - Thy experience proves only thou hast sacrificed thy taste, delicacy, and reason, to the want of thy senses. Were I to conclude from lord S-w-h's irreligion and
 contempt of honour, that every lord is the scandal and the disgrace of the nation, wonldst thou take my word? A few profligate fellows and libertine women are not the satire of mankind. Weeds, Francis, will sometimes grow among the lilies and roses — a sir James L----- will be seen with a duke of
 Portland.; a lady Gr-----r with a dutchess of Buccleugh; but be certain, that nature is as much asleep when she creates such a baronet and vicountess, as the gardener is inattentive when he suffers a nettle to exist near the most beautiful flowers, which adorn our gardens.
 
@@ -887,93 +887,62 @@ She strained me to her bosom. -
 
 She sighed, - left me, and sat down. After some minutes of a sentimental silence, the countess broke forth into the following exclamation.
 
-"How I love thee
-““Say it not, -- you will talk m(
-into madness. — I hate to hear thou
-words, — there is poison in them.” —
-I,
-, And I turned to the door. — —
-Come here, Rambler. -- -- --
-“Can you delight in tormentini me? -- -- -- -
-t,
-)
-Let us converse calmly. — —
-“firh
-w.
-1 II ]
-First, make me blind to your charms. -- -- -- Be as hateful as you are
-I
-lovely. -- -- --
-“Sit down by me. .....-
-Oh! it is time for me to sty. — ^
-Stay. — — *
-\
-I cannot.” — -
-* I
-And I stew out of the room;
-“Virtue! exclaimed lady C — — thou piercest my heart with an agony of grief!” -- -,
-\
-^ t
-(
-L E T
-1
-t h8 ]
-*
-$
-LETTER XIIL
-H E nnexpedfed turn the conversation had taken, having eraset benson from my memory, I communi cated what had passed in the park t( the countess, when she came back t( the company. Next to love, revenge II the favourite passion of woman. Lad]
-C -- -- was So delighted with my relation,
-that, perhaps, had we beet alone, she would not, in the height o: her gratitude, have thought either o virtue or of her husband. The aven ger would have enjoyed the bliss deniec to the lover. — Woman, woman! whc
-• n, __ - ^
-know
-«
-f "9 ]
-knows you well, cannot love in vain! beware of your passions, or you shall forcibly yield to the man, who will
-/
-work upon them I
-I wish, Rambler,, you had told me of benson in the nestt room — here I cannot express my thanks but with words — there my Sensibility had thanked
-pu.” —?
-** It is not yet too late; let’s go thither. — — —
-/
-She arose — then stopped — then Sat down again.
-“Refiedbion, dear Rambler, objefbs to that kind of thanks — they might
-carry me further than I intend -- -- --
-I fear —
-s
-{ 120 ] •
-I Sear — prudence bids me to stay. — i My lord must know what you have done. — ru go to him.”. -- -- -- -
-“I am fated never to be happy, sighed I; and I went to the card tables.” —
-4
-rleaned upon the back of the chair of a young widow, who might have boasted graces and beauty, would she not have studiousiy attempted to disfigure with art and affedlation, the charms
-she held from nature. She was neither a coquette, nor a prude, and yet had the ridiculousness of both. Like the former she would please;; like the latter, conceal that desire under the feigned austerity of her Speech. — ^co quetry made her countenance, and modesty
-[ }
-desty commanded her tongue. The
-.. «•
-gaiety of her looks invited a man int
-f
-indiscretion — she Spoke, he was discreet again. There was a peculiarity in her dress and gait, which made her ostea an absolute stranger to the company she was with. Of her Sex, she did not follow either the fashions or the manners. — Taney didlated her apparel and carriage. In the Society of the old or vir .tuous, she would Sometimes appear free and wanton — with the young and liberr tine, decent and Severe. Her fortune enabling Mrs. g uery to keep a Splendid house, and, live independent' and careless of the world, she thought it extremely rational to ast and behave as she pleafed.’*
-V
-vol. I. G The
-/
-✓
-E 122 ]
-The eyes of Mrs. Guery had often been fixed upon me with the expression
-t
-of Sentiment; had not my passion for the countess imposed Silence to my vanity, I would infallibly have fancied myself the object of her inclination. My thoughts being centred in lady C -- -- --,
-I had none to Spare in Savour of Mrs.
-, ✓
-guery’s expression of Sentiment — Not once was I tempted to refled upon it.
-The last Scene with the countess, being still present to my mind, I forgot myself, and breathed a sigh. Mrs. Guery turned instantly her head to dart
-4
-1 an agry look at the impertinent, who had
-been So bold as to sigh almost in her ear. — She Saw me, that look dissolved
-into a Smile— — —
-'*
+"How I love thee, Rambler! -
 
-I 123 ]
-Is it you, sir? — Did love cause that igh? -- -- -
-“It did — —
+“Say it not, - you will talk me into madness. - I hate to hear thou words, - there is poison in them.” -
+
+And I turned to the door. -
+
+"Come here, Rambler. -
+
+“Can you delight in tormenting me? -
+
+"Let us converse calmly. -
+
+"First, make me blind to your charms. - Be as hateful as you are
+lovely. -
+
+“Sit down by me. -
+
+"Oh! it is time for me to fly. -
+
+"Stay. -
+
+"I cannot.” -
+
+And I flew out of the room.
+
+“Virtue! exclaimed lady C----- thou piercest my heart with an agony of grief!” -
+
+---
+
+## LETTER XIII
+
+The unexpected turn the conversation had taken, having erased Benson from my memory, I communicated what had passed in the park to the countess, when she came back tt the company. Next to love, revenge is the favourite passion of woman. Lady C----- was so delighted with my relation, that, perhaps, had we been alone, she would not, in the height of her gratitude, have thought either of virtue or of her husband. The avenger would have enjoyed the bliss denied to the lover. - Woman, woman! who knows you well, cannot love in vain! beware of your passions, or you shall forcibly yield to the man, who will work upon them!
+
+"I wish, Rambler,, you had told me of Benson in the next room - here I cannot express my thanks but with words - there my sensibility had thanked you." - 
+
+"It is not yet too late; let’s go thither. - 
+
+She arose - then stopped - then sat down again.
+
+“Reflection, dear Rambler, objects to that kind of thanks - they might carry me further than I intend - I fear - prudence bids me to stay. - My lord must know what you have done. - I'll go to him.”
+
+“I am fated never to be happy, sighed I; and I went to the card tables.” -
+
+I leaned upon the back of the chair of a young widow, who might have boasted graces and beauty, would she not have studiousiy attempted to disfigure with art and affectation, the charms
+she held from nature. She was neither a coquette, nor a prude, and yet had the ridiculousness of both. Like the former she would please; like the latter, conceal that desire under the feigned austerity of her speech. Coquetry made her countenance, and modesty commanded her tongue. The gaiety of her looks invited a man indiscretion - she spoke, he was discreet again. There was a peculiarity in her dress and gait, which made her often an absolute stranger to the company she was with. Of her sex, she did not follow either the fashions or the manners. - Fancy dictated her apparel and carriage. In the Society of the old or virtuous, she would sometimes appear free and wanton - with the young and libertine, decent and severe. Her fortune enabling Mrs. Guery to keep a splendid house, and, live independent and careless of the world, she thought it extremely rational to ask and behave as she pleased."
+
+The eyes of Mrs. Guery had often been fixed upon me with the expression of sentiment; had not my passion for the countess imposed silence to my vanity, I would infallibly have fancied myself the object of her inclination. My thoughts being centred in lady C-----, I had none to spare in Savour of Mrs. Guery’s expression of sentiment - Not once was I tempted to reflect upon it.
+
+The last scene with the countess, being still present to my mind, I forgot myself, and breathed a sigh. Mrs. Guery turned instantly her head to dart an agry look at the impertinent, who had been so bold as to sigh almost in her ear. - She saw me, that look dissolved into a smile. -
+
+"Is it you, sir? - Did love cause that sigh? -
+
+“It did -
+
 And I gaz’d upon her with an air, which meant, “It is' you whom I love.” -- -- -- -
+
 “I am glad of it.” -- -- --
 r
 t V
