@@ -838,16 +838,7 @@ have a faithful and sagacious agent in London, who will carry a secret correspon
 
 I was enchanted to have so fair an pccasion of removing from Elverton-castle, which my unhappy passion for the countess, made every day more disagreeable to me. Far from feeling a pain at the thought of being deprived of her sight, I rejoiced as the slave, who unexpectedly recovers his liberty. The part I was to perform upon the state of the polite world, flattered my pride; 
 I was impatient to begin it, and that impatience sided for me 
-
-against the charms of the countess, and the fedudions of love. Passions, dear Francis, cannot be conquered but by passions; let moralists boast the power of reason;; is a weak enemy against our' Sensibility; Without the help of pride, I would have had neither the inclination nor the courage to refuse the temptations of desire, and leave the countess. I had promised to revenge her of ’squire Ben son, formed my plan with my lord, and
-taken
-C io ]
-b
-taken the execution upon me. Tfxt
-i
-sudden journey of that gentleman intc Northamptonshire, from whence he was
-not yet returned, had delayed his punishment; I was extremely vexed noi to be able to inflidl; it before my Settinc out for London; but as he was fated t( receive the reward due to his malice his unpropitious star threw him into m;
-• way, when I had lost every hope of See ing him.
+against the charms of the countess, and the seductions of love. Passions, dear Francis, cannot be conquered but by passions; let moralists boast the power of reason; is a weak enemy against our sensibility. Without the help of pride, I would have had neither the inclination nor the courage to refuse the temptations of desire, and leave the countess. I had promised to revenge her of 'squire Benson, formed my plan with my lord, and taken the execution upon me. The sudden journey of that gentleman into Northamptonshire, from whence he was not yet returned, had delayed his punishment; I was extremely vexed not to be able to inflict it before my setting out for London; but as he was fated to receive the reward due to his malice, his unpropitious star threw him into my way, when I had lost every hope of seeing him.
 \
 «
 As I was going to the garden, trusty Servant, one of the executors C my plan of revenge, told me tha ‘’squire benson’is huntsman had jul alighted, from whom he learned that h master was arrived, and intended t Spend the evening with my lord. I in mediately gave the necessary orders, an
