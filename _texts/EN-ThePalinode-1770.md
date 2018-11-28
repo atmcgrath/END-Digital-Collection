@@ -133,7 +133,6 @@ Sir Francis Crosley, to John Rambler, Esq.
 
 My reason is proof againss words, Jack. Either cease to maintain that women are virtuous, or illustrate thy assertion with facts. Name me some beauties, who having loved, have triumphed over their own desires, and the attacks of their lovers - then - then only, will I believe thee.
 
->>>>>>> master
 Bath 1770.
 
 ---
@@ -246,6 +245,8 @@ The joy I felt at having so happily succeeded, diffused itself through every fea
 
 At that minute her waiting woman coming in, she reassumed her air of dignity, and with a nod bid me out of her room.
 
+---
+
 ## LETTER VI
 
 When I could, undisturbed, indulge a reverie upon my conversation with the countess, miy pride recollected carefully every word she spoke, every emotion she felt, which I might construe as a symptom of inclination in my favour. However impertinent my presumption, I did not attempt to check it. I was young, graceful, and of an athletic form; this last quality
@@ -340,6 +341,8 @@ Give me that letter, my lord: I may possibly discover who wrote it - if I do, do
 "That discovery would at once put an end to my doubts, - take that letter, and act as thou thinkest proper”.
 
 “Then I retired, overjoyed at having it in power to convince the countess of my affection”.
+
+---
 
 ## LETTER VIII.
 
