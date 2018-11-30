@@ -41,29 +41,18 @@ HISTORY
 OF  
 MISS HARRIOT  MONTAGUE.
 
-IN that delightful season of the year, when nature throws forth all her hoard of charms, and puts to shame the weak efforts of art; when the groves were adorned
-with verdure, the meads and gardens enamelled with flowers when the little warbling choristers of the woods begin to make their nests in the thickset branches of
-the shady bowers. In the reign of our late sovereign George the 1st, there came to settle
+IN that delightful season of the year, when nature throws forth all her hoard of charms, and puts to shame the weak efforts of art; when the groves were adorned with verdure, the meads and gardens enamelled with flowers when the little warbling choristers of the woods begin to make their nests in the thickset branches of the shady bowers. In the reign of our late sovereign George the 1st, there came to settle
 [2]
-at a small village near Plymouth, a French gentleman and his lady, whose names were Le Montague, they left France, their native country, upon account of their
-religion. Monsieur Le Montague had been master of a vessel, with which, making many prosperous voyages, he had gained a pretty fortune; and was now resolved to
-pass the remainder of his days in a country of liberty, where he might enjoy his religion without molestation, having disposed of all his effects in France, and
-remitted the money by bills to England, into the hands of one of his correspondents at Plymouth, where he chose to settle; he having some acquaintance with the
-most considerable merchants, with whom he had traded. He had been in England several times before, and was perfectly skilled in our language; he put part of his
-money into the public funds, and with the rest purchased a house and some lands, on which he lived with his wife and a few servants, as happily as any man on
-earth could do; nothing was wanting but children to makes him completely so. He had been married eight years, and no prospect of having any; however, he had not
-lived in this healthful country above 18 months, when his lady with much joy acquainted him she was with child, at which news he was much transported, and
-returned thanks to heaven. She was at the expiration of her time happily delivered of a child, which proved a girl, whose life in the subject of this history
-being full of such strange misfortunes and wonderful adventures, that it well deserves the notice of the public: they gave her the name of her fond mother,
-which was Harriot; the child was so beautiful, everybody that saw her admired her.
+at a small village near Plymouth, a French gentleman and his lady, whose names were Le Montague, they left France, their native country, upon account of their religion. Monsieur Le Montague had been master of a vessel, with which, making many prosperous voyages, he had gained a pretty fortune; and was now resolved to pass the remainder of his days in a country of liberty, where he might enjoy his religion without molestation, having disposed of all his effects in France, and remitted the money by bills to England, into the hands of one of his correspondents at Plymouth, where he chose to settle; he having some acquaintance with the most considerable merchants, with whom he had traded. He had been in England several times before, and was perfectly skilled in our language; he put part of his money into the public funds, and with the rest purchased a house and some lands, on which he lived with his wife and a few servants, 
+[3]
+as happily as any man on earth could do; nothing was wanting but children to makes him completely so. He had been married eight years, and no prospect of having any; however, he had not lived in this healthful country above 18 months, when his lady with much joy acquainted him she was with child, at which news he was much transported, and returned thanks to heaven. She was at the expiration of her time happily delivered of a child, which proved a girl, whose life in the subject of this history being full of such strange misfortunes and wonderful adventures, that it well deserves the notice of the public: they gave her the name of her fond mother, which was Harriot; the child was so beautiful, everybody that saw her admired her.
 
 It is needless to tell you that monsieur Le Montague and his lady bred her up with all the care and tenderness imaginable; but it pleased heaven to deprive this
-little creature of her mother before she was three years old, for Madam Le Montague fell sick of a fever, and died, after lingering under that terrible disorder
-eight months: she was well respected by all her neighbours, which made her greatly lamented, especially by the poor, to them she was very kind. Poor Harriot was
-left to the care of her father, who was deeply concerned for the death of his loving wife, looking upon the child as the dear pledge of which was left him, of
-their mutual affection: he was so doatingly fond of her, that he was resolved never to marry again, but to make it the business of his life to instruct and
-provide for her on the mosh advantageous manner he was able. Nor was his good intentions frustrated, for Harriot as she increased in years showed so great a
-capacity, and so quick an apprehension in all she went about, that he had reason to expect great things from her; nor were his expectations without foundation
+little creature 
+[4]
+of her mother before she was three years old, for Madam Le Montague fell sick of a fever, and died, after lingering under that terrible disorder
+eight months: she was well respected by all her neighbours, which made her greatly lamented, especially by the poor, to them she was very kind. Poor Harriot was left to the care of her father, who was deeply concerned for the death of his loving wife, looking upon the child as the dear pledge of which was left him, of
+their mutual affection: he was so doatingly fond of her, that he was resolved never to marry again, but to make it the business of his life to instruct and provide for her on the mosh advantageous manner he was able. Nor was his good intentions frustrated, for Harriot as she increased in years showed so great acapacity, and so quick an apprehension in all she went about, that he had reason to expect great things from her; nor were his expectations without foundation
 for before she was twelve years old she could play on the lute and harpsichord dance finely. Speak French and Italian perfectly, sung delightfully, writ
 delicately, and used her needle with so much art and skill, as if Pallas had been her governess. Monsieur Le Montague offered praises to heaven hourly for her,
 and was more fond of her than he ought to have been, fancying he could not outlive the loss of her: she in return for his excessive fondness, was so obedient to
