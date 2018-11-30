@@ -169,7 +169,7 @@ As soon as I came to lord C-----'s he sent for me.
 
 Considering the emptiness of my purse, and that many an individual had from a lower degree risen to opulence, through the interest of their patrons, I gratefully accepted the employment he gave me.
 
-“I fancym,Rambler, said his worship with a smile, that twenty guineas will not hurt you in the situation you are. - Besides I owe you a reward, and it is just I should pay it." -
+“I fancy, Rambler, said his worship with a smile, that twenty guineas will not hurt you in the situation you are. - Besides I owe you a reward, and it is just I should pay it." -
 
 Ineed not tell thee, Francis, that I made no objection to his generosity. I pocketed the money, and immediately entered into office.
 
@@ -957,279 +957,131 @@ The countess had hardly graced the circle with her presence, when a gentleman ca
 
 "In the park! cried the countess, mimicking a natural surprise. - What audacity! - Mr. Rambler, order my people to mount their horses, and go in search of those ruffians.
 
-“Spare them that trouble. Said Mrs. Guery; I dare Say that Mr, benson has deserved his punishment, and that those, who inssided it, are Safe. A husband or a lover, has revenged his wrongs
-upon the ’squire’s back. -- -- May every
-calumniator of female virtue Suffer the Same chastisement! I could kiss the man who has had the humanity to be the avenger of my Sex.” — "
-This
-[ 127 J
-This Sally of Mrs. Guery, uttered with resolution and Spirit, was echoed by all the ladies in the room, and the men were too complaisant not to appear pleased with the ’squire’s missor tune.
-“The ’squire’s mischievousncss, resumed Mrs. Guery, is of a nature which
-called for a more rigorous treatment.
-/
-Too cowardly to offend openly, he has made his Silence as expressive as the most decisive Sentence. I have often, purposely, ashed his opinion of the virtue of Several women I knew he did not love. — Not one word dropped from hi
-lips, -- he shook his head, and was as
-Silent as the grave. Indeed, when I appeared to understand his manner of
-answering, and vindicated the charafler
-of
-<
-[ 128 3
-, of the person of whom he could Speak tio good, he would break out into — “it may he — buv — then he would have paused, and changed the conversation. — Every one of you, ladies, has been honoured with his — “it may » buv -- -- -- -- --
-Every one us, cried the coin tcfsl
-\
-I
-“Yes,, You, yourself my lady hav Bot been Spared. — —
-s
-“Has he had no respe(5t for mil! D —, miss F — ?........-
-\
-“Not he, upon my word; he hai
-t
-levelled ' his Satire indiscriminately a you all. — —
-« Th
-^ %• y
-1*
-t 129 ]
-“The villain! -- -- the villain
-Had women ^ right to Speak in he Senate, 1 would vote that public hanks should be given to the chastiser )S that daring calumniator. Such a brvice is more important to Society, han the advantages resulting from wenty vidtories over a powerful ene ny. these advantages are but mo nentary; but the Service of the former, vere it encouraged, would fix, for ever, ieace, union and happiness in every fa nily. A calumniator belies the dig iity we proudly attribute to the nature )S man. -- -- Hers a living Satire against
-■eason and virtue. — I know not a more
-%
-lespicable charafler. -- -- -- The pick
-socket and the highwayman, expose sravely their liberty and life to Satisfy
-'G 5 their
-[ >3° ]
-their wants; we may prepare against
-their attempts. -- -- But how can we
-defend ourselves against the wretch, who with art and secresy, beggars us of
-our reputation? -- -- -- The man who
-stabs us in the dark, is less guilty
-and infamous -- - — He only takes ost
-a life, which would have ended a few
-days, or a few years after -- -- But the
-calumniator makes that life a perpetual
-torment.” — —
-The Sentiments of Mis. Guery were received with applause; her just indignation passed in every heart, and animated every tongue. The grace with which she had delivered her Speech, made a deep impression upon me; I
-could hardly refrain from expreshng it.
-. — Thought
-]
-f
-.. — Though Sitting by the countess, I viewed the lovely orator with delight ^
-• -- -- -- Nay, I durst to praise her, with
-the language of admiration, upon the wk and good sense, she had So naturally
+“Spare them that trouble, said Mrs. Guery; I dare Say that Mr. Benson has deserved his punishment, and that those, who inflicted it, are safe. A husband or a lover, has revenged his wrongs upon the ’squire’s back. - May every calumniator of female virtue suffer the same chastisement! I could kiss the man who has had the humanity to be the avenger of my sex.” -
+
+This sally of Mrs. Guery, uttered with resolution and spirit, was echoed by all the ladies in the room, and the men were too complaisant not to appear pleased with the ’squire’s misfortune.
+
+“The ’squire’s mischievousncss, resumed Mrs. Guery, is of a nature which called for a more rigorous treatment. Too cowardly to offend openly, he has made his silence as expressive as the most decisive sentence. I have often, purposely, asked his opinion of the virtue of several women I knew he did not love. - Not one word dropt from his lips, - he shook his head, and was as
+silent as the grave. Indeed, when I appeared to understand his manner of answering, and vindicated the character of the person of whom he could speak no good, he would break out into - “it may be - But" - then he would have paused, and changed the conversation. - Every one of you, ladies, has been honoured with his - “it may - But" - 
+
+"Every one us, cried the countess! - 
+
+“Yes, You, yourself my lady have not been spared. - 
+
+“Has he had no respect for miss D-----, miss P-----? -
+
+"Not he, upon my word; he has levelled his satire indiscriminately at you all. -
+
+“The villain! - the villain! -
+
+"Had women a right to speak in the senate, I would vote that public thanks should be given to the chastiser of that daring calumniator. Such a service is more important to society, than the advantages resulting from twenty victories over a powerful enemny. These advantages are but monentary; but the service of the former, were it encouraged, would fix, for ever, peace, union and happiness in every family. A calumniator belies the dignity we proudly attribute to the nature of man. - He is a living satire against reason and virtue. - I know not a more despicable character. - The pickpocket and the highwayman, expose bravely their liberty and life to satisfy their wants; we may prepare against their attempts. - But how can we defend ourselves against the wretch, who with art and secresy, beggars us of our reputation? - The man who stabs us in the dark, is less guilty and infamous - He only takes off a life, which would have ended a few days, or a few years after - But the calumniator makes that life a perpetual torment.” -
+
+The sentiments of Mrs. Guery were received with applause; her just indignation passed in every heart, and animated every tongue. The grace with which she had delivered her speech, made a deep impression upon me; I could hardly refrain from expreshng it.
+
+Though sitting by the countess, I viewed the lovely orator with delight - Nay, I durst to praise her, with the language of admiration, upon the wit and good sense, she had so naturally
 displayed.
-/
-/
-4
-)
-/ ^
-)
-S
-♦
-I
-LED -
-/
 
-C >32 j
-1
-/
-LETTER XIV
-I
-H E certainty of being loved by a handsome womaoj Francis, dist
+---
 
-poses a heart to gratitude; and gratitude is Sometimes as lively and delusive a Sentiment as love. Her actions and eloquence, made me oblivious of
-I
-Mrs. query’s foibles; my reason perceived no fault in the woman, who to wit united a flattering partiality in my favour. This indulgence is common, to all men; the stupid and the Sensible, pay equally that debt to self-love, always blind to the impdfed; ions of
-those
-[ »33 ]
-those by whom we are loved or esteemed.
-The countess took notice of the warmness of my compliments, and whispered in my ear, — “Have you forgot I am here — *-■
-Those few words, accompanied with a Smile — No woman, Francis, Smiled
-N
-like the countess — robbed Mrs. Guery of my homage, and destroyed the illusions self conceit had Surrounded me with,
-pleasure invaded the rest of the evening; he presided at Supper, commanded the countenance, and created the wit of every guest. Joy was the Sole sensation felt, when Sudden claps of thunder, and
-stashes of lightning threw the company
-into
-t 134 ]
-into terror and disorder. As the windows had been left open for the Sake of breathing the fresh air after a Sultry day, everybody hastened with the steps of fear to the next apartment. Their impatience adding to the confusion, Mrs, Guery hearing me banter calmly at the
-cowardly flight of So many feiisible peo
-✓
-pie, came to me.
-“You are a man, Mr. Rambler: With you I cannot be apprehensive of danger. — ’*
-Another frightful flash of lightning, altered instantly her language. She
-took hold of my hand, and preshng it in her’s*^
-“Lead
-• ^
-%
-[ 135 ]
-“Lead me to a place where I may be free from the tremendous sight and noise. — I am frighted to death. —
-I thought of a closet contiguous to the diningroom, in which the plate was kept. Thither I sheltered the trembling Mrs. Guery,
-“There is no chair here, madam 5 ru go and fetch one. —
-%
-“.Dis needless — i’ll sit upon the floor — leave me not by myself— — the
-the door. — What noise -- -- It Seems as
-if the elements vied with each other in their mutual destrudion. — My Soul shakes with horror. — Lie by me.”
-I obeyed.
-‘ 'I
-E 136 ]
-I obeyed, but So awkwardly that — I know not how it happened — my hand rested upon her bosom.
-\
-'^ k
-“Forgive. -- -- -- darkness only has
-caused my indiscretion.” - —
-Mrs. Guery appearing to take no notice of the position of my hand, and of my apology, I passed my arm round her waist, and left my hand in the pos
-i
-Session of the undisputed charms.
-“Do you thinl yourself Safe now against the storm
-I
-And I amorousiy told her lips that I loved.
-“You
-%
-I
-f
-i
-N
-I *37 I
-\
-You are more dangerous than the
-storm. -- -- My fear of it is vanished. —
-It is ungenerous to abuse the asylum you gave me. — let’s leave this closet
-\
+## LETTER XIV
 
-My transports are a tribute nature imposes upon our sensibility in favour of beauty. -- -- -- -
-“I cannot welcome a compliment made at the expense of my virtue— — -* cease to offend, or let us join the
-y
-company. —
-/
-I
-** It is too difficult to obey. -- ‘let’si
-go. —
-f
-** What! Have you So little power
-over your passions r
-%
-4
-• With[
-[
-“With another woman I might Sub
-due them. -- -- -- With you, love and de
-sire make me their siave. —
-“Love! how easily men pronouno that word! does not honour reprov you for the shameful prostitution of, Sentiment you do not feel -
-“It confirms what I have Said, — i love you. —
-“You love me! ah, ah, ah! i’l try whether I can be false with as gooc a grace as you. — I love you. — I hav( not Spoke those words with the Same accent of sincerity. — Let me hear yoi again. —
-“I love
-r '39 ]
-“I love you. —
-I will not attempt after your— — ' how long have you been practising the art of belying your thoughts? — 1 own, you excel me in that art’ — and yet I am a woman. —
-“Did you love me, you would ex press yourself as I do. — There is no deceit on my tongue — I love — I Say it as
-I feel. -- --
-“You are the most discreet man I have yet conversed with: You love me! how could you keep that Secret in your heart? —
-•'by praising my discretion, you have told the motive of my silence. —
-That
-i
-t 140 I ■
-“That discretion proves your indifference. -- -- Had you loved, you would
-have Spoke. — Talk not to me of a pas fion, which the darkness of this closet has caused.” -- -- -- -
-4
+The certainty of being loved by a handsome womaon, Francis, disposes a heart to gratitude; and gratitude is sometimes as lively and delusive a sentiment as love. Her actions and eloquence, made me oblivious of Mrs. Guery's foibles; my reason perceived no fault in the woman, who to wit united a flattering partiality in my favour. This indulgence is common, to all men; the stupid and the sensible, pay equally that debt to self-love, always blind to the imperfections of those by whom we are loved or esteemed. 
+
+The countess took notice of the warmness of my compliments, and whispered in my ear, - “Have you forgot I am here?" -
+
+Those few words, accompanied with a smile - No woman, Francis, smiled like the countess - robbed Mrs. Guery of my homage, and destroyed the illusions self conceit had surrounded me with. 
+
+Pleasure invaded the rest of the evening; he presided at supper, commanded the countenance, and created the wit of every guest. Joy was the sole sensation felt, when sudden claps of thunder, and slashes of lightning threw the company into terror and disorder. As the windows had been left open for the sake of breathing the fresh air after a sultry day, everybody hastened with the steps of fear to the next apartment. Their impatience adding to the confusion, Mrs. Guery hearing me banter calmly at the cowardly flight of so many feiisible people, came to me.
+
+“You are a man, Mr. Rambler: With you I cannot be apprehensive of danger. -"
+
+Another frightful flash of lightning, altered instantly her language. She took hold of my hand, and pressng it in her’s -
+
+“Lead me to a place where I may be free from the tremendous sight and noise. - I am frighted to death. -
+
+I thought of a closet contiguous to the dining room, in which the plate was kept. Thither I sheltered the trembling Mrs. Guery. 
+
+“There is no chair here, madam; I'll go and fetch one. - 
+
+“'Tis needless - I’ll sit upon the floor - leave me not by myself - shut the door. - What noise? - It seems as if the elements vied with each other in their mutual destruction. - My soul shakes with horror. - Lie by me.”
+
+I obeyed, but so awkwardly that - I know not how it happened - my hand rested upon her bosom.
+
+“Forgive. - darkness only has caused my indiscretion.” - 
+
+Mrs. Guery appearing to take no notice of the position of my hand, and of my apology, I passed my arm round her waist, and left my hand in the possession of the undisputed charms.
+
+“Do you think yourself safe now against the storm?" - 
+
+And I amorously told her lips that I loved.
+
+"You are more dangerous than the storm. - My fear of it is vanished. - It is ungenerous to abuse the asylum you gave me. - let’s leave this closet. -
+
+"My transports are a tribute nature imposes upon our sensibility in favour of beauty. -
+
+“I cannot welcome a compliment made at the expense of my virtue  - cease to offend, or let us join the company. -
+
+"It is too difficult to obey. - Let’s go. - 
+
+"What! Have you so little power over your passions? -
+
+“With another woman I might subdue them.- With you, love and de sire make me their slave. -
+
+“Love! how easily men pronouncethat word! does not honour reprove you for the shameful prostitution of sentiment you do not feel? - 
+
+“It confirms what I have said. - I love you. -
+
+“You love me! ah, ah, ah! I'll try whether I can be false with as good a grace as you. - I love you. - I have not spoke those words with the same accent of sincerity. - Let me hear you again. - 
+
+“I love you. -
+
+I will not attempt after your - how long have you been practising the art of belying your thoughts? - I own, you excel me in that art - and yet I am a woman. -
+
+“Did you love me, you would express yourself as I do. - There is no deceit on my tongue - I love - I say it as I feel. -
+
+“You are the most discreet man I have yet conversed with: You love me! how could you keep that secret in your heart? - 
+
+"By praising my discretion, you have told the motive of my silence. - 
+
+“That discretion proves your indifference. - Had you loved, you would have spoke. - Talk not to me of a passion, which the darkness of this closet has caused.” -
+
 And she arose.
-The storm is not over. —.
-“They may look for me.«> i must not be found here— — the fear of the lightning only made me imprudent,, another cause may be fuspedfed. — It is not enough to be really virtuous, a woman ought to have the reputation of it — Without that reputation,
-her virtue is of no advantage to Soi
 
-ciety. — —
-“What!
-f
-. I HI j
-What! not one kiss before we )a; t? -- -- --
-“No; not one.’’ -- -- -- -
-She opened the door, and bidding me not to follow her, stepped to the 'oom where the company had retired..
-\
-\ ^
-I
-4
-LETS
+"The storm is not over. -
 
-\
-«
-L 142 J
-• ^
-I
-LETTER XV
-♦
-THE facility with which I had Said,
-I love you. Surprised me; had I been true, I could not have acted more. naturally. I ceased to wonder how - men could wantonly deceive; how women could So easily believe. The behaviour of Mrs. Guery announced a woman of sense, Superior to the didlates of a silly pride. Though inclined to credit me, she had quickly discerned the man of gallantry from the lover — —
-I was ashamed of the part I had performed, and feared it would turn to my disgrace.
-My
-. r 143 ]
-My falsehood will prejudice her a sinst me, Said I to myself; she cannot teem the man who has attempted to ipose upon her credulity — her in ination for me must necessarily dwin le into indifference or contempt, ” ____
-1 loved the countess, Francis, and et was afraid of Mrs. guery’s displea
-ire -- -- 1 Searched for the reason into
-y heart -- -- there I found it in a rest:
-: curiosity, creating incessantly new esires, and forcing us to long for the njoyments of the goods we do not
-N
-loffess. Curiosity, like avarice, iat northeast er asseep : it commands over every snse, and, with the string of pleasure, eads the Soul at discretion. The love )f women is, I fear, the effect only of : uriosity.w -- ~W^ not this pashon the
-prin
-1 h4 1
-principle of our affection for the fair, would we, after a few months of intimacy with them, grow infensibly weary, indifferent, and inconstant? At that time, those refiedlions made but a weak
-impression upon me. -- -- -- -- No argument
-could have persuaded me that my pas Sibn for the countess would not have outlived my possession of her. At what season of life are not ' men children I We wish for a toy; do we get it, we
-i
-'pant .after another -- -- -- -- Thus, from the
-t
-hour we think to the hour we die, we are under the irresistible Sway of folly.
-\
-^ W W ^
-The storm Iiaving Subsided, the com
-I
-pany returned to the diningroom, and renewed their devotions to Bacchus and
-pleafurc:
-I, 145 J
-leasure. Soon after they left the castle, nd we retired to rest.
-4
-%
-%
-Ambition Suggested me that Mrs:
-4
-juery’s fortune was a prize Worthy of icing wished for — worthy of being ob ained, though at the expense of hof
+“They may look for me. I must not be found here - Though the fear of the lightning only made me imprudent, another cause may be suspected. 0 It is not enough to be really virtuous, a woman ought to have the reputation of it - Without that reputation,
+her virtue is of no advantage to society. -
 
-loiir -- that honour, which forbids to
-xpress what we do not think, appeared 0 me invented by knaves for the pur
-)ofe of cheating with ease the credu ous of their purse or reason. con duding it was not a real virtde, I re blved to Support the part I. had began, m.d. to convince Mrs. Query that I felt what I fpokc. Who will be true, when
-incerity can injure him either in his
-/
-brtune or reputation? As I could not, without belying my experience, admit
-I
-: he possibility of Such a self-denial in vol. I. H men
-'«
-/
-w
-L j
-I
-men living in Society, I Saw no meanness in the hypocrisy by the mean of
-which 1 was to become great and opulent. Had the person of Mrs. Guery been as uripleasant as it was desirable. Virtue would have told me not to sacri
-I
-'sice her happiness to ray ambition, and
-perhaps would I not have opposed her triumph; but certain that Mrs. Guery would never repent her confidence in me. Virtue was Silent, and self-interest confirmed my resolution.
-■' I •
-To carry this feigned amour with the looks of truth, and Secrete it from the countess, required an art I was afraid not to be master of. Mrs. Guery was often with her; at that time, could I at in character without displeasing cither of them? the countess had already
+"What! not one kiss before we part? -
 
-I
-1 h7 j
-dy reproved me for my attention to Mrs. Guery — Would not Mrs. Guery be, as naturally, provoked at an indifference I should causelessly affect?? modest and reserved women are, '
-%
-their pride is always delighted with a public homage. Coquettes would be
-an unknown being, would men pay,
-but in a tue a tite. their tribute of fiat
-tery and adorations.
-\
-Rather than to give an hour of un easiness to the countess, I would have chosen to fink again in my former
-station, and vegetate, all my life in a disgraceful obfeurity. I hoped her
-virtue would, at last? conquer over her passion, and change it into friendship. The woman who had So often come off victorious over love and nature, could
-H 2 not
-[ 148 ]
-not long indulge a Sentiment Ibe was determined never to gratify.
-“When her reason, assisted by absence, or the Scarcity of our private conversations, shall resume its power, the countess will applaud my behaviour, and countenance my ambition. -- -- -- -- Till
-that day comes, I must dissemble — let
-/
-me lose the fortune I covet — it will be
-no loss if the countess is happy.” — _
+"No; not one." -
+
+She opened the door, and bidding me not to follow her, stepped to the room where the company had retired.
+
+---
+
+## LETTER XV
+
+The facility with which I had said, I love you, surprised me; had I been true, I could not have acted more naturally. I ceased to wonder how men could wantonly deceive; how women could so easily believe. The behaviour of Mrs. Guery announced a woman of sense, superior to the dictates of a silly pride. Though inclined to credit me, she had quickly discerned the man of gallantry from the lover - I was ashamed of the part I had performed, and feared it would turn to my disgrace.
+
+"My falsehood will prejudice her against me, said I to myself; she cannot esteem the man who has attempted to impose upon her credulity - her in inclination for me must necessarily dwindle into indifference or contempt." -
+
+1 loved the countess, Francis, and yet was afraid of Mrs. Guery’s displeasure. - I searched for the reason into my heart -
+there I found it in a restless curiosity, creating incessantly new desires, and forcing us to long for the enjoyments of the goods we do not possess. Curiosity, like avarice, is never asleep: it commands over every sense, and, with the string of pleasure, keads the soul at discretion. The love pf women is, I fear, the effect only of curiosity. - Was not this passion the
+principle of our affection for the fair, would we, after a few months of intimacy with them, grow insensibly weary, indifferent, and inconstant? At that time, those reflections made but a weak impression upon me. - No argument could have persuaded me that my passion for the countess would not have outlived my possession of her. At what season of life are not men children! We wish for a toy; do we get it, we pant .after another - Thus, from the hour we think to the hour we die, we are under the irresistible sway of folly.
+
+The storm having subsided, the company returned to the diningroom, and renewed their devotions to Bacchus and
+pleasure.  Soon after they left the castle, and we retired to rest. 
+
+Ambition suggested me that Mrs. Guery’s fortune was a prize worthy of being wished for - worthy of being obtained, though at the expense of honour - that honour, which forbids to express what we do not think, appeared to me invented by knaves for the purpose of cheating with ease the credulous of their purse or reason. Concluding it was not a real virtue, I resolved to support the part I had began, and to convince Mrs. Guery that I felt what I spoke. Who will be true, when sincerity can injure him either in his fortune or reputation? As I could not, without belying my experience, admit the possibility of such a self-denial in men living in society, I saw no meanness in the hypocrisy by the mean of which I was to become great and opulent. Had the person of Mrs. Guery been as unpleasant as it was desirable. Virtue would have told me not to sacrifice her happiness to my ambition, and perhaps would I not have opposed her triumph; but certain that Mrs. Guery would never repent her confidence in me. Virtue was silent, and self-interest confirmed my resolution.
+
+To carry this feigned amour with the looks of truth, and secrete it from the countess, required an art I was afraid not to be master of. Mrs. Guery was often with her; at that time, could I act in character without displeasing either of them? the countess had already reproved me for my attention to Mrs. Guery - Would not Mrs. Guery be, as naturally, provoked at an indifference I should causelessly affect? However modest and reserved women are, their pride is always delighted with a public homage. Coquettes would be an unknown being, would men pay, but in a tete a tete,their tribute of flattery and adorations.
+
+Rather than to give an hour of uneasiness to the countess, I would have chosen to sink again in my former station, and vegetate, all my life in a disgraceful obscurity. I hoped her
+virtue would, at last, conquer over her passion, and change it into friendship. The woman who had so often come off victorious over love and nature, could not long indulge a sentiment she was determined never to gratify.
+
+“When her reason, assisted by absence, or the scarcity of our private conversations, shall resume its power, the countess will applaud my behaviour, and countenance my ambition. - Till
+that day comes, I must dissemble - let me lose the fortune I covet - it will be no loss if the countess is happy.” -
 •
 r
 After that Soliloquy, I refieded on
@@ -1242,7 +1094,6 @@ f
 laughed at. This alteration was not the only one the conntefs operated in my mind. I mistrusted what I heard every day against the fidelity of women, and undertook their defence openly,
 whenever their conduct was impeach
 #
-
 • * V
 ✓
 “You will change your opinion when you go to London, Said my friends,
@@ -1277,20 +1128,11 @@ struck my senses wjth his Soporific band;
 t
 I gave way to steep, and awoke only when a Servant came to let me know that my
 lord was ready to Set out for Lincoln.
-\
-/.
-I
-«
-%
-✓
-4
-L E TT
 
-/
-[ '53 J J
-S
-LETTER XVI
-\
+---
+
+##LETTER XVI
+
 A S in our - way to Lincoln we ^ ^ rode within a mile of Mr. Bei' '
 lord C -- was tempted to go
 m.d. inquire after the ’squire’s health,
@@ -6401,7 +6243,6 @@ y
 remely fond of piquet, played high,
 1
 i was commonly very successful. rtune having forsaken her the eveni
-
 ; before, she lost five hundred pounds on her word. Though the Sum was onsiderable, she might be glad to; p it — Gold, Francis, is a great auxi ry against the virtue of women — en their opulent husbands, Sell daily
 V:
 : integrity for it, why should they t adore the same deity, and Sacrifice
