@@ -8,6 +8,7 @@ source: UPenn Digital Collection of British and American Fiction, 1660-1830
 publication-date: 2018
 toc:
 - Half Title Page
+- Volume I
 - Full Title Page
 - To the English Ladies
 - Letter I
@@ -31,6 +32,8 @@ toc:
 - Letter XIX
 - Letter XX
 - Letter XXI
+- Letter XXII
+- Letter XXIII
 ---
 
 ---
@@ -45,6 +48,7 @@ This text has been OCRed and hand-corrected from the [digital surrogate](http://
 PALINODE.</p>
 
 ---
+<a id="volume-i" />
 
 <a id="full-title-page" />
 
@@ -1082,359 +1086,147 @@ virtue would, at last, conquer over her passion, and change it into friendship. 
 
 “When her reason, assisted by absence, or the scarcity of our private conversations, shall resume its power, the countess will applaud my behaviour, and countenance my ambition. - Till
 that day comes, I must dissemble - let me lose the fortune I covet - it will be no loss if the countess is happy.” -
-•
-r
-After that Soliloquy, I refieded on
-0
-the authority a Sensible woman has over the passions of a young man. From a theorical knave, longing for the practical part, I had been, by degrees, forced into a delicacy of Sentiments I had not ' the idea of. Had not the virtue of the
-countess been put to the test by the Severe
-[ 149 ]
-vere trials it had undergone, she would have had no influence over my morals — I would have attributed her virtue to my stnshilfulness, or want of a proper opportunity, and continued an unbeliever to female chastity.. My esteem commenced my reform; I blushed at the errors I had entertained, and well come at last principles I had till then
-f
-laughed at. This alteration was not the only one the conntefs operated in my mind. I mistrusted what I heard every day against the fidelity of women, and undertook their defence openly,
-whenever their conduct was impeach
-#
-• * V
-✓
-“You will change your opinion when you go to London, Said my friends,
-, bantering at my faith in woman’s virtue.
-/'■ [ IC ] ' -■
-tue. There llbertinism Sways with the more liberty, that, like villainy, it is eau ly concealed under the mask of honour, and that all adluated by the Same interest of pashng for the reverie of whiat they are, have agreed to take that mash for the identity of the person who wears it. Hence it happens that a really virtuous woman is often, from the coquet try of her manner, mistaken for a voluptuary, whilst the drapery of decency ranks the voluptuary among the devotees to virtue. A husband is Seldom beforehand with the public in the Secret of his wife’s intrigues. If the public is imposed upon, there is ten to one that the husband shall not know his disgrace; or that if he knows it, he will not dare to complain through the fear of not being believed. This certainly,
-Mr,
-[ II ]
-kfr. Rambler, has made the outward ppearance of the v/offiifen So extremely nodest, that, unless they be Surprised n the very ad: of infidelity, a world of )olite and Sensible people will always ide for them, and Swear to their con lancy. A woman is like a patriot. Soong as the former commits no indis
-■retion, and the latter accepts of no
-«
-or peerage, both are esteemed,
-m.d. respeded -- -- -- from the hour, only,.
-they betray themselves, they are hang sd up to the Scorn of the public.” -- -- *
-these refiedions against women con
-irmed me the more in my esteem ot them. Were they Such libertines as
-they were represented, they could not
-be So stridly upon their guard as not
-to, 'be forcibly themselves now and then;
-Impru*
-[ 15^ 1
-Imprudence is the attendant of vice — ' What a torment to belie perpetually our nature -- -- -- -- -- to look, to talk, to
-drcss, in opposition to our desires!
-ri *
-Such a Sacrifice for a few hours of a stolen unenjoyed bliss — for the Sake of the esteem of a public. So often wrong in their judgement! -- -- -- -- -- that discretion
-9
-s
-appeared to she an absolute chimaera —
-I thought no more, Francis; Morpheus
-#
-struck my senses wjth his Soporific band;
-t
-I gave way to steep, and awoke only when a Servant came to let me know that my
-lord was ready to Set out for Lincoln.
+
+After that soliloquy, I reflected on the authority a sensible woman has over the passions of a young man. From a theorical knave, longing for the practical part, I had been, by degrees, forced into a delicacy of sentiments I had not the idea of. Had not the virtue of the countess been put to the test by the severe trials it had undergone, she would have had no influence over my morals - I would have attributed her virtue to my unskillfulness, or want of a proper opportunity, and continued an unbeliever to female chastity. My esteem commenced my reform; I blushed at the errors I had entertained, and welcome at last principles I had till then laughed at. This alteration was not the only one the conntess operated in my mind. I mistrusted what I heard every day against the fidelity of women, and undertook their defence openly, whenever their conduct was impeached. 
+
+“You will change your opinion when you go to London, said my friends, bantering at my faith in woman’s virtue. There libertinism sways with the more liberty, that, like villainy, it is easily concealed under the mask of honour, and that all actuated by the same interest of passing for the reverie of what they are, have agreed to take that mask for the identity of the person who wears it. Hence it happens that a really virtuous woman is often, from the coquetry of her manner, mistaken for a voluptuary, whilst the drapery of decency ranks the voluptuary among the devotees to virtue. A husband is seldom beforehand with the public in the secret of his wife’s intrigues. If the public is imposed upon, there is ten to one that the husband shall not know his disgrace; or that if he knows it, he will not dare to complain through the fear of not being believed. This certainly, Mr. Rambler, has made the outward appearance of the women so extremely modest, that, unless they be surprized in the very act of infidelity, a world of polite and sensible people will always side for them, and swear to their constancy. A woman is like a patriot. So long as the former commits no indiscretion, and the latter accepts of no pension or peerage, both are esteemed, and respected - from the hour, only, they betray themselves, they are hanged up to the scorn of the public.” - 
+
+These reflections against women confirmed me the more in my esteem of them. Were they such libertines as they were represented, they could not be so stricty upon their guard as not
+to be forcibly themselves now and then. Imprudence is the attendant of vice - What a torment to bely perpetually our nature - to look, to talk, to dress, in opposition to our desires! Such a Sacrifice for a few hours of a stolen unenjoyed bliss - for the sake of the esteem of a public. So often wrong in their judgement! - that discretion appeared to she an absolute chimaera - I thought no more, Francis; Morpheus struck my senses with his soporific band; I gave way to sleep, and awoke only when a servant came to let me know that my lord was ready to set out for Lincoln.
 
 ---
 
 ##LETTER XVI
 
-A S in our - way to Lincoln we ^ ^ rode within a mile of Mr. Bei' '
-lord C -- was tempted to go
-m.d. inquire after the ’squire’s health,
-/
-He deserves, Rambler, I should idd insult to punishment.” —
-I
-And he bid the postilion to drive to ' knson hall. A Servant came to the; ate, and told his lordship, that his' naster was sick, in his shed, and had een ordered, by the physicians to See 0 company,
-H 5 what’s
-[ j54 ■ ]
-“what’s the matter with him : I wa: assured last night that he had beei whipped almost to death in my park. —
-I
-Is it true
-No, my lord. He fell frobi hi: horse, received Some contusions in hi: breast —
-L
-f
-On his back, you mean, don’ you
+As on our way to Lincoln we rode within a mile of Mr. Benson, 
+lord C----- was tempted to go enquire after the ’squire’s health.
+
+He deserves, Rambler, I should add insult to punishment.” - 
+
+And he bid the postilion to drive to Benson hall. A servant came to the gate, and told his lordship, that his master was sick, in his shed, and had been ordered, by the physicians to see no company. 
+
+“What’s the matter with him: I was assured last night that he had been whipped almost to death in my park. - Is it true? -
+
+"No, my lord. He fell from his horse, received some contusions in his breast -
+
+"On his back, you mean, don’t you?" - 
+
 And he burst into laughter.
-“It is well it is no worse, refiimec. his lordship; they alb Said at the casth that your master deserved Such a lesson
-, — Tell him that I was amazed to sine
-\
-that no body pitied him. Men ant women were pleased with the Sad disaster
-he had met with. I thought ht
-. • • ••
-wa!
-■ ' t "'sr ]
-ivas loved, and he is hated by all his
-leighbours! Fail not, John, to impart
-\
-0 him what Ishave Said, that he may turn t to advantage, when he recovers.” —
-Then his lordship laughed again, and'l ode away.
-#
-t
-“This visit, Rambler, will prove
-\
-nore effectual than the blows you Irucki be he ever So base, he will not lare to face public contempt. T hope
-i
-shave got the county rid of that plague )f Society. How artfully he obtained siytriendship and confidence! The lan » juage of honour and virtue stowed per » ictually from his lips, — r — to ast the tnave, he put on the garb of honesty— — unfuspicious I took him for vhatshe would be. — Who would have
-Seen[
-[ ]
-Seen a Scoundrel in the part he per
-I
-formed! — Would I had had that Sa gacity! — It is a torment. Rambler., t( disesteem the woman we love. — Couh you know what 1 have Suffered, yoi would pity me. Indeed, had I an ene my, I would have the humanity not n wish him to be jealous. Any other evi
-»
-a man of courage may Support; bu jealousy braves philosophy, and is no always conquered by religion. — Yoi are young. Rambler, profit by my experience. If ever you marry, beware O]
-t
-the man who will talk you into suspicions of your wife’s conduct.. —
-he be true, that man is your enemy, Soi he beggars you of the Sole illusion which can make your life happy. — That consciousness of having a virtuous wife, k the greatest bliss we enjoy. — Woe to
-» him
-[ '57 ]
-him who attempts to steal it from us, el there by Seducing her affections, or fian^ dering her good name!”
-Had the honest lord C -- -- -- -- -- looked
-upon me, when he pronounced the imprecation, he would undoubtedly have discovered in my features, the Symptoms of guilt. To free me of that troublesome qualm of conscience, and of the fear of being understood, I gave a gayer turn to the conversation, and told his lordship the judgement most of nay friends had formed of the women.
-“That there aie women. Rambler, who deviate from the paths of honour, I allow, but that their number is considerable, I deny : their love for dissipation and flattery is as natural, and may be as
-innocent,,
-0 I S ® -' ] '
-f
-innocent, as that of a man of merit for the praises of the public, or that of an. excellent adbor for the applauses of his audience.. The Seeming levity of Some.
-I
-of the fair, is only an air, which they assume, either to comply with fashions, or keep alive, the affections of the men they esteem. That levity has no influence over their morals, totally independent of the external form they think, proper to assume. None but fools will; judge of the virtue of the women from their dress, gesture and conversation: those fancy or opinion dilates, and have no other tendency than to Set off the charms they possess, and make them more conspicuoussy graceful and lovely. Believe me. Rambler, I have in the Spring of my life frequented the comrpany of the women, and foupd, after
 
-[ >59 ]
-ter Several years of intimacy with them;, that though their behaviour was marked.
-with gaiety' and thonghtleffness, their actions were always consistent with virtue. If a few are carried off by the storm of passion into the arms of a lover, it is more nature’s fault than them own — they are to be pitied and forgiven. -- -- r“
-“few, you say, my lord : Yet; what woman is Safe against the tongue
-of Slander? -- -- -
-%
-w
-“Slander, Rambler, is no proof of a woman’s guilt. When folly and preju
-It
-dice pronounce their Sentence against her, her virtue is like the Sun, which never shines brighter but when it has been
-darkened by an invidious cloud. That
-you
-%
-♦
-1 ]
-you may have no doubt of the pudicity of the fair Sex, and of the malice of their vile traducer?, try your fortune among them. You have a figure, a Sstape, a complexion, which promise you fuccess. Make a few trials' —
-“Indeed, I will. — I have a mind to begin with Mrs. Guery. —
-%
-^ %
-“The world has not Spared her— —
+“It is well it is no worse, resumed his lordship; they all said at the castle that your master deserved such a lesson - Tell him that I was amazed to find that no body pitied him. Men and women were pleased with the sad disaster he had met with. I thought he was loved, and he is hated by all his neighbours! Fail not, John, to impart to him what I have said, that he may turn it to advantage, when he recovers.” -
 
-She has hiad her portion of censure, and I dare say she is as virtuous a woman as ' ever existed — try. —
-\
-“I am determined. — I hope you will let nobody into this Secret. —
-No, not even the countess. She
-f
-might warn your enemy of your designs,
-f
-k I
-and
-f ]
-V
-and prevent your victory. Indigna, tion must not arm in her favour, —
-To virtue only must she trust her defence, — and be indebted for her triumph.
-/
-“Do you sincerely think, my lord, that virtue may gain the day against love? —
-*
-“It depends upon the more or leis degree of lensibility in women. In Some, love is a passion, — in others, a sent
+Then his lordship laughed again, and rode away.
 
-timent. — This distindion tells you when virtue may win or lose. Did passion lead women into a forgetfulness of their duty, I would be tempted to pardon
-them. — Sentiment is not an excuse:
-«
-With it, reason is not a stave to feelings. — The woman who has the power
-of
-I 16z J
-f refiefling, cannot Surrender without crime. As to. those who yield Solely to the charm of pleasure, they are as com temptible as these wretches of our own; Sex, who go to a bagnio, to riot in the arms of a woman, they never law — avoid them, Rambler; as you would deadly'poison, — they are a disgrace to human nature.” * -- -- -
-As his lordship finished; the last
-words, a post-chaise and four attended
-$ *
-by three men, rode by us. A Screaming, which Seemed to come from afe
-I
-male voice, attracted our attention.
-“There is an unhappy woman in
-/
-that chaise, Rambler, let us delivei her.” — >
-I. hac
-4
-/
-I ]
-I had no need to be stimulated to dol
-good aft, ion. -- -- It was impossible,
-lot to be a man in company with his ordship. -- -- -- He would have inspired
-\
-ruffian with honour and generosity,.
-%
-)ur horses being the Swiftest, we Soon
-(vertook the chaise; and lord C -- -- --
-vith the tone of authority, bid men and, lostilions to stop. The blinds of the : haise were immediately pulled down vith a -- -- -- -
-“Dam — on!! the matter ^
-Vho. dares to stop me ^
-/
-“Help — help! Save me— — I am indone.”
-/
-Lord W -- -- -- ^ was struck, silent, mo?
-ionless at the sight of his uncle.
-“What
-t 1^4 1
-“What lady have you got there sir? —
-j
-“Nobody worthy your concern, n lord. -- --
-f “She IS unhappy, and not wordiy^ my concern I -- -- -
-“She is not unhappy. —
-“I am “I am~for heaven’s salir
+“This visit, Rambler, will prove more effectual than the blows you struck. Be he ever so base, he will not dare to face public contempt. I hope I have got the county rid of that plague of society. How artfully he obtained my friendship and confidence! The language of honour and virtue stowed perpetually from his lips, - to act the knave, he put on the garb of honesty - Naturally unsuspicious I took him for what he would be. Who would have seen a Scoundrel in the part he performed! - Would I had had that sagacity! - It is a torment, Rambler, to disesteem the woman we love. - Could you know what I have suffered, you would pity me. Indeed, had I an enemy, I would have the humanity not to wish him to be jealous. Any other evil a man of courage may support; but jealousy braves philosophy, and is not always conquered by religion. - You are young, Rambler, profit by my experience. If ever you marry, beware the man who will talk you into suspicions of your wife’s conduct. - Should he be true, that man is your enemy, for he beggars you of the sole illusion which can make your life happy. - The consciousness of having a virtuous wife, is the greatest bliss we enjoy. - Woe to him who attempts to steal it from us, either by seducing her affections, or flandering her good name!" 
 
-protect a virtuous maid.” —
-Lord C — had no more patienc
-He ran to the door of the chaise, an forced it open.
-“What, ^ -- -- Youth, innocence ar
-i
-beauty, could not move thy pity ^ —
-Ba
-r 165 ]
-rbarian! — what heart hast thou? — — eak freely, madam; are you carried ‘ against your will? -- -- -
-“lam.” - ■ '
-\
-And a stood of tears gushed out from
-I
-A
-: eyes.
-t
-%
-“Though I am the uncle of that irthless fellow, mistrust not my honour,
-[low me, madam — ril be your guard d protector— —
+Had the honest lord C----- looked upon me, when he pronounced the imprecation, he would undoubtedly have discovered in my features, the symptoms of guilt. To free me of that troublesome qualm of conscience, and of the fear of being understood, I gave a gayer turn to the conversation, and told his lordship the judgement most of nay friends had formed of the women.
 
-X
-“You, his uncle! -- -- -- is this a new
-ceit? -- What am I to believe
->
-“Emily! Dear Emily, leave me
-t.” -- -- --
-And
-[ i66 ]
-✓
-And he took hold of his hands. A tear <drop’d on his cheek. -- -- --
-t
-“My lord, 1 adore Emily : 1 cannot
-part from her —
-) “You love, and could make her
-miserable? -- -- Her despondency you
-have caused- -- -- -- you love! Is it
-by an ad: cf hatred you show your af fe<5tion? — Does he love you, madam? -- -- --
-“Before he stole me away from my family, I thought he loved me — I have a mother, a father, who are now labouring under mortal anxiety — their ignorance of my fate is a keen torment to them — their misery is my own — i am in an agony of Sorrow — My
-lord
-I 3
-0
-3rd -- -- am a daughter -- -- -- forgive my
-ears -- -- -- -
-Shed them, tender, generous girl ' — With yours I will mingle mine — —.
-)! nephew, what wrongs have you otto expiate? your inhumanity con qunds me -- -- -
-I
-# »
-“Passion blinded my reason— —
-\
+“That there are women, Rambler, who deviate from the paths of honour, I allow, but that their number is considerable, I deny: their love for dissipation and flattery is as natural, and may be as innocent, as that of a man of merit for the praises of the public, or that of an excellent actor for the applauses of his audience. The seeming levity of some of the fair, is only an air, which they assume, either to comply with fashions, or keep alive, the affections of the men they esteem. That levity has no influence over their morals, totally independent of the external form they think, proper to assume. None but fools will judge of the virtue of the women from their dress, gesture and conversation: Those fancy or opinion dictates, and have no other tendency than to set off the charms they possess, and make them more conspicuously graceful and lovely. Believe me, Rambler, I have in the spring of my life frequented the company of the women, and found, after several years of intimacy with them, that though their behaviour was marked with gaiety and thonghtlessness, their actions were always consistent with virtue. If a few are carried off by the storm of passion into the arms of a lover, it is more Nature’s fault than them own - they are to be pitied and forgiven. -
 
-“Passion inspires not villainy in a
-loble heart -- talk not of passion — *
-ibertinism was thy guide -- where was
-ou going? — ^ —
-I
-“To my state in Yorkshire —
-Does not the choice of thy retreat
-letray thy meanness ^thou lovest!
-- — Too
--- — —
-I
-4
-t i68 ]
-— Too credulous Emily, I pity you
--- -- Had thou not a hand to offer to
-Emily with the tender of thy heart? —
-%
-“I was afraid of your displeasure — she is not noble — '
-• t
-“Is she not virtuous? — Rather than to have alarmed her virtue, or injured her reputation, thou shouldst have Scorned my dilpleasure — Thou a lover! — thou art a rake, below my notice, and the
-.9
-esteem of Emily_______come, madam, I
-will give you back to the arms of your
-■V
-parents — — this man does mot deserve
-4
-you -- -- -- --
-t
-Emily, with a sigh, arose to leave the chaise, when Lord W — stop’d her by the arm.
-“Stay,
-W 4 ^
-/. '
-[ 1% ]
-r ■
-♦
-“Stay, dear Emily, we can yet be appy. The fear of losing you, ont
+“A few, you say, my lord: Yet; what woman is safe against the tongue of slander? -
 
-i, caused this false step -- -- -- -- 1 in
-/
-%
-to keep you at W -- -- -- -- -- ^ — hall
-11 I had obtained my uncle’s consent,
-— Will you forgive, if his lordship ap roves of you for his niece
-/
-Now, I know thee for my nephew,
-will you consent to take him for bet: r and worse? -- --
-“Good God! -- -- -- -- is it poshble? — •
-ow lucky this event! -- -- -- have I heard
-rell? -- -- am I not deceived ^ —
-4 V
-And she alternately darted her looks : my lord and her lover in Search of uth.
-vol. L I « I
-[ lo] ]
-“doubt no longer -- -- -- -- -- -- sincerity is
-in your countenance — I am happy— —.
+“Slander, Rambler, is no proof of a woman’s guilt. When folly and prejudice pronounce their sentence against her, her virtue is like the sun, which never shines brighter but when it has been
+darkened by an invidious cloud. That you may have no doubt of the pudicity of the fair sex, and of the malice of their vile traducers, try your fortune among them. You have a figure, a shape, a complexion, which promise you fuccess. Make a few trials - 
 
-\
-I cannot express, Francis, the joy of
-Emily, and the thanks she gave to her
-/
-generous protector— — leave to thy feni
+“Indeed, I will. - I have a mind to begin with Mrs. Guery. - 
 
-Sibility the picture of her feelings. — Adieu,
-I
-*
-r
-t
-I
-\
-♦
-i
-». I
-i
-«
-\
-L E X
-\
+“The world has not spared her - She has had her portion of censure, and I dare say she is as virtuous a woman as ever existed - try. -
 
-\
-/
-I
-I i 1
-0
-i
-I
-$
-\
-/
-h
-LETTER XVII
-t
-/
-■' 0 A FTER having enjoyed the grati
-tilde of the lovers, and presented
-meto Mils Clinton, lordc * desired them
-to follow him to Lincoln, where he
-would stay but a few hours.
-“Is not my niece a charming creature, Rambler — A beauty in dis tress is the most moving Spectacle our eyes can behold — — the tears of .Dmily would have forced my consent, had I not long ago been resolved to give it — *
-I z was
-/
+“I am determined. - I hope you will let nobody into this secret. - 
 
-\
-t
-\
-[ ]
-‘‘ Was you not, my lord, a stranger to their amours?
-♦
-I was not. Rambler. I loved my nephew with too much affection to be careless of his conduct. His valet de chamber informed me of his master’s tastes, manners and pleasures. By that means I learned that he was passionately fond of miss Emily Clinton. As this intelligence gave me no light into her charade, r or family I was alarmed. I wrote to a friend; and his answer re moved my fears. miss Clinton is the only daughter of a rich merchant in
+No, not even the countess. She might warn your enemy of your designs, and prevent your victory. Indignation must not arm in her favour. - To virtue only must she trust her defence, - and be indebted for her triumph.
+
+“Do you sincerely think, my lord, that virtue may gain the day against love? -
+
+“It depends upon the more or less degree of sensibility in women. In some, love is a passion, - in others, a sentiment. - This distinction tells you when virtue may win or lose. Did passion lead women into a forgetfulness of their duty, I would be tempted to pardon them. - Sentiment is not an excuse: With it, reason is not a slave to feelings. - The woman who has the power of reflecting, cannot surrender without crime. As to those who yield solely to the charm of pleasure, they are as comtemptible as these wretches of our own sex, who go to a bagnio, to riot in the arms of a woman, they never saw - avoid them, Rambler, as you would deadly poison, - they are a disgrace to human nature.” -
+
+As his lordship finished the last words, a post-chaise and four, attended by three men, rode by us. A screaming, which seemed to come from afe male voice, attracted our attention.
+
+“There is an unhappy woman in that chaise, Rambler, let us deliver her." - 
+
+I had no need to be stimulated to do good action. - It was impossible not to be a man in company with his lordship. - He would have inspired ruffian with honour and generosity. Our horses being the swiftest, we soon overtook the chaise; and lord C----- with the tone of authority, bid men and, postilions to stop. The blinds of the chaise were immediately pulled down with a -
+
+“Dam - on! what's the matter? - Who dares to stop me? 
+
+“Help - help! Save me - or I am undone.”
+
+Lord W----- was struck, silent, motionless at the sight of his uncle.
+
+“What lady have you got there, sir? -
+
+“Nobody worthy your concern, my lord. -
+
+“She is unhappy, and not worthy of my concern!
+
+“She is not unhappy. -
+
+“I am - I am - for heaven’s sake protect a virtuous maid.” -
+
+Lord C----- had no more patience. He ran to the door of the chaise, and forced it open.
+
+“What? Youth, innocence and beauty, could not move thy pity? -
+
+Barbarian! - what heart hast thou? Speak freely, madam; are you carried off against your will? -
+
+"I am."
+
+And a stood of tears gushed out from her eyes.
+
+“Though I am the uncle of that worthless fellow, mistrust not my honour, follow me, madam - I'll be your guard and protector -
+
+“You, his uncle! - is this a new deceit? - What am I to believe? -
+
+“Emily! Dear Emily, leave me not." -
+
+And he took hold of his hands. A tear drop'd on his cheek. - 
+
+“My lord, I adore Emily: I cannot part from her -
+
+“You love, and could make her miserable? - Her despondency you
+have caused - and you love! Is it by an act of hatred you show your affection? - Does he love you, madam? -
+
+“Before he stole me away from my family, I thought he loved me - I have a mother, a father, who are now labouring under mortal anxiety - their ignorance of my fate is a keen torment to them - their misery is my own - I am in an agony of sorrow - My lord - I am a daughter - forgive my tears -
+
+"Shed them, tender, generous girl - With yours I will mingle mine - O! nephew, what wrongs have you not to expiate? your inhumanity confounds me -
+
+“Passion blinded my reason -
+
+“Passion inspires not villainy in a noble heart - talk not of passion - libertinism was thy guide - where was you going? -
+
+“To my state in Yorkshire -
+
+"Does not the choice of thy retreat betray thy meanness? - Thou lovest! Too credulous Emily, I pity you - Had thou not a hand to offer to Emily with the tender of thy heart? -
+
+“I was afraid of your displeasure - she is not noble -
+
+“Is she not virtuous? - Rather than to have alarmed her virtue, or injured her reputation, thou shouldst have scorned my displeasure - Thou a lover! - thou art a rake, below my notice, and the esteem of Emily - Come, madam, I will give you back to the arms of your parents - this man does mot deserve you. - 
+
+Emily, with a sigh, arose to leave the chaise, when Lord W----- stop’d her by the arm.
+
+“Stay, dear Emily, we can yet be happy. The fear of losing you, only, caused this false step - I intended to keep you at W-----hall till I had obtained my uncle’s consent. - Will you forgive, if his lordship approves of you for his niece? -
+
+Now, I know thee for my nephew, - will you consent to take him for better and worse? -
+
+“Good God! - is it possible? - How lucky this event! - have I heard well? - am I not deceived? -
+
+And she alternately darted her looks at my lord and her lover in search of truth. 
+
+“I doubt no longer - sincerity is in your countenance - I am happy. -
+
+I cannot express, Francis, the joy of Emily, and the thanks she gave to her generous protector - Ileave to thy sensbility the picture of her feelings. - Adieu. 
+
+---
+
+## LETTER XVII
+
+After having enjoyed the gratitude of the lovers, and presented
+me to Miss Clinton, lord C----- desired them to follow him to Lincoln, where he would stay but a few hours.
+
+“Is not my niece a charming creature, Rambler - A beauty in distress is the most moving spectacle our eyes can behold - the tears of Emily would have forced my consent, had I not long ago been resolved to give it -
+
+"Was you not, my lord, a stranger to their amours?
+
+"I was not, Rambler. I loved my nephew with too much affection to be careless of his conduct. His valet de chamber informed me of his master’s tastes, manners and pleasures. By that means I learned that he was passionately fond of miss Emily Clinton. As this intelligence gave me no light into her character or family I was alarmed. I wrote to a friend; and his answer re moved my fears. miss Clinton is the only daughter of a rich merchant in
 the city. Having no pride, I made no
 /
 attempt to oppose an attachment, which could not turn to the disgrace of my nephew; but his silence making me apprehensive for emily’s honour, I
@@ -1474,7 +1266,6 @@ f
 L 175 ]
 putation, and opens them a way to new conquests. They are monsters, the more dangerous in a community that the law takes no rjotice of their guilt. Were Seducers, like felons, sub jeded to fines, or corporeal punishment, or condemned to wed the woman they have undone, nature would
 resume her rights in their hearts, and
-»
 vice give way to virtue, — I wonder there are So many chaste women, when
 \
 I consider the gentleness of their disposition, the number and the audacity of their tempters. The perpetual Satires against them. Rambler, prove only the baseness of their fianderers: you
@@ -1484,7 +1275,7 @@ own
 I
 I ^70 J
 I
-own depravity and unworthiness. Be » Sure that the man, who ascertains that women have no virtue, has never frequented but the dregs of that Sex, and is below the contempt of the Sensible and rational. -- -- --
+own depravity and unworthiness. Be Sure that the man, who ascertains that women have no virtue, has never frequented but the dregs of that Sex, and is below the contempt of the Sensible and rational. -- -- --
 “From the a6livity of your nephew’s pashons, I dare Say that miss clinton’s virtue has been put to the test -- -- -
 \
 %
@@ -1494,17 +1285,11 @@ had he triumphed, ten to one he would have abused his victory- -- -- -- -- -- --
 cannot
 [ 177 J
 I cannot conceive how ymuth can be So ungenerous as to devote to infamy, the woman, who, confiding in their honour, has made them happy I My Soul shudders at the thought of it. — ^
-¥
-/
-i
-✓
-15 LETS
-<
-t 1
-'4
-f
-LETTER xvin.
-^ i
+
+---
+
+## LETTER XVIII.
+
 HE principles of lord C -- -- -- -- -- -- -^
 made me a convert to honour and virtue: I blushed for my past ingratitude, and Swore never to be guilty of it again. After I had uttered that, oath, it Seemed as if my heart had been lightened of an intolerable weight: I
 could think calmly of the charms of the Gountefs, recollect each beauty without a sigh for my loss, without a wish for repairing it.
@@ -1637,33 +1422,16 @@ tence I have pronounced — —
 /
 “It is a perhaps -- -- -- -
 ‘‘ You are not a flatterer, my lord — "
-♦ % '
-^ With
-t
-/
-/
-V
-*
-I isa j
-/
+
 “With you, Emily, I must be true “— the countess is allowed to be the first, beauty in the kingdom — Would the dutchess hesitate only one minute between fou both — llie will not.” —
 The pride of Emily got the better of her prudence. She paused — “thea Said — -- -- -
 S
 “I will See the countess: bid the postilion drive on.” — —
 At the next village I took fresh horsesy and left my own,
-/
-t
-V /
-LET
-€
-T ’89 ]
-r -
-• r. - *
-■*, i • •
-\
-;
-'' h
-L E T T E R XIX
+
+---
+
+## LETTER XIX.
 /
 l^he time approaching when Emily could no longer be deceived,
 ly heart gave way to fear, ^ and my >ngue began to falter. In vain did I
@@ -1800,16 +1568,10 @@ Emily, and Secured me her confidence.
 She stepped cheaifully into the chaise,
 and answered the language of my passion. The horses having gone agreeably to the rate I had didtated, it was near twelve o’clock when we arrived at
 Stilton. ♦
-%
-%
-LET.
-A
-%
-[ J
-. t
-/
-. '
-LETTER XX
+
+---
+
+## LETTER XX
 H E landlord and his daughter were the only persons up at the
 V
 inn where we stopped. They came to the chaise, and the former told us that my Servant had commanded every innkeeper in the place to let us know that
@@ -1991,14 +1753,10 @@ I do love you —
 Confirm the word with one kiss — it will Seal my pardon.” -«-
 Emily gave that kiss, and her fears gave way again to confidence and lovcr
 I
-\
-I
-LET
-V ' •»
-[ 213 1
-. —
-/■
-LETTER XXL
+
+---
+
+##LETTER XXI.
 I
 H E incidents of the day had So effedlually favoured me, that EU.
 
@@ -2173,34 +1931,10 @@ villainy! — — —,
 I feigned
 [ 225 ]
 I feigned not to hear; and bidding Lucy not leave my lady, I went to my room with the looks of innocence.
-/
-f
-(
-1
-*
-4
-»
-V
-i
-f
-\
-/
-• \
-— ft
-i
-I
-LET;
-« •
-•v
-✓
-•*
-0
-.
-«
-[ *26 ]
-X
-/
-LETTER xxri.
+
+---
+
+##LETTER XXII.
 f T is needless, Sir, to tell you the re
 ssedlions I made upon my disap
 (
@@ -2325,22 +2059,11 @@ X
 “Yes, madamd* -- -- -- -- -
 (
 And they drove to Lincoln,
-I
-I
-4
-\
-/
-I
-- LET[
-[ ]
-\
-I f
-LETTER XXIII 7}
-A
-'j
-i
-4
-V
+
+---
+
+## LETTER XXIII. 
+
 A S Emily had rode above three ]
 ^ ^ hours in the dark the night before, I was in hopes that she would not ] perceive the deceit put upon her; but ■' an unlucky post ereded in a cross way betrayed me. Reading distindlly upon it road to Lincoln, her panic terrors changed into a real fear. She insisted upon my coming to her. ~
 “Read, my lord — Will you boast your honour again? —
@@ -2419,806 +2142,10 @@ Hearing a carriage riding by, she cried out with all her might — Lord C — �
 made me — Emily has forgiven -- -- May
 you. Sir, meet an Emily, and be, more worthy of her than I!” -
 t
-END or THE FIRST VOLUME.
-0
-% %
-\
-(
-* f
-s
-^ V
-I
-. ' • '
-»
-w
-C
-. /
-4 ‘
-, 4
-• '
-\
-\
-\
-/
-/
-»
-V
-. ^ (
-■* ". rx
-% ' •
-- S' '•
-- r “'
-\
-✓
-i
-, /
-I \
-t
-f
-\
-I
-/
-/
-t
-I
-. Z
-* % * ‘ ^
+END of THE FIRST VOLUME.
 
-V -- ^ V
-'V'v :
-O
-. .*^ *
-- " ' ■ V. "
-■ \ ■' -'
-* i
-\
-\
-¥ *
-f
-t
-_ ' J
-r
-■ ‘r'i* ■
-XL ' -.
-V
-- ir
-. » *
-* " I ‘ S.
-4 '
-". y
-.
-', ‘i .A <^ ^ *^ * *^ /
-• •, V
-A" •- ■• 't r
-rri \'.a
-cr -
-h. c^.: '• ■ '' '
-CA *
-^ "
-— '
-• • •*
-A' • I
-*-;. «
-*; '-'• V >•
-'
-•/: ^
-* .^ 7.
-‘. 0
-?• •
-k • • •
-"ja '■ ■
-A
-\
-\ • • J -
-•i>ym
-aamab^\>. s
-■-
--
-- • - ^ ' • *
-- •' ’, \ < ■ '■ ■' ■ lv^aaffs^
-V,, '; -. .■•■;. - •' ■" Lc
-- ■ ■ ^ _: ct,, '- -^ ' ■■
-*. ■ - ^ ■" v’ h"' ' - ■>■''■' t .- '-'^. ' - ■
-. • ■ - T. ■•. ■ * ■ C' ' -- ' - • •/
-. T- -- -. / ■ ■.,. ' ' ■-'■■.•. '; : .: „ ^ N'
-''' ' * • “.'••■ vc. utv^/ tc' '■''■' ■ ■
-, -- g; ’; ' :, •.. ^ Wriri' -- ',.
-■‘. ' ■ ■ ■■'■; ■^ ' A... .... ■'. ' ■ '.. -
-» '*' * « ' ^ -. ■ ■ ' ■ ■*
-■■ ■ ^ : V /- : /; ■ '■. - : '■
-•• ■'. ■ -- r. 't. *
-■>. - ■ ■. ■ > ■ ',. " ■
-.. ^ - ■, A ■ ^ ^ ^
-'t.. • ■
-^ ' ''' ' ^ ^ ' * ' ' ' ' ' ' ^ '-'^ '*" '' ^ \ ' '
-A '* .' V *• ■ ' * ' -'.. /*■■■■*■'*'■- - -■ :
-^ i ■. ■; \ ■ '.- .’'■ ■ Vtec'o' ' C
--- f ' V • .- - '%• •; •. '.
-r ' ^ ^ :,. - ■ ^ .D -. V ■. S ■.
-._ ‘ F ^ :; 1., •; -..^. •,
-- ■ i''.: ''.:,.,.,;, k i*‘‘: Lvi.. ^, - '. C
-i ‘.. aa'^ r. • • •. ',; .'-. •• '•
-- ■ .-■. X - - .I.. -. .' -■ - ' • *
-'■'" A ... X. / ‘.. C
-, L b " '• A ^ ^ ‘■■a'r
-■" -■ AAA.. ‘ ' ' '. '"■ ■
-* ". ^. • • T K • * • -
-AA; : 5' ar' ' \ ''■
-, - ■ ■ ^ -. ■),. - * \, -,
-\. A V. • ' ' •. A;;., - ov
-CD' ' - A;; r S ', -' caadi^^ -
-ri ' / ■ -. 'AXE V.
-> ‘ ■ - 'T- -- .- ■.. ^ I -,., V ' ■ ‘... ..•.,
-'...■ •*. ' ■ ' ' V ' V ■- A. ■ -. u..
-- ' ’ ' ■ " ■' ' ‘ -, ■;. A '. ’ '. '.
-'h L'L n' •'■-'■■ ■■- ' '. A D -- W
-.. ' - I' '
-Avi.; -- A A.. / ^ ■ - ■• V '
-^ ' '/■ ". ■■, .■■■- ■ ■■.; : • ■- ' • rt }■ ■ ' ' " ■
-'■ -. -. • ’ 'An; : C
-V, *, / ». ■'•• ■'.■.■ ^
-: I. •. A... ^ ^ N ^
-. • ■ -. s. C. •, •
-A - \ ^ ■;; .- •-■..•, ■;.; .:
-- J \; I A;
-'r,..
-- A: ■ ' ■ ■ ■ ■ ^ ■.. ■ A '■ ■ ■ Ah - ■..
-'• .' ' ^ ^ '. ■ .': wac;
-* - - ' ' A — : AA ■ • - ■ aa: A
-•,. ■' : ' ■/ -^. ' '.. '.. ^
-.. -- ■ - -_. ' A' ■> A i -* ■. /.. A' ‘ A " AA
-■ • • .' <• - • I' ' - •'."-
-• ‘ ' ' '. ♦ ^'•.c'.\. ‘ .'''. *' A’ h -. '. .• .>, .' -. ■ ■
-y ' ' ' V ■' ^ .^’ _. * * ’ 4
-\
-I •
-* t, •
-(
-. I
-\
-/
-I
-‘ ' ' /
-/
-t •
-/ ’ «
-*. 4
-J
-»
-i
-/.
-^ y ' '
-«
-I
-t
->
-• ' ^ t
-/
-/
-\
-/
-\
-(
 
-/
-/
-I
-s
-t
-«.
-y
-'
-t
-/
-'> ' ' ■ C
-• /
-I
-"> / ‘
-. ' ■
-«
-«
-I '
-/
-V -- ' “' '' -'• /.... -5' - ■ / lt %. ’ • • ■*
-■* -•- - L • • ■" ■ •* • * C ' V’ " * •. • 1 •.
-■ ••t^ .‘. .• » - rrx ' • r • V ' • ■
-.. ■ ' - ?AF - ^ * ■ ■. .■ ^ - -^ ...... ~
-VT'.. ^. • » .f ''AI,
-■ ' • : ' *• ' V ■,..., :
-L ( ■ ■ ^, ■ ' V / '
-nh y IS • -■ '.
-“• ■ “"*-'’ ■ F -- ff \ ^ - ■ • ' • ‘' '- • " "
-- '■ :. iv
-\. ai>va^ly^a -- y v l y - • — ■ t.., ■' C r' ' ■
-'. ■ ■-"'%• ■’ '' c '*''’i
-■ '. ' iteiin i L 'fa v'^‘ ■ ' ’■ "tt • ■* ~ ■ k ' ' /■■.'
-V • *.: '., : rv ^; *' -.. ^ ■ .- r b •' i ..-
-• «. ■ ■ T' ' - •• : -..*. *, ••! ■ '. ■'■*': •.. ■.'...
-^ ' *■ ’'* ' ' v '* ' V •'• '. ' ’ • '. ■
-I ■ '-■■*■■ ^', .'■. -. • ‘- •: t
-\ : V '-• V,, *• “, V 'A I '. ' ■ ...;
-^^. i. '; -, .T \ * ' '. /.-.'■, •• •
-'‘'' '' '' ' ' ' ” ” '' ' '* ''^' * ' ' ' ' ' '' ' ' '' '
-, -- i < ■ ■. b • ■ - ■ V pl..
-'.
-~d \f .- - I •..; ' ti /
-'.- - -- ■*•■; ■ ' ■ ■ ' ' ’
-1 • ■■ : V ■ ‘. ... ' • .- •
-■" - ' ^^ -. ■» ^ ■ • ' - '., ■<■ ■ ■ ^
-- '^' -- Lt N: -, -^ C -- / ' * -- ■ * ', i *
-, .•., i -- '. ..'. < ■y r^f.’ ^, ' .^re sft _ :, -. r ‘ ^
-■■ ' .1 ' ' -. .J.;... ■. - ■. -
-'- nsl VC - ■ ' V...
-. .- -■■ ■,, : ■ ... ■... St -. V ■■ ■ : ■; ■ ^, -, ■ ■ ■ ■ •-,. L „:.,., ..:.
-I • • • V •• ^
-V V - ■/;. V -. C... •.••■'■?-•'•■•.: •' .'; • N /,
-*T‘*' '. •• N' ', -■ ■' v' ' ’’\ \ / ^ : V': .■■':
-. ■_ • ■ .:; i ^^^- .- ' IC 'W ■ '
-. ■' ■. nnn:.. : ■ ■ ■ ^ ' ■ •, .s; ' n .., r *
-’ : n.d»bb b S *, .te -■ / ■ b b
-•• V ■. ' -... ■\'''‘""'^'^ V ■. C bi^^^bb .'b \ b'■ b b sv: : V
-■. •■ ■- ■ s' ' ■■-: •■-■'■■..._. \b..lb nb
-> -- - - - b'b : .b, v^b •■ b... i • rv _ ^
-.'■ ■'. ■'■ -; .'. .: vbb. ^r, .... -.;., ■., : ..b>bcs^
-'• ' • '-.. *.! -• •-'^ • ' - •' - • •; ■•••-■ \>.,. _' • CV- -- ' -’■.>-,.
-'.* -: '5, '"'^i.^b - ^ • ' ' .' - j ***"'*
-^ ^. ^, V. ■
-* ' i S
-* .-. / ■ .' A
-■.. A -. ^ •- ■. ■ C., ■
-% ' - -. ^ ■■■'•.■ ■ ' • ■ A - r ■ '
-.....
-■* •. * • /■
-'- ■ ^ - : ■. -
-- ■ • - ^. ' ■ 1-
-•,
-'.. * V • s ^ >
-I "
-* - *
-■ * w '. ' ' ■ \
-• * i '.. ' - \
-'I ' ■' '. ' '. ■ '
->. •.,
-.. •*
-^ ■ ■'. r ■, ■ ■'■ ■. ■
-^ •. •'■ V: -: ' -
-* - ' -' ' '
-'“w; -. ‘t ' * *■
-C.; • ATE 'Ci" "
-■ - : S ' r.,
-I
-\ < ^ •
-i •. ^ _
-% *
-. "" ' ' ' ' ■, ■ '■. .' ■ '.
-■■ ■: ■ ’ ' ' ' ‘ A.
-■ ' A "•-' v: : : ■ ■ ■ '■ ■.. ■
-^ A;. ' \ 'T ■ • '. ••■' •' ♦ Y
-ic ^ ' A'
-W' ^7 L ■ ■ '
-, V --
-7'j3.f ...
-s ^>- - A. •- '
-V — - ‘ 4. s.. • * ■ -
-^. "VS ■>■.'-• ' i" “■ ‘ *..
-^ - ■ ■ %; V. ‘
-'• \ - *• -'*.
-- ■' ^ ‘ ^ '; ■ ‘ .D. L *. ' f ■. ■ V * ■ .*. ■. • ' ' "
-■ - ■ v- -- - ‘ ■ • '., •;
-'n. - / ■ • ■ 3 h ' ■ - • \ :,;
-■: ^. - - ■.■■■■ •-■' ‘ '■ ■ * r ■.. -;; V
-’. C - - ■■ > '. ■. .- C -:. i •• ^,
-• - • ' ' ^^0. '■ ' ■ • \ -
-^ ^
-■■ • • i - V ’
-'.. ■ ', •.. - .r --
-'N..., C •. ■ ■■ ■ ■ NV ■ ■ ■ ' ■ ■■
-.. ■ •: ■• ■ •
-. I • V -
-i / ^ ^. -
-^ T - '. '. ' ' '. ^ ^ '
-'■ >■■ • ■ *.. ■ ’
-'. - - ' V ■.. ' ■ N •' • V V
-•. : ■ ' ND.... ' ' ' ' * ■ ■ V
-T. ■ ■-■.. - ■ ■ " ' < ■.. ■ ■/ C s.
-‘ ‘. — • -. .• ■ ■■: r: ^-
-i.. - - -. - ■ - ^: V
-: C ' ■ t: '•:
-'•• \
-’ ■ ^ ■'; ■- C • - ■ D
--: ^ - ' • ' A • •: _...
-'' ' .' '' * ' ' ' ' ' *
--> f.. V ' - - ^ ■*
-r,, ' * ■ * ' A ^ '
-■ ■ ' - * ‘ ‘ J • ' '. ’ i -, 3.,
-s' A ^.,, - - ' ^ :
-.• ■ • r... •. V ^. •, ' - •
-- : ^ ' ■ ' ' ^ ■/- ' ^
-;. ■. :, • r, evtrs
-V : L, ■ •. • ■. ■,, .^
-■; ■ ' • '. ■ '' ■ -'■• t: ' ■ ■■ L,, <
-• ■:. ' V. ’ C : ■ .D.,, 'IT j; V
-* * •.. ’ • * '''■
-* ' • • T •. •* • - <■. ■;
-'• ■ ■/.. ■ ■: ■ *. / - - 'i C '
-tf ■ ■' - At,. '.,
-■ • d - *. > ' ’
-/' • ’.. ' ^ ■;
-s. - • \ ^-
-. ^ ' D • ■, • -• ■: •■■ i'. ■ ■., : C
-*. »
--,. ■ - ■' •■. I' ' ■ • /■,.. ■ ■ '
-. i j. •.; ♦ sv. /. • 'VC.
-'h. a. ‘ •■'s;
-'‘ ■ ' ‘ ■.. h • hr
-•. ^ ^ > - ' V -; SC
-- • ‘
-.. * ' ... • i
-* •
-^. V ^ _ ■.. - AT V
-■ ^ ■ • : ■ ■-■■■.. :. ■ • '■
-• * • •
-'-.. ■ -. ■ y ■' • V, • V V. '.
-^ ‘; fet. • • ■ •' h - ‘ '•
-'. •. •, ■ ■ ■ ■. O, .T: : :
-• \ ' ' X ' d. ■ ' -
-^. .* •
-. ■ f V cfi., ', .*. -.•.*■• a' q «^s
-* ' • ■ .•. r - -... • ^.- r.'
-ri^v... - • = ‘ * '"'te'c* ■*'• •
-Fra ari' 'ra^f^^amar^ AT" "
-*^''\ '■ ■" .^^, '* s "p; viv '^^vi'v “' -. • : vc'’h: ^C'.’'; ■ ..- ■''
-.1 •• ■''■•■■■"'• ’ /' “C J.. : '. ■ < i ■ r' ■'dca/jc.t'n V rc Cnv
-^. i.' -- .c, .-,; .- ■ rn.bffvd. : •.. ' ■ •. ' • • -•' f '• ''•• - ' '■ ' V ■‘••••.■'^-^ '
-• • Cw. v '; C’ ..• L v/itv ' C ^ ■■ V V ' ■ ” '- '■'.-/, ■-■; TV,, ■. ^
-■'., ' ^ ..' fy‘ mr: FA ra
-• ‘ '■. •-' ■ ."•'•■■' L.. •• L,.,.. V • ..» .- • ' ."' ^ "■■■■'■■.', * a. ' - '■ ■
-T ••'•■ .-■ ' ' ^ tc'tevv^ 'n "i' Ct
-O' h / c ’f'•'.'/v? rn -■-•.•. •., - ■ -■.■■ • •' •-
-•• ' -- C '■ L ' .N. I,, :., .•. •. • •. ■ •••■. •• -.. "
-••• .» ria -- \viar: yri ■ '■. '.. ■ V .•-'■'■•' A '
-'.• - ^ •■ ' V' '. .- • '. V..
-■ * ■ ■ ' ■■■ ■ '■ D ..'■.■■■- ^ ■. ■■ ' ■ ■; ■ A
-'■' ■ - ' ''t ■ : ■ S. ' ’ ■ ■ ■ j. ' * ' ' ■' .: '. • y '0 S
-'■ h.y' C ■ ■ '0 * '.■ ■. ' ■ '. ■■ ■ ‘ ^ ■: ■.■': *■
-. ■'.. y. h' ' ■. ' ■, ■ '■■ ' '
-AS ■ *" ■■• ia'yyya.d ys; ' V, ■ ■ ‘. AY .*; y '
-y " .A: •: '• ' " O' ■ '.
-v.. ■■■■, ■■ ‘ ■ ■■ ■•" a:
-‘ -. ■ - ■ A.,, ^, y .yc ’. ■ - ■ ■•.■■'-... ~ • _ ■
-\ ' \ y .-. / - ' • : - /.. - >• c
-■ • ' •-<■ .'. -: C... ■.. -
-'r' ' varia' •' ■-■ '. • - •■ ■ “
-•■»; ■, •, y /', '(.■/.■ -. ■. •... •
-, •■* h ./■ ». - • - • '. •-•
-■'• ya^s; :, = ■ _ :., y • ■- ■
-» - '-' ■ • '■ ' y iy •. \. '■-■
-l .v yy :,., 'yy. • ^ ■• • ■, y S ■^ ■
-. 'O' y'.~v y?. • ■
-.. r''.’ '•••• «, .f, ' lf. i: -., • V •
-^ » f
-^^ • ’ ’ y ' /
-C T
-VA
-• * * ' ’ • •
-..
-■■ ■ " ‘.., •■^y s. y
-* • ' ' •., C V ‘ ■ • ’
-• ‘ ■ ' y ■, T ' • ' ■
-y. : .' ' A. .-. •■..
-■ - ■ ' -.
-•... • • ' • '.. *
-^ ‘ ■*'. I - y- -- -‘^; : ■■. ■
-. * * *
-7 ■.. -■ ■ ■
-- : / '
-y'. •.'/•■•• -- •..
-’ 'I' ' ' A
-'■ L '
-■ t : ysa'sb: yy ■; : ya
-^ ■-; ■'■ ■ A ■ ‘aa a; '
-^ A;; ■■ ■: ...,; ',. ■
-^ ••■✓,. I - ■.. * ' ' '
-i ■; : aa - aa --... ■ •
-1 y.. ■ •••-•, •
-A. ‘ ■.■-■ i ' ■'■ ■' '; ■■ _, • '
-; ' ',. C ^■' ', ' ■*; '■'. ■ -., S: : V. y .- -- .' ■ ■. ■. .s'
-■ ' 1- ^ I - •; ' ■ ^ ‘ I. • '^ .r....
-'■■• "'y' ■' _ 'yv ' "o" ' ^ ‘ •
-'■• -..,; y "A, «■, - •..
-, -»•'.< y '■ -' ^. ■ '■, '•• V ' • ■•.. - ■ ■
-• '. ' ■’' y •'• •'. ' '■•■'•• ••-'.. ■ ■
-. ■• 1 C.. • ..'7.. y ' r ." '■ •'. ■.; ■ ' ‘, •, .■...•.
-1; /■■■ * ••'.■•• •
-r .A ■ a’''hv tyr., .vsy A' ya • '^-
-■■- " y. 'i.' ■■> y.'sas' y ■
-''. • 'f b ■ V y \ ■',,. ■
-•- • ^ vac' y>yyy - yi'c"' •' * •• "■**"■-, ■ a ■ ■'... •
-'^/■; y, .^yaa'i > SA'., _ r .sal, S ■ 'csl/; -- ys a*''‘r ■■: •■ 'A'' '' ' ■ .■',
-a^y'.i.s a'a ya.syv..; s, y^^s S '■' A, - ^ A. ‘
-. '.y •a''=^n a'.hs -- ''/< -- yy • ■'.•: y • .- --. _
-. ' ' '.t ^ L ■ y' S ' * '■‘/V .e ‘•'’ar • '(•. ' ' ... ■ •
-'•' ■‘y! A;;.. ■.
-A ^.a^v'ya^ tea C A; A' -- : - ^ s.. y • AV. ' '
-y.., Vy; A:
-• ■ ■ aaha: : AL cy
-^ )/zy o
-■ “H /11,
-H ^ i;. I "7 “^
-
-'
-\ 'A
-\. A ■
-\
-\ ria ■ ■ ^ ■
-CL ■ - '.
-I j
-1^, '
-I "F
-■ Of .' ■
-^ s.
-. ■■ ■ /
-• ■■• '-■ ^•: -
-.
-; H 5; --, •,
-I ^ *1 f ^.
-., L - icc: : .................
-s; cc- --
-, L v'v r i ’ -( ' •'■* •
-• >. V • ‘ ^
-.* ’5<, • ^ f, c*r ■ '■'••■
-I ■ ■ '• T; S.. ^r..y: rr r^xl" C ■
-'a<atm0rifa
-■ r! ■-■’■-• orte/. ‘r. > -- ■
-to l.ad.ria
-ah
-
-'i I .......
-si I cnis
-'i
-■, ‘o
-it' i ...
-‘W
-it '
-I
-»
-/
-/
-%
-#
-I
-'-. ■■'■■'". ■ ..A - ■■ ■■ ■ ■ = ". '
-‘ ■. ". ' ■-/■ a .■ ■': ■ ^ ■ :. ' -
-A ' ■- s.''. • '•: ->. ■ - -
-V •'* ' ■ ■,
-'■ •, - : • \ •
-'*# “.* I • ’ *
-■-.■■■*" V ". ■
-: ■■-■. • •. •* V" " -.
-■. ■ ■ ' ^ - _ ’ A
-'' ■• A • • ' ^ 'A
-^ ‘ • # V ^ V ^
-■ ••. • ' *
-I ' V.
-• --. r A. ',
-''' Lf A - '.. V » • ' X
-“^ - ' I '
-. r... - ‘ ^
-■ 1 i
-■ A
-, A -, ' *; ■ ^ A.
-■ ' ' ' •" ■ ^
-‘ J.: .: ■ ■ ‘ ^ • -. :. ■ ^
-■■■' ‘-■■■- ‘ ■ / -. ■ ■
-C ■ - V • ^ » •
-A. ‘ ' aa'
--- -^ -- AAA • • - •. ^
-: - r *.
-• ' ^ .-^. •. >
-va artn: C" ".
-'y., 'A; C • * - '.
-VAA';. .A.
-■A■ iaa a.. ■ -. _. _,. ( ' _
-r * ■ '■'..
-A "'■■ ■ - • '. '
-"■■ •.■■■-'■ ' ' ' K '
-AC.. ^ -. '■ * * ' ' ’,
-■■■ ' AAA.' -- ^ A‘ -: -., '. ' - - >.
-^■ L ■ ■ *
-/ CD. - s.
-.•-. - ». •-, «!•• ' f‘ IA. ■ ■ ' : N
-:; • -. .-,, >, ■; t ■. •., - '■ ' :
-. • .1 ■ •.,... ^ • - -. OL ■. V
-■• ■ ^ ' ■ -- ■■ ■■. ( f., ^ ...
-■ ■ ■ r - •..,,. > ^
-^ ' -;. V '.
-■f h' ' •. '. :. \.,, ''»♦■.
-■ -- ‘=- ■. _ \
-'- - ” J., • f .V 1s' '•’•-/•».. • • / 'I
-•'.» •- » ________ V... • 'M
-• •, ^ '. ' ' ^ -• is
-i : V i \ ■.
-* ' r t I V « C ’. y
-, ^ •., • ‘ ■ ■ ■•. »'■ t • VW » * A ■
-.. t -. :.? Tw ■... /
-5., .s ^. r
-.• ‘ X »
-'A. ..... 'f '
-•, ■ A ■ ' ' ■ ■ ■ "A.
-, ' f,,,,,.. *,
-*. *. f ' •
-. AA Ai, ■; ■• 'A. ■■
-- ^ A * A -
-'' ■. ‘ ' it ./ •
--, '• ■ - t • ' ' * * / ' ‘
-• I • f ... ‘
-S ^ ■
-■ ■■ ■■ .■.■■, ^ L ^ ^.
-• ». ’ ■ • •., ■ • .•
-V ' ' _ ■. ' * ■ • ■ ‘ ■ A A.
-/ ^. • •, • / ... ri .ft
-* S ' • ■ •.
-• p *.. ’.
-^ I ■ ■ # A V,
-,. ■ ’ * ■.;
-- V '
-u.: .-. ■. ■. A •,
--, 'A CA,,. '. ■ ■ '
-: ■ ■ ■ A : V ^ ■ ■’• - * ■ -> 'A
-. p '.i
-^ • '*
-'^ #-. *•
-. 3 ' » ' r
-'*•• • ^ •
-* II ' b
-’ A ■'- V - ' V' ' •
-«_. ^
-. ^ ^ • X ^ ^ ^. ' • *. >• ' \ • r
-. • •-. •... — •,; ... i. • ■ '
--. vc.. ' - T' ■.. ■ ' A ■ ■ •
-: .vc', .C: : ■! '■' ...
-'' ' ' '■■/■ '"’'■ ' ■■ '^
-• ■- c' v/visi.'’* •. ■ ■ '
-.T' ' • •%■ • ^. •'• *», * ' I.
-'88'' '" ''''^ ' '' ' ''''''^
-V. ‘ '' •. ' ■ ■ -: •, •
-. -- ^ • ■ ^ ' : -■ V...,
-..■; " : T. ' •n'hn' - ■... N
-V /> ' -- • •, '■ ■ j.., • ^ ■
-VC. ' ■ i ■ ■ \ ^ f ' 4. •* ■ ' ■ V.
-'■. ...; .c.‘' - ' •'■ ^_ ^ ' ... '•’• ■-'''* ■.
-■ h " n. ' '■ ■ ■ ' ■ '. • ' '. ■ “V ' ■.-. \.' : ' ■ '■
-: -. .-^■: vw.. ■'. ' .'■ '. ■ ■■•. -'•; -, : -. ■ ■
-'■ •■•*.' ■ ' - * — .• •. ■ • ■.
-( ^; n'y.^v;; ■'.
-•* > ■ ^ ■' '. '. ■ ’ - I'. -'. • ■ •: .'. •.' .F.., ••
-'' ' ••; • : 'S' ' '
-■
-■ - - C ■ ' ' fapaia fr ■■.
-■, .■'; ■aa'‘s'f".. .■. ■ - ' 'S; _; C;
-, ■ ‘ >. ' ' V/V V V V, '
-V fi .•■ i..
-■ ^-,. *,, j. V.. ^ .-,
-■ - “-.. ’ ’■. rh s'
-■. •• • ' ■ i V ' ' S'
-V V r ■., ■ ■.. •, - ■ '
-. • r ' ■ ' ' ■, ' ■ ■
-^ ‘‘ • '
-■' ' ' ' .... -
-. * * * *.. *
-■ •' ' '* ' V ■• ', '-■■■,, '■/, ■■ ■-■ "; ■., ■ i ■ ■ ■■ i
-■ •.. ■... •• *.* •
-fe' ■ ■"' ■ ^ :;, s,
-."... ■ * '■•' - ■■■ .A, ■ ' ■ ■
-■. ■ SSVA' * ■ .X- -- - -- ■
-■■ V ^ r; X; '. ln.
-r. • ^ ‘ •. •• •.
-‘.l' v' ■ ■ i; '^ •■
-■' ■■ X 'rx. AA ^.,; ■ ■■
-■ "■ • : •'■
-. ' ■■_ -■ • • riaa larir.
-• '.. ■ r • •..
-. -. r ’ ' -. ' y 1. •. •.. • I 7 •'.
-: N:; V >
-I •: '.i ■: : r ^ '
-'• » - ' I - • '. \ •
-, o ■■ - - - ■.. ‘ '•: ■.. ' ■,.
-''•. > : V... il
-'• - • ■ • ■. ■ • * ■.'•/••■ H • ./ ■' • '. - - C -. '
-.i ’ A •. ■ V. •• • -
-T ‘ ■" v/i’c ■ • t ■' .■, ' ■ *'■ '■ '■ *. .■ ■.
-*> — V: ■'«: ' '. ■ ’ - ' ’ '■ *
-~ j ■, • -. ^ ‘ ^ .*» • • ■• '
-• '""CV "" ■ V ' ■ -, ~ ^ ■ / ' V ■
-, ii ■; ■ A yf ^ rid. ■ A” ” ■
-■ y ^ ■. •? - • .• ‘^
--, - > -. ' • ■.
-• O. C ■■- -• Si '. • ' S': ' ^ TL ' ■. *
--,. -- - -. ■ -. ■,.. ■.. ■.. : : t S ‘ C' ■' ■ ' ''' I ' ' ".''S ' '* -.
-.... '; vl: v\ l _: d ■_. ■ r..
-^. ' ■ ' ' - si.,., -. " ' ■ •
-C ■. \ ' ■:.; •• \,... X
-'' ■' " ^ ' '
-'■''' ' : I '. " ■ ■ ' i V' V,,
-'% •■*■ •.
-r V - ■ •, ■ ‘ • ■ *'
-'• '■ ' ■ •*-. *.
-■> - .* ■ c 1. ‘ - ' ■ e.' * -.
-•' • *’ * -• ’ • •* — .1^ N *. '’
-": ■■■ .- : v y • ' •. »'• * •..'•■-• • *, ■.;
-■- y • - - V ■ • ' ■ •••■-.
-yv'• :. • ■■. .!' ^ ■ ■
-sa - ■... ^.. ' '
-- y' *'.
-^ ' " - i ’. ■', s ■■. .n ar.
-i - : I ■/ :,. '
-: Lv^h --; ai yy/s; " Ty ■ V
-S ‘ yc'wn; /., v ryi N: '"-.. IV ■ '.. yy‘. y; y .y;;
-/ ' ■... •' > • „, ..'y, y ^ ^
-■ f F H : ■ •. •,
-. V /• ■• ■ - 'W
-.. h '. ■. ■. / V aan A... •... ‘ ^
-':. -.. ^ ^. '1 ' ■ ' V
-’ .NN • -* V ’ ‘ ■, ■.. 1 ‘
-. -. ■ • - ■ I
-* ‘.. ' V V, • ‘. .J
-■ ' ■ ' ‘ ‘ \ V J ■ ' ' '
-■ ■ - ■■■ ^..., : ■ ■ IV -.
-TUN... ..-. '.D. ^
-- Sw'n A. ns. -. ■ ■. ■: ■. cvv. v:, .vrv' wv - ■
-.; ' i SO -• ^ ■ y ■ * ^ • • - ■.
-, N.: .' 'f ■- - ■••! ' - - - • ■. ■ - ^.. '. ' -
-'i - ' * : ■ I ' '- ' -
-,. ' r * •/.'*'. -^ • C nw
-• - - r....,.. • ... •
-. ' y..; : '..; :.. - vscs • 'te
-/ ■• .sky ■■ ' ■
-.■. -- Svy : :, V y.. •,, ',,; ■ y
-^ L ■' '•* -. ' ‘. - ■ f •, .•, ■-• .t T
-- ' V ' f ( ** ■ AI; ' '•
-**. " ■: ■.': ■-■•■■'> :.. .NTS' .i
-A ■ ' ■ 't^yyn, f ^ : .D ■.■, .y
-'. • :..; - yy y' ' ■, •■... *.
-r .- N:.,..; y ' / ••
-■ Nh y S : SN; A‘ ■ V yv, of,, V ‘ ' .'A
-'■'■ “A. -- y;. ■ ^; y; ^^ ‘ ^
-''A '* > -. ‘ ■ V S
-A: .L y- --. ' yv' -,. '. V. ^
-y ■ - ._ -- j;; AY ■ '■ :?, ' » \ V '
-Sy~v ‘y y Nt'y ' v.’ " \ *’ f ' 'A ^ '
-■ - I' ' ' I ' - '. ■ ^
-.vw’ • .'SI.. J. -.. - • .*.. _ •
-»
-\
-%
-€
-/
-y
-4
-\
-%
-/
-%
-%
-♦ «
-♦
-[
-%•
-♦ ^
-4
-I ^
-$ «
-%
-S
-m
-0> *
-THE
-0
-palinode.
-I
-V
-%
-!
-\
-»
-%
->
-M
-e
-N
-/
-;
-\
-/
-/
-N
-N
-/
-* f
-V
-I
-I
-f ' ■
-* :
-V
-• f‘..
-*
-4
-\
-I
-\
-\
-\
-T
-i
-'' »
-\
-•>
->
-N
-: •
-'i
-#
-\ *
-I
-*
-/
-/
-/
-I
-THE
-/
-• A L I N O D E;
-0
-OR, THE
-TRIUMPHS
-O F
-s.
-I R T U E OVER LOVE:
-I
-\
-< A Sentimental
-NOVEL.
-n which are painted to the Life the gha rafters and Manners of Some of the most celebrated beauties in England.
-5ymr. TREYSSAC de VERGY*
-V O L II
-LONDON: '
-•inted for G. Woodfall, Chaiing crofs, and T. Evans, No. <4.4 Paternoster-row,
-^ .IT ^
-\
-%
-W
-/
-$
-\
-/
-♦
-X
-A
-1
-/
-*
-\ i
-t *
-✓
-Mte.., V, > •
-V
-I
-4
-.
-\
-»
-I ". '
-V
-V
-9
-\
-i
-S
-s
-00
-♦
-LETTER I. •
+## LETTER I. 
 jokt^ Rambler, esq, to Sir Francis
 Croslev.
 WFI E N lord W — had
