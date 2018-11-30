@@ -1,6 +1,7 @@
 ---
 layout: narrative
 title: "The history of Miss Harriot Montague"
+author: anonymous
 editor: Dorothy Pierre-Louis
 rights: Public Domain
 source: UPenn Digital Collection of British and American Fiction, 1660-1830
