@@ -1562,269 +1562,139 @@ The incidents of the day had so effectually favoured me, that Emily had not the 
 And ringing for Lucy, she retired with her to her room.
 
 From my conversation with Emily I concluded I could with impunity force myself into her arms. Should not success crown my attempt, I would retreat honourably, by swearing I had no other
+intention than to alarm her virtue, that he might have the next day a real distress to describe. However foolish the justification, I doubted not its excellence, when pronounced by a lover, and seasoned with mirth and pleasantry. Uncertain of the manner love should bid northeast behave, I had, at all events, ordered Lucy to cough three times when Emily should be in bed, and then to open the door that I might unsuspected  stel into the room. The signal was given, and I was at the bedside of
+Emily before she was aware. She started at my sight, and asked with a trembling voice what I wanted.
 
-ntention than to alarm her virtue, that he might have the next day a real dis ress to describe. However foolish the ustification, I doubted not its excel ence, when pronounced by a lover, and easoned with mirth and pleasantry. Jncertain of the manner love should bid
-northeast behave, I had, at all events, or
-iered Lucy to cough three times when Smily should be in bed, and then to )pen the door that I might unsuipedt,
-: d steal into the room. The signal was riven, and I was at the bedside of
-4
-%
-imily before she was aware. She started at my sight, and asked with a trem )ling voice what I wanted.
-“Only to wish you a good night a
-; con, d time — that’s all —
-V Lucy? —
-[ 2i6 ]
-“Lucy? — i
-\
-f
-“My lady? — —
-♦ ^
-. “Stay -- -- -- -
-k“
-“husband may be angry with
-me if I do, madam — —
-!
-“When shall you esteem me enough, Emily, not to fear me? — — I could not go to bed without Seeing you again —
-Is that a crime? -- Stay, Lucy, or my
-lady will be frightened to death —
-^ •
-V
-/
-“To be Sure, muttered Lucy, if I
-had Such a handsome husband I would
-#
-not let him lie by himself- -- --
-“
-f
-‘. ' V
-I
-I 217 ]
-Well, my lord, you have Seen me
-\
-leave me that I may rest — - I am immensely tired — -- -- --
-“First let me have one kiss, and then
-ni go -- -- -- -
-“Is it thus you keep the word you
-gave? ...I was to have no more
-cause of complaint —
-“I love.” - — ^ — -
-And I ravished a kifs. Emily arose in a transport of rage; I Seized both iier hands in one of mine, and gazed with delight on the loveliest bosom I ever Saw. Her eyes darted anger and fury at me; but the stutter of her Spirits not permitting her tongue to express
-what she felt, I grew indiscreet, ’
-\ •
-vol. I. L and
-I 218 J
-and paid my homage to her panting breast.
-t V
-“My lord, force me not to despise
-you- -- -- I can yes forgive without
-debasing myself go — — this instant leave me.......
-“Am I not your husband, Emily?
-i
--- -- -- -- Must we Submit our pleasures
-to a vain ceremony? — our hearts beat
-for enjoyment -- -- let trs obey their die
-A
-tates -- -- -- apriest will sanctify them
-tomorrow— — —
-man of true delicacy would not disgrace the woman he intends for his
-wife -- -- have you no honour — no respect
-for yourself? —
-Were
-*
-<
-I
-[ 2 >9 ]
-“Were I in your place, you in mine, my reason would be yours — the rights of love should be attended to — my caresses, my transports would be a debt, which my consciousness of your affection for me, and of your honour, would
-oblige me to pay -- -- Think, Emily, as
-I would do, had fate made me your
-mistress, had fate made you my lover — Make me happy — Bid Scruple away;
-I
-leave it to the fools or insenfible.’* —.
-Then my hand wandered wantonly in Search of agreeable sensations.
-$
-4
-Ungenerous man 1” _____ —
-And she violently struggled to free
-her hands which I continued to hold
-in vain did she call Lucy — Lucy was
-L 2 deaf
-[ 220 J
-%
-deaf — Having already too much offended to hope for pardon, I thought I could not obtain it, but by completing
-her defeat -- Neceshty only. Said I to
-myself, can oblige her to forgive — -
-This ressedlion silenced humanity in my heart, and gave the victory to pas sion over honour. I, on a sudden, threw the bedclothes to the foot of the bed, and, fixing myself in her arms, braved her tears, prayers and resistance. Virtue herself could not have
-made a better defence. Emily feeling
-%
-her strength to decay, and my courage to renew, desired me to let her breathe — that desire being accompanied by an
-i
-animated kiss, and a promise to make me happy, I desisted from the attack —
-“My
-J
-t 22 1 ]
-My dear lord, Said Emily with the bewitching tone of voluptuousness, were I certain you would not cease to love me, I would cease to oppose your triumph -- -- -- Love Speaks strongly in your
-favour -- -- the fear only of your inconstancy
-arms my virtue against you.” — ^
-*
-I Swore to be constant. —
-I
-I
-“Well, no longer will I resist — —. undress yourself, and come to partake
-of my bed -- -- -- -- Your oath has made
-you my husband- -- -- -- -
-“Emily, thou makest me the happiest of men.” — -
-<
-*
-1
-And
-[ 222 ]
-And I jumped out of the bed. I had not been two minutes from her when she exclaimed- -- -- --
-“! forgive me this murder — Virtue commands it.” -- -- -- -
-I cast a trembling look upon her — ' she held a pistol in her hand -- -- -1 remained
-motionless in the chair where I Sat.
-“My lord, this instrument of death
-is yours: I stole it from the table in ¥
-the parlour upon which you laid it — — if you dare to move one step towards
-me, you are no more -- -- -- -- leave this
-room, or I sire at youyou are a villain
-beneath my pity —
-“Ah,
-xfh,
-C 223 ]
-Ah, ah, ah! Now, Emily, you shall be able to perform tomorrow
-your part to a miracle — you have been upon the very brink of ruin — I did not intend to finish it, but to bring you into danger, that you might at more naturally the charasler you are to assume — Were I inclined to Satisfy my pashon for you, I would defy your anger, and that pistol — Had I been more generous my design would have miscarried — I repent not for what T have done — nay, I glory in it, since it adds to my esteem and' love for you —
-^ ^ J
-You did not steal that pistol without my knowledge, Emily; I Saw you take it — Amazed at your making no use of
-I
-it, I began to fear that love would prevail over your virtue — The suddenness
-of
-0
-[ 2^4 ]
-I
-of your caresses told me your design — I gave you purposely a respite — You have answered my expedlations —
-I adore you -- -- -- fear me not, virtuous
-Emily — I deserve rather your thanks for having put you to the trial, than your indignation — Let not Lucy know
-t
-this Scene between us — remember that you are to be my wise, and that your reputation must be as unquestionable as your virtue — Calm your Ipirits, dear Emily — endeavour to rest till the cool ness of the morning invites us to proceed on our journey -- Lucy!!! —
-Secrete that pistol from her sight — Lucy! —.
-eiow artful man! how he 'gilds his
-villainy! — — —,
-I feigned
-[ 225 ]
+“Only to wish you a good night a second time - that’s all - 
+
+“Lucy? -
+
+“My lady? -
+
+“Stay -
+
+“Your husband may be angry with me if I do, madam -
+
+“When shall you esteem me enough, Emily, not to fear me? - I could not go to bed without seeing you again - Is that a crime? - Stay, Lucy, or my lady will be frightened to death -
+
+“To be sure, muttered Lucy, if I had such a handsome husband I would not let him lie by himself - 
+
+Well, my lord, you have seen me - now leave me that I may rest - I am immensely tired -
+
+“First let me have one kiss, and then I'll go -
+
+“Is it thus you keep the word you gave? - I was to have no more
+cause of complaint - 
+
+“I love.” - 
+
+And I ravished a kiss. Emily arose in a transport of rage; I seized both her hands in one of mine, and gazed with delight on the loveliest bosom I ever saw. Her eyes darted anger and fury at me; but the stutter of her spirits not permitting her tongue to express what she felt, I grew indiscreet, and paid my homage to her panting breast.
+
+“My lord, force me not to despise you - I can yet forgive without
+debasing myself go - this instant leave me -
+
+“Am I not your husband, Emily? - Must we submit our pleasures
+to a vain ceremony? - our hearts beat for enjoyment - let us obey their dictates - a priest will sanctify them tomorrow -
+
+
+"A man of true delicacy would not disgrace the woman he intends for his wife - have you no honour - no respect for yourself? -
+
+“Were I in your place, you in mine, my reason would be yours - the rights of love should be attended to - my caresses, my transports would be a debt, which my consciousness of your affection for me, and of your honour, would oblige me to pay - Think, Emily, as I would do, had fate made me your mistress, had fate made you my lover - Make me happy - Bid Scruple away; leave it to the fools or insenfible." - 
+
+Then my hand wandered wantonly in search of agreeable sensations.
+
+"Ungenerous man!" - 
+
+And she violently struggled to free her hands which I continued to hold in vain did she call Lucy - Lucy was deaf - Having already too much offended to hope for pardon, I thought I could not obtain it, but by completing her defeat - Necessity only, said I to myself, can oblige her to forgive - This reflection silenced humanity in my heart, and gave the victory to passion over honour. I, on a sudden, threw the bedclothes to the foot of the bed, and, fixing myself in her arms, braved her tears, prayers and resistance. Virtue herself could not have
+made a better defence. Emily feeling her strength to decay, and my courage to renew, desired me to let her breathe - that desire being accompanied by an animated kiss, and a promise to make me happy, I desisted from the attack -
+
+"My dear lord, Said Emily with the bewitching tone of voluptuousness, were I certain you would not cease to love me, I would cease to oppose your triumph - Love Speaks strongly in your
+favour - the fear only of your inconstancy arms my virtue against you.” -
+
+I swore to be constant. -
+
+“Well, no longer will I resist - undress yourself, and come to partake of my bed - Your oath has made you my husband - 
+
+“Adorable Emily, thou makest me the happiest of men.” -
+
+And I jumped out of the bed. I had not been two minutes from her when she exclaimed -
+
+“Lord! forgive me this murder - Virtue commands it.” -
+
+I cast a trembling look upon her - she held a pistol in her hand - I remained motionless in the chair where I sat.
+
+“My lord, this instrument of death is yours: I stole it from the table in the parlour upon which you laid it - if you dare to move one step towards me, you are no more - leave this room, or I fire at youy - you are a villain beneath my pity -
+
+"Ah, ah, ah! Now, Emily, you shall be able to perform tomorrow
+your part to a miracle - you have been upon the very brink of ruin - I did not intend to finish it, but to bring you into danger, that you might act more naturally the character you are to assume - Were I inclined to satisfy my passion for you, I would defy your anger, and that pistol - Had I been more generous my design would have miscarried - I repent not for what I have done p nay, I glory in it, since it adds to my esteem and love for you - You did not steal that pistol without my knowledge, Emily; I saw you take it - Amazed at your making no use of it, I began to fear that love would prevail over your virtue - The suddenness of your caresses told me your design - I gave you purposely a respite — You have answered my expectations - I adore you - fear me not, virtuous Emily - I deserve rather your thanks for having put you to the trial, than your indignation - Let not Lucy know this dcene between us - remember that you are to be my wife, and that your reputation must be as unquestionable as your virtue - Calm your spirits, dear Emily - endeavour to rest till the coolness of the morning invites us to proceed on our journey - Lucy! Lucy! - secrete that pistol from her sight - Lucy! -
+
+"How artful man! how he gilds his villainy! -
+
 I feigned not to hear; and bidding Lucy not leave my lady, I went to my room with the looks of innocence.
 
 ---
 
 ##LETTER XXII.
 
-f T is needless, Sir, to tell you the re
-ssedlions I made upon my disap
-(
-pointment, and the compliments I paid
-to my self-love for the happy turn I had given to my assaults against the
-S virtue of Emily. I thought she believed me : I was mistaken. At the dawn of the day I was awoke by Lucy.
-“My lord, the lady has been Soliciting me these two hours with gold and promises to procure her a post
-chaise for London. I know no lon.q; cr
-o
-1
-I t ir a
-i uvy
-f 227)
-t
-how to deny without appearing entirely in your interest. What shall I
-“Receive her gold by all means,
-'Lucy, and order a poshchaise. When ilie has got in it, let my people Secure
-I
-■ the postilions till I am warned of her flight.*’.
-I got up, and stepped into a room, from whence I could, unseen, observe the motions of Emily. I had hardly
-given my orders to my valet de chamber., when she came into the yard, and, after having thrown her looks every way
-r
-for fear of Spies, fly tiptoed to the chaise, and leapt into it. Emily had not indulged two minutes the hope
-f
-of running away from me before my
-ct ^ r“ “
-[)
-valet de chamber destroyed, by his presence,
-the flattering illusion.
-%
-“May I ask, madam, where you are going?” -- -- -- --
-Emily turned from him with contempt, and bid the postilions to go.
-“My duty, madam, obliges me to oppose your departure, till my master
-is acquainted with it.” -- --
-%
-And calling one of the Servants, he Sent him to me, whilst he threatened Lucy with my indignation for having favoured the lady’s frolicksome trick. — *
-“Am I a stave, cried Emily, biting her lips with Ipite and fury -- -- --
-“I dare say, madam, that his lord ship will not detain you one minute
-against
-[ 229 ]
-against your will -- -- -- -- -- -- -- ^here he
-comes -- -- -- --?
-What! -- -- -- My Emily ssying from’
-the man who adores her? -- -- -- -- -- -- Ami
-4
-awaked? -- -- -- -- is it Emily I see -- -- --
-And I feigned the greatest amaze i ment. Emily was too Sensibly affecst ed with the miscarriage of her favourite
-Scheme to answer me. She cast her '
-«>
-eyes down, and the sighs she involuntarily breathed were marked with grief.
-y
-“Are not the indiscretions of a lo 3
-\
-ver excused by the beauty of his mistress?? — — I constantly decent and respeftful, What idea could you entertain
+It is needless, Sir, to tell you the reflections I made upon my disappointment, and the compliments I paid to my self-love for the happy turn I had given to my assaults against the virtue of Emily. I thought she believed me: I was mistaken. At the dawn of the day I was awoke by Lucy.
 
-V[
-[ ]
-terrain of my passi©n for you? -- -- -- —
-\
-Your virtue is too Severe, Emily“
-“my lord -- -- -- but you have
-none -- -- -- 1 mistook your character— —
-have made a wretch of Emily —
-And Some tears stowed over her lovely bosom,
-“those tears are an insult to my honour“
-“honour! -- -- -- -- You dare to
-talk of honour! -- -- prostitute not that
-Sacred word -- -- -- -- Alas! that I should
-Speak Such a language — — Speak it without injuring you! -- -- --
-i. II W * fc > w
-I 23° ]
-reserve this pathetic, Emily, for
-your interview with your mother -- -- -- -- -
-This is not a proper time to rehearse
-it -- -- -
-“Add not raillery to abuse -- -- -- -- --
-you are already but too contemptible —
-“You will give me leave, Emily, to
-differ from your opinion -- -- -- -- -1 have
-been guilty of many follies and errors, but never of meanness.
-What right have you to detain me
-here? -- -- -
-/
-You have been committed to my' care.” —
-The
-[ 232 ]
-The hue of indignation flushed up into her face, -- --
-f
-How bold and shamelefs !” -■-■ - »
-I thought it then a feasonable time to be displeafed in my turn.
-•N.
-Madam, my impertinence deserves
-not Such an effusion of contempt -- -- -- -
-Will you go to Lincoln, or return to London -- -- -- Choose which you like the
-best— — -
-\
-London, my lord — —
-“With all my heart, madam i’ll see you Safe at home.” —
-C
-/ s N
-And
-O
-[ 233 I
-And turning from her, with the air
-y
-of indifference, I ordered my chaise to
-%
-be got ready. emily’s anger began to abate : she alighted, and passed into the parlour, where she sat pensive and me lancholic. I crossed the parlour, and affected to take no notice of her. A few minutes after, being told that th carriage was at the door, she fouewed my valet de chamber. Surprised at my not following her, and at thp order given to the postilions to Set our, and take the road to London, she called to them to stop.
+“My lord, the lady has been soliciting me these two hours with gold and promises to procure her a post chaise for London. I know no longer how to deny without appearing entirely in your interest. What shall I do? -
+
+“Receive her gold by all means, Lucy, and order a post-chaise. When she has got in it, let my people secure the postilions till I am warned of her flight."
+
+I got up, and stepped into a room, from whence I could, unseen, observe the motions of Emily. I had hardly given my orders to my valet de chamber, when she came into the yard, and, after having thrown her looks every way for fear of spies, fly tiptoed to the chaise, and leapt into it. Emily had not indulged two minutes the hope of running away from me before my valet de chamber destroyed, by his presence, the flattering illusion.
+
+“May I ask, madam, where you are going?” -
+
+Emily turned from him with contempt, and bid the postilions to go.
+
+“My duty, madam, obliges me to oppose your departure, till my master is acquainted with it.” -
+
+And calling one of the Servants, he sent him to me, whilst he threatened Lucy with my indignation for having favoured the lady’s frolicksome trick. -
+
+“Am I a slave, cried Emily, biting her lips with spite and fury -
+
+“I dare say, madam, that his lord ship will not detain you one minute against your will - here he comes -
+
+"What! - My Emily flying from the man who adores her? - Am I awaked? - is it Emily I see? -
+
+And I feigned the greatest amazement. Emily was too sensibly affected with the miscarriage of her favourite scheme to answer me. She cast her eyes down, and the sighs she involuntarily breathed were marked with grief.
+
+“Are not the indiscretions of a lover excused by the beauty of his mistress? - Were I constantly decent and respectful, what idea could you entertain terrain of my passion for you? - Your virtue is too severe, Emily -
+
+“Yours, my lord - but you have none - I mistook your character -
+You have made a wretch of Emily -
+
+And some tears stowed over her lovely bosom. 
+
+“Those tears are an insult to my honour -
+
+“You honour! - You dare to talk of honour! - prostitute not that
+sacred word - Alas! that I should speak such a language - speak it without injuring you! -
+
+"Reserve this pathetic, Emily, for your interview with your mother - This is not a proper time to rehearse it -
+
+“Add not raillery to abuse - you are already but too contemptible -
+
+“You will give me leave, Emily, to differ from your opinion - I have been guilty of many follies and errors, but never of meanness.
+
+"What right have you to detain me here? -
+
+"You have been committed to my care.” - 
+
+The hue of indignation flushed up into her face. -
+
+"How bold and shameless!" -
+
+I thought it then a seasonable time to be displeased in my turn.
+
+"Madam, my impertinence deserves not such an effusion of contempt - Will you go to Lincoln, or return to London - Choose which you like the best -
+
+"To London, my lord -
+
+“With all my heart, madam - I’ll see you safe at home.” -
+
+And turning from her, with the air of indifference, I ordered my chaise to be got ready. Emily’s anger began to abate: she alighted, and passed into the parlour, where she sat pensive and me lancholic. I crossed the parlour, and affected to take no notice of her. A few minutes after, being told that th carriage was at the door, she fouewed my valet de chamber. Surprised at my not following her, and at thp order given to the postilions to Set our, and take the road to London, she called to them to stop.
 /
 ¥
 “Where is my lord i
