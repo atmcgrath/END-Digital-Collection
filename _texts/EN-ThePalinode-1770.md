@@ -35,27 +35,27 @@ toc:
 - Letter XXII
 - Letter XXIII
 - Volume II 
-- Letter I
-- Letter II
-- Letter III
-- Letter IV
-- Letter V
-- Letter VI
-- Letter VII
-- Letter VIII
-- Letter IX
-- Letter X
-- Letter XI
-- Letter XII
-- Letter XIII
-- Letter XIV
-- Letter XV
-- Letter XVI
-- Letter XVII
-- Letter XVIII
-- Letter XIX
-- Letter XX
-- Letter XXI
+- Volume II Letter I
+- Volume II Letter II
+- Volume II Letter III
+- Volume II Letter IV
+- Volume II Letter V
+- Volume II Letter VI
+- Volume II Letter VII
+- Volume II Letter VIII
+- Volume II Letter IX
+- Volume II Letter X
+- Volume II Letter XI
+- Volume II Letter XII
+- Volume II Letter XIII
+- Volume II Letter XIV
+- Volume II Letter XV
+- Volume II Letter XVI
+- Volume II Letter XVII
+- Volume II Letter XVIII
+- Volume II Letter XIX
+- Volume II Letter XX
+- Volume II Letter XXI
 ---
 
 ---
@@ -1784,7 +1784,7 @@ T. Evans, No, 54, Paternoster-Row.</p>
 
 ---
 
-## LETTER I.
+## VOLUME II LETTER I.
 
 John Rambler, Esq; to Sir Francis Crosley.
 
@@ -1867,7 +1867,7 @@ The presence of the waiters put an end to his gratitude, and the blushes of Emil
 
 ---
 
-## LETTER II.
+## VOLUME II LETTER II.
 
 Lord C----- gazed upon Emily with the eye of a tender parent, who had unexpectedly rescued his only favourite daughter from the hands of an inhuman ravisher - Emily looked, and spoke all the feelings of a heart delicately sensible to the generosity of her benefactor. Often did the tear of joy trickle down her cheeks - that tear lord C----- answered with the language
 of concern and tenderness.
@@ -2029,7 +2029,7 @@ Emily’s bosom heaved with gratitude and delight - she abandoned her hand to th
 
 ---
 
-## LETTER III. 
+## VOLUME II LETTER III. 
 
 When we arrived at the castle, the countess was walking ia the garden with Mrs. Guery. Lord C----- left Emily and his nephew in a parlour, and took me with him.
 
@@ -2116,7 +2116,7 @@ I marked my answer in a respectful bow, and entered a covered alley.
 
 ---
 
-## LETTER IV
+## VOLUME II LETTER IV
 
 I step’d to a solitary bower, and attentively inquired into the real state of my feelings and situation. After twenty minutes scrutiny, I found my heart entirely changed: gratitude, honour, delicacy, and benevolence, guests once thought I should never welcome, had taken possession of it. The countess began my metamorphosis, and Emily finished it. Neither fortune nor lord C-----, would have worked so effectually upon my soul, as to transform me from a knave into an honest man.Riches, which ought to be an encouragement to virtue, are so often an incentive to vice, that my passions might have disputed the power of lord C----- but the perpetual sacrifice the countess made to her modesty, and the uncommon generosity of Emily were of an authority not to be resisted. They forcibly sprung a new life in me, and made me the contrast of myself.
 
@@ -2240,12 +2240,11 @@ Young men, fond of their liberty, or enamoured of virtue, should not gaze upon a
 
 --- 
 
-## LETTER V. 
+## VOLUME II LETTER V. 
 
 With me, Mrs. Guery discarded her borrowed character, and assumed her own: I saw neither the prude, nor the coquette. Convinced of the sincerity of my affection, she frankly laid her heart open before me, that I might exult at the discovery of its feelings. Her noble behaviour made a deeper impression upon me than her beauty had done. I beheld her with respect and admiration, and at last with put disguise, personated the lover.
 
-"This woman, said I to myself, is too real an enemy to dissimulation, not to be strictly virtuous. Hypocrisy is the spring of every vice in the female heart; it fills it up with deceit, and disarms it against the attack of the passions. When the habit of feigning has made falsehood familiar, religion and honour lose gradually their authority,, and virtue resigns her rights to prudence; The probity of a lover, or the Safety of a rende vous, are sufficient to corrupt the modesty of a woman of such
-a contemptible charadler.____ingenuity
+"This woman, said I to myself, is too real an enemy to dissimulation, not to be strictly virtuous. Hypocrisy is the spring of every vice in the female heart; it fills it up with deceit, and disarms it against the attack of the passions. When the habit of feigning has made falsehood familiar, religion and honour lose gradually their authority, and virtue resigns her rights to prudence. The probity of a lover, or the safety of a rende-vous, are sufficient to corrupt the modesty of a woman of such a contemptible character. - Ingenuity
 is the mark of an honest heart — the virtue of Mrs. Guery will triumph over love.” -- -- -!
 This conclusion did not deter me from the resolution I had formed — *
 I was '
