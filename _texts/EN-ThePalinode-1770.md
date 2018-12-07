@@ -8,8 +8,33 @@ source: UPenn Digital Collection of British and American Fiction, 1660-1830
 publication-date: 2018
 toc:
 - Half Title Page
+- Volume I
 - Full Title Page
 - To the English Ladies
+- Letter I
+- Letter II
+- Letter III
+- Letter IV
+- Letter V
+- Letter VI
+- Letter VII
+- Letter VIII
+- Letter IX
+- Letter X
+- Letter XI
+- Letter XII
+- Letter XIII
+- Letter XIV
+- Letter XV
+- Letter XVI
+- Letter XVII
+- Letter XVIII
+- Letter XIX
+- Letter XX
+- Letter XXI
+- Letter XXII
+- Letter XXIII
+- Volume II 
 - Letter I
 - Letter II
 - Letter III
@@ -34,6 +59,7 @@ toc:
 ---
 
 ---
+
 ## Editor's note
 This text has been OCRed and hand-corrected from the [digital surrogate](http://hdl.library.upenn.edu/1017/d/print/99607863503681) in Penn Libraries' Digital Collection of British and American Fiction. The original book is held by the Kislak Center for Special Collections (Penn Libraries, University of Pennsylvania).
 
@@ -45,6 +71,8 @@ This text has been OCRed and hand-corrected from the [digital surrogate](http://
 PALINODE.</p>
 
 ---
+
+<a id="volume-i" />
 
 <a id="full-title-page" />
 
@@ -92,7 +120,7 @@ John Rambler, Esq; to Sir Francis Crosley.
 
 Though I have told thee twenty times, dear Francis, that to women I am indebted for the good qualities thou praisest in me, thou still perseverest in thy incredulity - Why dost thou not believe me?
 
-- "Experience has taught thee that the fair may make a vicious, but never a virtuous man." - Thy experience proves only thou hast sacrificed thy taste, delicacy, and reason, to the want of thy senses. Were I to conclude from lord S-w-h's irreligion and
+"Experience has taught thee that the fair may make a vicious, but never a virtuous man." - Thy experience proves only thou hast sacrificed thy taste, delicacy, and reason, to the want of thy senses. Were I to conclude from lord S-w-h's irreligion and
 contempt of honour, that every lord is the scandal and the disgrace of the nation, wonldst thou take my word? A few profligate fellows and libertine women are not the satire of mankind. Weeds, Francis, will sometimes grow among the lilies and roses — a sir James L----- will be seen with a duke of
 Portland.; a lady Gr-----r with a dutchess of Buccleugh; but be certain, that nature is as much asleep when she creates such a baronet and vicountess, as the gardener is inattentive when he suffers a nettle to exist near the most beautiful flowers, which adorn our gardens.
 
@@ -109,7 +137,6 @@ Women of rank, fortune, or good education, dear Francis, have generosity, virtue
 
 To that School I owe the esteem of the world; had it not been for it, I should probably be below their contempt.
 Adieu.
-<<<<<<< HEAD
 
 London 1770.
 
@@ -120,8 +147,6 @@ London 1770.
 Sir Francis Crosley, to John Rambler, Esq.
 
 My reason is proof againss words, Jack. Either cease to maintain that women are virtuous, or illustrate thy assertion with facts. Name me some beauties, who having loved, have triumphed over their own desires, and the attacks of their lovers - then - then only, will I believe thee.
-
-=======
 
 London 1770.
 
@@ -152,15 +177,15 @@ will relate in my next. Adieu.
 
 ## LETTER IV
 
-Thou hadst not ledt Oxford three months, when a letter I received from my father, plunged me into real misery, and from the happiest of the thoughtless Oxonians, made me the most anxious of all the rational beings. The loss of two ships richly loaded, which had been taken by a French privateer off Cape Finisterre, reduced him to the utmost indigence. -  He had but time to write the fatal news, as the fear of his creditors compelled him to fly immediately to Holland. — “I have
+Thou hadst not left Oxford three months, when a letter I received from my father, plunged me into real misery, and from the happiest of the thoughtless Oxonians, made me the most anxious of all the rational beings. The loss of two ships richly loaded, which had been taken by a French privateer off Cape Finisterre, reduced him to the utmost indigence. -  He had but time to write the fatal news, as the fear of his creditors compelled him to fly immediately to Holland. — “I have
 no money to send you, added he, nor can I provide for your futuresSupport - you have knowledge and wit - there are opulent fools in England - your fate is in your own hand; it will be your fault if it is unhappy. - Please or be useful, if you possess either of those advantages you need no other - without them, be ever so virtuous or learned, you shall languish your life away, the scorn of mankind.” -
 
 Had my father’s advice been accompanied by a purse of gold, I might have ventured to London in search of the fools he Spoke of. - But poor and friendless - be not angry Francis; I know
 I thou wouldst have taken me to thy bosom, and made me share in thy wealth, had I acquainted thee with my distress. - In the first flutter of my spirits, I did not think of thee, and when friendship revived thee in my memory, love struck me silent.
 
-Pride suffering me not to stay at Oxford till my disaster should mark me out an object of pity, I set off the next day on foot for London. The natural carelessness of my temper dissipated gradually the gloomy thoughts which had crowded into my mind; I laughed at an evil which it was not in my power to avoid. Hope and philosophy supported my courage, and spread flowers upon the road I walked. The third day of my journey, as I was crossing Hyde-park, I saw at some distance a throng of men and horses.  Asking for the cause, I was told it was a sale of some of the most beautiful hunters in England. Thou knowest Francis, that I have studied horses more than Greek and Latin, and that I was renowned for my knowledge of their beauties and defects. Curiosity brought me to the place, where, at the first sight, I could not help admiring the hunters. They had such a form, such a life, as made me envy a noble lord who intended to purchase them. The affectation of the jockey, in keeping unnecessarily the horses in a perpetual movement, made me suspicious. I observed with the eye of self interest, and soon discovered a weakness in the left hinder leg of one of the hunters, which the art of his rider had secreted from the spectators. Angry at the deceit, the villain designed to put upon the nobleman, I drew nearer his lordship, and when he offered three hundred guineas for the lame hunter, I cried aloud, that the horse was not worth forty. Not worth orty! exclaimed almost every person present; and they looked upon me with the supercilious smile of contempt. No, not worth forty, answered I boldly. The horse courser, damning me and my judgement, desired some of his friends to duck me in the Serpentine river. His desire they cheerfully undertook to gratify. I was nigh being the victim of my honesty, when
+Pride suffering me not to stay at Oxford till my disaster should mark me out an object of pity, I set off the next day on foot for London. The natural carelessness of my temper dissipated gradually the gloomy thoughts which had crowded into my mind; I laughed at an evil which it was not in my power to avoid. Hope and philosophy supported my courage, and spread flowers upon the road I walked. The third day of my journey, as I was crossing Hyde-park, I saw at some distance a throng of men and horses.  Asking for the cause, I was told it was a sale of some of the most beautiful hunters in England. Thou knowest Francis, that I have studied horses more than Greek and Latin, and that I was renowned for my knowledge of their beauties and defects. Curiosity brought me to the place, where, at the first sight, I could not help admiring the hunters. They had such a form, such a life, as made me envy a noble lord who intended to purchase them. The affectation of the jockey, in keeping unnecessarily the horses in a perpetual movement, made me suspicious. I observed with the eye of self interest, and soon discovered a weakness in the left hinder leg of one of the hunters, which the art of his rider had secreted from the spectators. Angry at the deceit, the villain designed to put upon the nobleman, I drew nearer his lordship, and when he offered three hundred guineas for the lame hunter, I cried aloud, that the horse was not worth forty. Not worthy! exclaimed almost every person present; and they looked upon me with the supercilious smile of contempt. No, not worthy, answered I boldly. The horse courser, damning me and my judgement, desired some of his friends to duck me in the Serpentine river. His desire they cheerfully undertook to gratify. I was nigh being the victim of my honesty, when
 lord C-----, who in the mean time had perused me from head to foot, humanely interposed in my favour, and saved me from the rage of the disappointed sharpers. His lordship took me apart. “Who are you?” - unwilling to let him know what I had been, I told him, that having lately lost my master at Oxford, I was going to London in search of a place. "What imperfection have you observed in that horse?" - I whispered the discovery I
-had made, and begged his lordship's protection. Lord C ----- turned to the jockey, and ordered him to dismount. The unwillingness of the fellow to obey provoked his lordship, who charged his master with an intention to cheat him. The horse is lame, said lord C ----- to the spectators. Suppose he is, answered the master, with an unspeakable assurance, must I tell it you? - My business is to sell; yours is to know what you buy. Were it not for lucky casualties, who would undergo the fatigues of my trade whatever, and be the slave of he public? Though his lordship seemed to be contented with that apology, the spectators resented it with an honest anger. They all to a man fell upon the horse courser and his friends and chastised them severely for their impudence. After lord C ----- had for a few minutes feasted his indignation with the punishment deservedly inflicted upon the scoundrels, he thanked me for the service I had done him, and bid a servant to shew me the way to his house.
+had made, and begged his lordship's protection. Lord C----- turned to the jockey, and ordered him to dismount. The unwillingness of the fellow to obey provoked his lordship, who charged his master with an intention to cheat him. The horse is lame, said lord C----- to the spectators. Suppose he is, answered the master, with an unspeakable assurance, must I tell it you? - My business is to sell; yours is to know what you buy. Were it not for lucky casualties, who would undergo the fatigues of my trade whatever, and be the slave of he public? Though his lordship seemed to be contented with that apology, the spectators resented it with an honest anger. They all to a man fell upon the horse courser and his friends and chastised them severely for their impudence. After lord C----- had for a few minutes feasted his indignation with the punishment deservedly inflicted upon the scoundrels, he thanked me for the service I had done him, and bid a servant to shew me the way to his house.
 
 ---
 
@@ -172,26 +197,22 @@ As soon as I came to lord C-----'s he sent for me.
 
 Considering the emptiness of my purse, and that many an individual had from a lower degree risen to opulence, through the interest of their patrons, I gratefully accepted the employment he gave me.
 
-“I fancym,Rambler, said his worship with a smile, that twenty guineas will not hurt you in the situation you are. - Besides I owe you a reward, and it is just I should pay it." -
+“I fancy, Rambler, said his worship with a smile, that twenty guineas will not hurt you in the situation you are. - Besides I owe you a reward, and it is just I should pay it." -
 
 Ineed not tell thee, Francis, that I made no objection to his generosity. I pocketed the money, and immediately entered into office.
 
 The sight and feeling of the twenty guineas, tempted me often to leave lord C -----’s service, and I know not what would have been the consequence of that perpetual temptation, had not my father’s letter occurred, to my mind. I had adopted the notion, that the man who prides in being just and grateful, was born to be the fool of an artful knave. - Lord C ----- was that man --  
 that reflection determined me. I remained in the post fortune had placed me, and filled its duty with care, alacrity, and to the utmost satisfaction of his lordship.
-<<<<<<< HEAD
 
 I had not been three weeks in the house, before a favourite footman initiated me into the secret of his master's passions. Jealousy was the predominant in his heart. The countess was young, gay, handsome, and it was whispered abroad, she was not the most faithful of wives. I asked whether she had confirmed his lordship’s suspicions. - “We all sincerely believe, answered the footman, that she has not. From the coquettry of her carriage, and her love of dissipation only, he questions her virtue. Since that whim has entered his head, many are the dismal hours he passes alone in his closet, many the vexations the countess labours under.” - I am afraid he will at last force his lady to realise his fears, and deserve the opinion he unjustly entertains of her. - I know not for a wife a greater incentive to infidelity than the unjust suspicions of her husband - the charms of a lover have not, half their
 power and seduction. - This reflection I kept to myself.
 
-=======
-
 I had not been three weeks in the house, before a favourite footman initiated me into the secret of his master's passions. Jealousy was the predominant in his heart. The countess was young, gay, handsome, and it was whispered abroad, she was not the most faithful of wives. I asked whether she had confirmed his lordship’s suspicions. - “We all sincerely believe, answered the footman, that she has not. From the coquettry of her carriage, and her love of dissipation only, he questions her virtue. Since that whim has entered his head, many are the dismal hours he passes alone in his closet, many the vexations the countess labours under.” - I am afraid he will at last force his lady to realise his fears, and deserve the opinion he unjustly entertains of her. - I know not for a wife a greater incentive to infidelity than the unjust suspicions of her husband - the charms of a lover have not, half their
 power and seduction. - This reflection I kept to myself.
 
->>>>>>> master
 Sometime after we all set out for Elverton castle, a seat of his lordship’s in Lincolnshire.
 
-Lord C ----- was extremely fond of horses, but like most of the nobility knew very little of that noble and useful animal. As he would however pass for a connoisseur, I proved him so effectually he was a perfect one, that I ngratiated myself into his affection. Every day my conversation pleasing him better, he resolved to take me from the stable to the antichamber.
+Lord C----- was extremely fond of horses, but like most of the nobility knew very little of that noble and useful animal. As he would however pass for a connoisseur, I proved him so effectually he was a perfect one, that I ngratiated myself into his affection. Every day my conversation pleasing him better, he resolved to take me from the stable to the antichamber.
 
 “I love your person and wit, said he one day to me: Your merit is buried in the situation you are in; since I have discovered it, I will place you upon a stage where you may display it to advantage. My lady wants a gentleman; prepare yourself to act in that character; and be careful by your discretion and attachment, to deserve my future favours.”
 
@@ -233,6 +254,7 @@ And I respectfully kissed the hand she tendered me.
 She presented me a fifty pounds bank note. I pleaded in vain my disinterestedness; I was obliged to accept her generous gift.
 
 "Let not my lord know the consideration 1 have for you. - He will soon convince you of the necessity of keeping it a secret.” -
+
 I promised to be true to her - to obey her dictates, and execute her commands.
 
 The joy I felt at having so happily succeeded, diffused itself through every feature, and gave a charm to my carriage, which attracted lady C-----’s attention. I had the very looks of a lover just reconciled to his mistress. -  Had her ladyship told me, “I love you,"" I would not have been a more living picture of happiness. The countess beheld me with an air of satisfaction, which my self-love had a mind to interpret for sentiment. When a handsome woman smiles upon you, who will not be tempted to think he is not indifferent? Fearful to offend, I dissembled the mistake I was inclined to make, and casting modestly my eyes down, waited in silence for her further commands.
@@ -253,7 +275,7 @@ When I could, undisturbed, indulge a reverie upon my conversation with the count
 was, in my opinion, superior to the advantage of a noble birth; and, I had heard that several ladies of quality, preferred it always to title, fortune, and merit. “Why should not lady C-----
 be captivated by the same charm, which seduced so many others? Her youth bespeaks a want of pleasure, and her eyes, if my observation is just, are oftener enlivened by the fire of desire than deadned by the languor of indifference. - She hates her hushand." -
 
-This last refieclion, dear Francis, animated my hopes; I resolved to neglect no occasion of pleasing, and to act in such a discreet manner, as to be sure of my pardon, before I should venture to offend. The fifty pounds, and the new conceit O entertained, cooled my gratitude for lord C-----. Vain, and  
+This last reflection, dear Francis, animated my hopes; I resolved to neglect no occasion of pleasing, and to act in such a discreet manner, as to be sure of my pardon, before I should venture to offend. The fifty pounds, and the new conceit O entertained, cooled my gratitude for lord C-----. Vain, and  
 having my fortune to make, integrity fled from my heart: I gave way to love and ambition.
 
 In the presence of her women, the countess treated me with her usual coolness, but when they were absent she made amends for it with a most enchanting familiarity. I told her one day that the family thought me in disgrace with her ladyship.
@@ -268,7 +290,7 @@ I was so taken up with the, “When we come to understand one another," that I d
 
 “What are you musing about, Rambler?” -
 
-"About the real sense of what you have Said.” -
+"About the real sense of what you have said.” -
 
 "Time will explain it.” -
 
@@ -374,7 +396,6 @@ closet, I opened the door and bolted it. Then, fearless of danger, and full of d
 and struck every particle of blood with the want of pleasure.
 
 “The luxurious banquet is prepared for me, said I to myself; if I do not feast like a god, never shall I deserve to be entertained with another”.
-<<<<<<< HEAD
 
 After this reflection, I resolved to do honour to the generosity of my noble inviter, and to enjoy the bliss she offered. Respect, and the cursed apprehension of offending, moderated the fiery pressure of my lips. - A sigh the countess breathed, and the lively colouring of her cheeks, told me plainly I might dare - yet I durst not -
 
@@ -382,15 +403,12 @@ After this reflection, I resolved to do honour to the generosity of my noble inv
 
 How my heart beat! - her words proved her awake; her eyes closely shur said she was asleep. I hesitated.
 
-=======
-
 After this reflection, I resolved to do honour to the generosity of my noble inviter, and to enjoy the bliss she offered. Respect, and the cursed apprehension of offending, moderated the fiery pressure of my lips. - A sigh the countess breathed, and the lively colouring of her cheeks, told me plainly I might dare - yet I durst not -
 
 “Yes - love thee. Rambler, exclaimed the countess". -
 
 How my heart beat! - her words proved her awake; her eyes closely shur said she was asleep. I hesitated.
 
->>>>>>> master
 "Yes - I love thee - resumed she again". -
 
 My courage revived. I was go to confirm my triumph, when she stretched her hands, glanced her fingers her eyes, and turned to the to the other side of the bed. The fear she should awake, had at the first motion of her arm forced me to retreat behind the curtain. Then I began to think tthat the countess was really a steep. She had seemed to partake of my desire. But could not nature have, unknown to her, created those symptoms of passion? - had she only feigned to sleep would she not have continued the delusion? - This thought made me circumspect, diffident - I sat down up a chair, curling inwardly against my vanity and ill fortune.
@@ -408,7 +426,7 @@ Lady C----- had not the assurance to affect an anger she did not feel - forgetti
 “What do you mean?" -
 
 And, with a blush, she cast her eye down upon the bed.
-t
+
 “I was to hear from your own lip: that yost love me.” -
 
 “I own. Rambler, I have dreamed of you - in that hour of forced delusion, you appeared to me the most amiable of men - I did not think of opposing the seduction, but obeyed the actual impulse, - did I speak the dream I made?”
@@ -606,7 +624,6 @@ not being disliked, I’ll be content and happy - What is a smile - a line? -  D
 
 "The villain! Exclaimed lord C----- when he had read. How he has abused my confidence and friendship! He made an absolute fool of me - it was he, Rambler, who created my suspicions against lady C-----. He observed to me, that she was courted, and often whispered to by some young men, who compose her society - by his advice I forbid the countess to admit the visit of those he pointed out to me for her favourites, and prevented her from forming connexions he did not approve of - My diffidence of her altered my temper - an offensive severity succeeded my former indulgence, and my good nature gave way to misanthropy. From this change in me, and my implicit adhesion to his counsels, he hoped, the villain! to meet with a more favourable reception from a woman exasperated against her husband - I am ashamed of the part the scoundrel has engaged me to perform. - I owe a reparation to the countess, and I will give it - She must not any more curse the hour when she became my wife. - My sole care will be to make her happy - this instant I’ll go to her, fall at her feet, and ask for the past. -
 
-<<<<<<< HEAD
 “Betray me not, my lord — I stole this billet from her - let me not be miserable for having served you.” -
 
 “Fear not, Rambler; I answer for her gratitude: she will reward thee for a treason, which gives her back the esteem and affection of her husband - no longer art thou my servant, but my friend - this very day I’ll make thee independent - thou shalt sit at my table, and my people will make no difference between thee and me. - The man who has made me happy, has a lawful claim to my fortune and respect." - 
@@ -838,3612 +855,1396 @@ have a faithful and sagacious agent in London, who will carry a secret correspon
 
 I was enchanted to have so fair an pccasion of removing from Elverton-castle, which my unhappy passion for the countess, made every day more disagreeable to me. Far from feeling a pain at the thought of being deprived of her sight, I rejoiced as the slave, who unexpectedly recovers his liberty. The part I was to perform upon the state of the polite world, flattered my pride; 
 I was impatient to begin it, and that impatience sided for me 
+against the charms of the countess, and the seductions of love. Passions, dear Francis, cannot be conquered but by passions; let moralists boast the power of reason; is a weak enemy against our sensibility. Without the help of pride, I would have had neither the inclination nor the courage to refuse the temptations of desire, and leave the countess. I had promised to revenge her of 'squire Benson, formed my plan with my lord, and taken the execution upon me. The sudden journey of that gentleman into Northamptonshire, from whence he was not yet returned, had delayed his punishment; I was extremely vexed not to be able to inflict it before my setting out for London; but as he was fated to receive the reward due to his malice, his unpropitious star threw him into my way, when I had lost every hope of seeing him.
 
-against the charms of the countess, and the fedudions of love. Passions, dear Francis, cannot be conquered but by passions; let moralists boast the power of reason;; is a weak enemy against our' Sensibility; Without the help of pride, I would have had neither the inclination nor the courage to refuse the temptations of desire, and leave the countess. I had promised to revenge her of ’squire Ben son, formed my plan with my lord, and
-taken
-C io ]
-b
-taken the execution upon me. Tfxt
-i
-sudden journey of that gentleman intc Northamptonshire, from whence he was
-not yet returned, had delayed his punishment; I was extremely vexed noi to be able to inflidl; it before my Settinc out for London; but as he was fated t( receive the reward due to his malice his unpropitious star threw him into m;
-• way, when I had lost every hope of See ing him.
-\
-«
-As I was going to the garden, trusty Servant, one of the executors C my plan of revenge, told me tha ‘’squire benson’is huntsman had jul alighted, from whom he learned that h master was arrived, and intended t Spend the evening with my lord. I in mediately gave the necessary orders, an
-aftt
-I
-i 109- j
-after having feigned an head ach, and retired to my room,, stole away with my associates to a private place of the park, through which the ’squire was to pass in his way to the castle. We were mashed, and in a dress to defy the eyes
-‘ N
-of the ’squire and his attendants. hard ly half an hour had elapsed, when we Saw benson in his chaise followed by two Servants on horseback. I stopped the'
-postilion, and obliged him to dismount, while two of my companions Secured the Servants, and a third held a pistol to the ’squire’s breast.
-i
-.. “If it is my purse you want, cried the frightened ’squircj here it is, take' kj, and let me go.” — —
-cxiit
-#
-4
-L iic) ]
-Our silence threw him into a mortal anxiety. I bid him with a sign of my
-hand to alight; and as he did not obey dire<5uy, we forced him out of the chaise.
-Will you kill me ^ -- -- --
-** No, your life is Safe : But you must undergo a Severe corredfion Sora villainy you have been guilty of. -- -- -
-“God God! I never offended anybody. -- -- -- --
-Fifty lashes more you shall Suffer for that lie. -- --
-^ Mercy! mercy! —
-The
-[ III ]
-“The man who has wantonly at,, to defame a virtuous woman, deserves none. — Come, friends, let him be stripped naked. -- -- -- -
-“What woman have I injured? — I am innocent; believe me. — Name my enemy — I know none. -- -- -- -- -- -
-w
-“Your ill nature is your Sole enemy, — friends, do as I have bid.’* -- -- --
-I
-The ’squire fell at my feet — implored my pity — offered any Sum of money, — he was forcibly undressed, and tied to a tree.
-/
-With all our might, we Switched him till blood stowed from every part of his body. He prayed, threatened, roared; out hearts did not give way to
-compassion.
-[ ” 2 ]
-Compassion, but when our hands were tired of striking; then pouring a pail of honey and vinegar over him, I whis pered in his ear, “Remember the coun tess of C -- -- and we retired by unfrequented
-paths to the castle.
-\
-I had not been ten minutes in ray room, before lady C -- -- -- ’s waiting woman
-came from her mistress to know
-how I did.
-/
-I have been very ill mistress Lavender; but steep has cured me. — I’U wait instantly upon her ladyship. Is the company gone? — — —
-/
-No, sir; they all Soup here.” —
-I wall
-ft
-I
-\
-I
-I II 1
-I was glad of it. A fete a tite with the countess I feared novas much as I had wished for it formerly. My lord was still in his closet, and I found his lady musing in the midst of a numerous,
-gay and lively circle. The countds stepped into the next room as Soon as she Saw me, and a few minutes after, I received a message to come to her. She was alone.
-• 1
-4
-/
-You have made me very oineasy',, Rambler; you have not been well — — What ails you ^ -- -- -- -- -- -- -
-I
-i
-And she tenderly threw her arm round my neck,
-f
-4
-'t
-You
-t J
-You are So Severe. — — • — «
-V
-Severe, when I granted whatever you ashed, except what the honour of my hnshand forbid me to give! — ^ Rambler! have I not made you the Sacrifice of my modesty? -- - — Do I not
-this very minute express my affection
-✓
-for you in this kiss .'-^ — Complain not
-of my Severity -- -- It is a Satire against
-me. -- -- To please you I have launched
-beyond the line of decency — - Nay, offended virtue — — I have wished for
-your happiness -- -- That wish has made
-me almost as guilty, as reality would have done. — — — ^
-From the intention to the faff, there is but one step, — that step will not add to the guilt“
-“
-4^ •
-t US 3
-“That step, dear Rambler, makes the vicious or virtuous woman, — it is the opinion of all the world — I am bound by law and religion to adopt,
-it. —
-“You have paid her due to Virtue, - — — * let Love have his hour of
-#.
-She strained me to her bosom- -- -
+As I was going to the garden, a trusty servant, one of the executors of my plan of revenge, told me that 'squire Benson's huntsman had just alighted, from whom he learned that his master was arrived, and intended spend the evening with my lord. I immediately gave the necessary orders, and after having feigned an head ach, and retired to my room, stole away with my associates to a private place of the park, through which the 'squire was to pass in his way to the castle. We were masked, and in a dress to defy the eyes of the 'squire and his attendants. Hardly half an hour had elapsed, when we saw Benson in his chaise followed by two servants on horseback. I stopped the postilion, and obliged him to dismount, while two of my companions secured the Servants, and a third held a pistol to the 'squire’s breast.
 
-»
-“I cannot, dear Rambler. — = — *
-'»
-“cease then to tempt me, — awake [iot my desires; their longings tear my
-enamoured Soul.” — -*
-• ^
-She
-t n6 1
-She sighed, — left me, and Sat down. After Some minutes of a Sentimental Sv
-9
-lence, the countess broke forth into the following exclamation.
-How I lova thofi Eambkf
-““Say it not, -- you will talk m(
-into madness. — I hate to hear thou
-words, — there is poison in them.” —
-I,
-, And I turned to the door. — —
-Come here, Rambler. -- -- --
-“Can you delight in tormentini me? -- -- -- -
-t,
-)
-Let us converse calmly. — —
-“firh
-w.
-1 II ]
-First, make me blind to your charms. -- -- -- Be as hateful as you are
-I
-lovely. -- -- --
-“Sit down by me. .....-
-Oh! it is time for me to sty. — ^
-Stay. — — *
-\
-I cannot.” — -
-* I
-And I stew out of the room;
-“Virtue! exclaimed lady C — — thou piercest my heart with an agony of grief!” -- -,
-\
-^ t
-(
-L E T
-1
-t h8 ]
-*
-$
-LETTER XIIL
-H E nnexpedfed turn the conversation had taken, having eraset benson from my memory, I communi cated what had passed in the park t( the countess, when she came back t( the company. Next to love, revenge II the favourite passion of woman. Lad]
-C -- -- was So delighted with my relation,
-that, perhaps, had we beet alone, she would not, in the height o: her gratitude, have thought either o virtue or of her husband. The aven ger would have enjoyed the bliss deniec to the lover. — Woman, woman! whc
-• n, __ - ^
-know
-«
-f "9 ]
-knows you well, cannot love in vain! beware of your passions, or you shall forcibly yield to the man, who will
-/
-work upon them I
-I wish, Rambler,, you had told me of benson in the nestt room — here I cannot express my thanks but with words — there my Sensibility had thanked
-pu.” —?
-** It is not yet too late; let’s go thither. — — —
-/
-She arose — then stopped — then Sat down again.
-“Refiedbion, dear Rambler, objefbs to that kind of thanks — they might
-carry me further than I intend -- -- --
-I fear —
-s
-{ 120 ] •
-I Sear — prudence bids me to stay. — i My lord must know what you have done. — ru go to him.”. -- -- -- -
-“I am fated never to be happy, sighed I; and I went to the card tables.” —
-4
-rleaned upon the back of the chair of a young widow, who might have boasted graces and beauty, would she not have studiousiy attempted to disfigure with art and affedlation, the charms
-she held from nature. She was neither a coquette, nor a prude, and yet had the ridiculousness of both. Like the former she would please;; like the latter, conceal that desire under the feigned austerity of her Speech. — ^co quetry made her countenance, and modesty
-[ }
-desty commanded her tongue. The
-.. «•
-gaiety of her looks invited a man int
-f
-indiscretion — she Spoke, he was discreet again. There was a peculiarity in her dress and gait, which made her ostea an absolute stranger to the company she was with. Of her Sex, she did not follow either the fashions or the manners. — Taney didlated her apparel and carriage. In the Society of the old or vir .tuous, she would Sometimes appear free and wanton — with the young and liberr tine, decent and Severe. Her fortune enabling Mrs. g uery to keep a Splendid house, and, live independent' and careless of the world, she thought it extremely rational to ast and behave as she pleafed.’*
-V
-vol. I. G The
-/
-✓
-E 122 ]
-The eyes of Mrs. Guery had often been fixed upon me with the expression
-t
-of Sentiment; had not my passion for the countess imposed Silence to my vanity, I would infallibly have fancied myself the object of her inclination. My thoughts being centred in lady C -- -- --,
-I had none to Spare in Savour of Mrs.
-, ✓
-guery’s expression of Sentiment — Not once was I tempted to refled upon it.
-The last Scene with the countess, being still present to my mind, I forgot myself, and breathed a sigh. Mrs. Guery turned instantly her head to dart
-4
-1 an agry look at the impertinent, who had
-been So bold as to sigh almost in her ear. — She Saw me, that look dissolved
-into a Smile— — —
-'*
+“If it is my purse you want, cried the frightened ’squire, here it is, take it, and let me go.” -
 
-I 123 ]
-Is it you, sir? — Did love cause that igh? -- -- -
-“It did — —
-And I gaz’d upon her with an air, which meant, “It is' you whom I love.” -- -- -- -
-“I am glad of it.” -- -- --
-r
-t V
->
-This answer she did not pronounce;
-i
-but I read it on her features, Suddenly animated with an unusual joy.
-1 lest her chair, ashing to myself, how I came to express what I did not feel. Nature explained that question. — “She is handsome, and I am young, her concern talked to my senses; and these betrayed me into a language I did
-not intend to Speak, ” — I went to the
-G 2 other
-L 124 J
-Other side of the table opposite to Mrs
-\
-Guery. — I was Soon confirmed in th certainty I was not indifferent to her That discovery made me behold he: with a curiosity, which no woman, be the countess, had yet inspired me with My attention enlivened her charms; sh grew lovely in proportion to th(
-pleasure I showed in Seeing her. 1 wa;
-". ♦ 1
-amazed at my having been, till thai
-instant, insensible of her beauty, and bl her affeflion for me. — The return 01 the countess put an end to my wonder — I had then no eyes, no attention bui for her. — Like an agreeable dream, Mrs. Guery vanished from my memory — the countess took possession ol my heart and mind.
-%
-^ ^ ^ ^ ^
-^ ^ ^ ^ ^
-The
-#
-[ 125 ]
-The countess had hardly graced the circle with her presence, when a gentleman came in, who told the company be had met Mr. benson in the greatest distress two miles from the castle — saint r ing, unable to Speak, Screaming at every jolt of his chaise, through ..the. Severity of a whipping he had undergone in Elverton park.
-“A whipping] Are you in earnest,? — was the general exclamation.
-One of his Servants told me his master had been Seized by four ruffians, tied to a tree, and whipped almost to
-4
-death. I asked him if he knew the authors, and the cause of the ’squire’s misadventure. They were mashed. — For the cause he knew nothing of it,
-as
-[ >^6 ]
-as he was kept at too great a distance to hear the Scourgers; and his master had not Said a word about it. — -- --
-In the park! cried the countess; mimicking a natural surprise. — What
-audacity! -- -- Mr. Rambler, order my
-people to mount their horses, and go in Search of those russians.
-“Spare them that trouble. Said Mrs. Guery; I dare Say that Mr, benson has deserved his punishment, and that those, who inssided it, are Safe. A husband or a lover, has revenged his wrongs
-upon the ’squire’s back. -- -- May every
-calumniator of female virtue Suffer the Same chastisement! I could kiss the man who has had the humanity to be the avenger of my Sex.” — "
-This
-[ 127 J
-This Sally of Mrs. Guery, uttered with resolution and Spirit, was echoed by all the ladies in the room, and the men were too complaisant not to appear pleased with the ’squire’s missor tune.
-“The ’squire’s mischievousncss, resumed Mrs. Guery, is of a nature which
-called for a more rigorous treatment.
-/
-Too cowardly to offend openly, he has made his Silence as expressive as the most decisive Sentence. I have often, purposely, ashed his opinion of the virtue of Several women I knew he did not love. — Not one word dropped from hi
-lips, -- he shook his head, and was as
-Silent as the grave. Indeed, when I appeared to understand his manner of
-answering, and vindicated the charafler
-of
-<
-[ 128 3
-, of the person of whom he could Speak tio good, he would break out into — “it may he — buv — then he would have paused, and changed the conversation. — Every one of you, ladies, has been honoured with his — “it may » buv -- -- -- -- --
-Every one <ss us, cried the coin tcfsl* — — -
-\
-I
-“Yes,, You, yourself my lady hav Bot been Spared. — —
-s
-“Has he had no respe(5t for mil! D —, miss F — ?........-
-\
-“Not he, upon my word; he hai
-t
-levelled ' his Satire indiscriminately a you all. — —
-« Th
-^ %• y
-1*
-t 129 ]
-“The villain! -- -- the villain
-Had women ^ right to Speak in he Senate, 1 would vote that public hanks should be given to the chastiser )S that daring calumniator. Such a brvice is more important to Society, han the advantages resulting from wenty vidtories over a powerful ene ny. these advantages are but mo nentary; but the Service of the former, vere it encouraged, would fix, for ever, ieace, union and happiness in every fa nily. A calumniator belies the dig iity we proudly attribute to the nature )S man. -- -- Hers a living Satire against
-■eason and virtue. — I know not a more
-%
-lespicable charafler. -- -- -- The pick
-socket and the highwayman, expose sravely their liberty and life to Satisfy
-'G 5 their
-[ >3° ]
-their wants; we may prepare against
-their attempts. -- -- But how can we
-defend ourselves against the wretch, who with art and secresy, beggars us of
-our reputation? -- -- -- The man who
-stabs us in the dark, is less guilty
-and infamous -- - — He only takes ost
-a life, which would have ended a few
-days, or a few years after -- -- But the
-calumniator makes that life a perpetual
-torment.” — —
-The Sentiments of Mis. Guery were received with applause; her just indignation passed in every heart, and animated every tongue. The grace with which she had delivered her Speech, made a deep impression upon me; I
-could hardly refrain from expreshng it.
-. — Thought
-]
-f
-.. — Though Sitting by the countess, I viewed the lovely orator with delight ^
-• -- -- -- Nay, I durst to praise her, with
-the language of admiration, upon the wk and good sense, she had So naturally
+Our silence threw him into a mortal anxiety. I bid him with a sign of myhand to alight; and as he did not obey directly, we forced him out of the chaise.
+
+"Will you kill me?" -
+
+"No, your life is safe: But you must undergo a severe correction for avillainy you have been guilty of. -
+
+“God God! I never offended anybody. - 
+
+"Fifty lashes more you shall suffer for that lie. -
+
+"Mercy! mercy! -
+
+“The man who has wantonly attempted to defame a virtuous woman, deserves none. - Come, friends, let him be stripped naked. -
+
+“What woman have I injured? - I am innocent; believe me. - Name my enemy - I know none. - 
+
+“Your ill nature is your sole enemy, - friends, do as I have bid."-
+
+The ’squire fell at my feet - implored my pity - offered any sum of money, - he was forcibly undressed, and tied to a tree.
+
+With all our might, we switched him till blood flowed from every part of his body. He prayed, threatened, roared; our hearts did not give way to compassion, but when our hands were tired of striking; then pouring a pail of honey and vinegar over him, I whispered in his ear, “Remember the countess of C-----," and we retired by unfrequented paths to the castle.
+
+I had not been ten minutes in my room, before lady C-----’s waiting woman came from her mistress to know how I did.
+
+"I have been very ill mistress Lavender; but sleep has cured me. - I'll wait instantly upon her ladyship. Is the company gone? -
+
+"No, sir; they all soup here.” -
+
+I was glad of it. A tete a tete with the countess I feared as much as I had wished for it formerly. My lord was still in his closet, and I found his lady musing in the midst of a numerous,
+gay and lively circle. The countess stepped into the next room as soon as she saw me, and a few minutes after, I received a message to come to her. She was alone.
+
+"You have made me very uneasy, Rambler; you have not been well - What ails you?" - 
+
+And she tenderly threw her arm round my neck.
+
+"You are so severe. -
+
+"Severe, when I granted whatever you asked, except what the honour of my hnshand forbid me to give! - Rambler! have I not made you the sacrifice of my modesty? - Do I not this very minute express my affection for you in this kiss? - Complain not
+of my severity - It is a satire against me. - To please you I have launched beyond the line of decency - Nay, offended virtue - I have wished for your happiness - That wish has made me almost as guilty, as reality would have done. -
+
+"From the intention to the fact, there is but one step, - that step will not add to the guilt. -
+
+“That step, dear Rambler, makes the vicious or virtuous woman, - it is the opinion of all the world - I am bound by law and religion to adopt it. -
+
+“You have paid her due to Virtue, - let Love have his hour of sway." -
+
+She strained me to her bosom. - 
+
+“I cannot, dear Rambler. -
+
+“Cease then to tempt me, - awake not my desires; their longings tear my enamoured Soul.” -
+
+She sighed, - left me, and sat down. After some minutes of a sentimental silence, the countess broke forth into the following exclamation.
+
+"How I love thee, Rambler! -
+
+“Say it not, - you will talk me into madness. - I hate to hear thou words, - there is poison in them.” -
+
+And I turned to the door. -
+
+"Come here, Rambler. -
+
+“Can you delight in tormenting me? -
+
+"Let us converse calmly. -
+
+"First, make me blind to your charms. - Be as hateful as you are
+lovely. -
+
+“Sit down by me. -
+
+"Oh! it is time for me to fly. -
+
+"Stay. -
+
+"I cannot.” -
+
+And I flew out of the room.
+
+“Virtue! exclaimed lady C----- thou piercest my heart with an agony of grief!” -
+
+---
+
+## LETTER XIII
+
+The unexpected turn the conversation had taken, having erased Benson from my memory, I communicated what had passed in the park to the countess, when she came back tt the company. Next to love, revenge is the favourite passion of woman. Lady C----- was so delighted with my relation, that, perhaps, had we been alone, she would not, in the height of her gratitude, have thought either of virtue or of her husband. The avenger would have enjoyed the bliss denied to the lover. - Woman, woman! who knows you well, cannot love in vain! beware of your passions, or you shall forcibly yield to the man, who will work upon them!
+
+"I wish, Rambler,, you had told me of Benson in the next room - here I cannot express my thanks but with words - there my sensibility had thanked you." - 
+
+"It is not yet too late; let’s go thither. - 
+
+She arose - then stopped - then sat down again.
+
+“Reflection, dear Rambler, objects to that kind of thanks - they might carry me further than I intend - I fear - prudence bids me to stay. - My lord must know what you have done. - I'll go to him.”
+
+“I am fated never to be happy, sighed I; and I went to the card tables.” -
+
+I leaned upon the back of the chair of a young widow, who might have boasted graces and beauty, would she not have studiousiy attempted to disfigure with art and affectation, the charms
+she held from nature. She was neither a coquette, nor a prude, and yet had the ridiculousness of both. Like the former she would please; like the latter, conceal that desire under the feigned austerity of her speech. Coquetry made her countenance, and modesty commanded her tongue. The gaiety of her looks invited a man indiscretion - she spoke, he was discreet again. There was a peculiarity in her dress and gait, which made her often an absolute stranger to the company she was with. Of her sex, she did not follow either the fashions or the manners. - Fancy dictated her apparel and carriage. In the Society of the old or virtuous, she would sometimes appear free and wanton - with the young and libertine, decent and severe. Her fortune enabling Mrs. Guery to keep a splendid house, and, live independent and careless of the world, she thought it extremely rational to ask and behave as she pleased."
+
+The eyes of Mrs. Guery had often been fixed upon me with the expression of sentiment; had not my passion for the countess imposed silence to my vanity, I would infallibly have fancied myself the object of her inclination. My thoughts being centred in lady C-----, I had none to spare in Savour of Mrs. Guery’s expression of sentiment - Not once was I tempted to reflect upon it.
+
+The last scene with the countess, being still present to my mind, I forgot myself, and breathed a sigh. Mrs. Guery turned instantly her head to dart an agry look at the impertinent, who had been so bold as to sigh almost in her ear. - She saw me, that look dissolved into a smile. -
+
+"Is it you, sir? - Did love cause that sigh? -
+
+“It did -
+
+And I gaz’d upon her with an air, which meant, “It is you whom I love.” -
+
+“I am glad of it.” -
+
+This answer she did not pronounce; but I read it on her features, suddenly animated with an unusual joy.
+
+I left her chair, asking to myself, how I came to express what I did not feel. Nature explained that question. - “She is handsome, and I am young, her concern talked to my senses; and these betrayed me into a language I did not intend to speak. ” - I went to the other side of the table opposite to Mrs. Guery. - I was soon confirmed in the certainty I was not indifferent to her. That discovery made me behold her with a curiosity, which no woman, but the countess, had yet inspired me with my attention enlivened her charms; she grew lovely in proportion to the pleasure I showed in seeing her. I was amazed at my having been, till that instant, insensible of her beauty, and of her affection for me. The return of the countess put an end to my wonder - I had then no eyes, no attention but for her. - Like an agreeable dream, Mrs. Guery vanished from my memory - the countess took possession ol my heart and mind.
+
+The countess had hardly graced the circle with her presence, when a gentleman came in, who told the company be had met Mr. Benson in the greatest distress two miles from the castle - fainting, unable to speak, screaming at every jolt of his chaise, through the severity of a whipping he had undergone in Elverton park.
+
+“A whipping! Are you in earnest? - was the general exclamation.
+
+"One of his servants told me his master had been seized by four ruffians, tied to a tree, and whipped almost to death. I asked him if he knew the authors, and the cause of the ’squire’s misadventure. They were masked. - For the cause he knew nothing of it, as he was kept at too great a distance to hear the scourgers; and his master had not said a word about it. 
+
+"In the park! cried the countess, mimicking a natural surprise. - What audacity! - Mr. Rambler, order my people to mount their horses, and go in search of those ruffians.
+
+“Spare them that trouble, said Mrs. Guery; I dare Say that Mr. Benson has deserved his punishment, and that those, who inflicted it, are safe. A husband or a lover, has revenged his wrongs upon the ’squire’s back. - May every calumniator of female virtue suffer the same chastisement! I could kiss the man who has had the humanity to be the avenger of my sex.” -
+
+This sally of Mrs. Guery, uttered with resolution and spirit, was echoed by all the ladies in the room, and the men were too complaisant not to appear pleased with the ’squire’s misfortune.
+
+“The ’squire’s mischievousncss, resumed Mrs. Guery, is of a nature which called for a more rigorous treatment. Too cowardly to offend openly, he has made his silence as expressive as the most decisive sentence. I have often, purposely, asked his opinion of the virtue of several women I knew he did not love. - Not one word dropt from his lips, - he shook his head, and was as
+silent as the grave. Indeed, when I appeared to understand his manner of answering, and vindicated the character of the person of whom he could speak no good, he would break out into - “it may be - But" - then he would have paused, and changed the conversation. - Every one of you, ladies, has been honoured with his - “it may - But" - 
+
+"Every one us, cried the countess! - 
+
+“Yes, You, yourself my lady have not been spared. - 
+
+“Has he had no respect for miss D-----, miss P-----? -
+
+"Not he, upon my word; he has levelled his satire indiscriminately at you all. -
+
+“The villain! - the villain! -
+
+"Had women a right to speak in the senate, I would vote that public thanks should be given to the chastiser of that daring calumniator. Such a service is more important to society, than the advantages resulting from twenty victories over a powerful enemny. These advantages are but monentary; but the service of the former, were it encouraged, would fix, for ever, peace, union and happiness in every family. A calumniator belies the dignity we proudly attribute to the nature of man. - He is a living satire against reason and virtue. - I know not a more despicable character. - The pickpocket and the highwayman, expose bravely their liberty and life to satisfy their wants; we may prepare against their attempts. - But how can we defend ourselves against the wretch, who with art and secresy, beggars us of our reputation? - The man who stabs us in the dark, is less guilty and infamous - He only takes off a life, which would have ended a few days, or a few years after - But the calumniator makes that life a perpetual torment.” -
+
+The sentiments of Mrs. Guery were received with applause; her just indignation passed in every heart, and animated every tongue. The grace with which she had delivered her speech, made a deep impression upon me; I could hardly refrain from expreshng it.
+
+Though sitting by the countess, I viewed the lovely orator with delight - Nay, I durst to praise her, with the language of admiration, upon the wit and good sense, she had so naturally
 displayed.
-/
-/
-4
-)
-/ ^
-)
-S
-♦
-I
-LED -
-/
 
-C >32 j
-1
-/
-LETTER XIV
-I
-H E certainty of being loved by a handsome womaoj Francis, dist
+---
 
-poses a heart to gratitude; and gratitude is Sometimes as lively and delusive a Sentiment as love. Her actions and eloquence, made me oblivious of
-I
-Mrs. query’s foibles; my reason perceived no fault in the woman, who to wit united a flattering partiality in my favour. This indulgence is common, to all men; the stupid and the Sensible, pay equally that debt to self-love, always blind to the impdfed; ions of
-those
-[ »33 ]
-those by whom we are loved or esteemed.
-The countess took notice of the warmness of my compliments, and whispered in my ear, — “Have you forgot I am here — *-■
-Those few words, accompanied with a Smile — No woman, Francis, Smiled
-N
-like the countess — robbed Mrs. Guery of my homage, and destroyed the illusions self conceit had Surrounded me with,
-pleasure invaded the rest of the evening; he presided at Supper, commanded the countenance, and created the wit of every guest. Joy was the Sole sensation felt, when Sudden claps of thunder, and
-stashes of lightning threw the company
-into
-t 134 ]
-into terror and disorder. As the windows had been left open for the Sake of breathing the fresh air after a Sultry day, everybody hastened with the steps of fear to the next apartment. Their impatience adding to the confusion, Mrs, Guery hearing me banter calmly at the
-cowardly flight of So many feiisible peo
-✓
-pie, came to me.
-“You are a man, Mr. Rambler: With you I cannot be apprehensive of danger. — ’*
-Another frightful flash of lightning, altered instantly her language. She
-took hold of my hand, and preshng it in her’s*^
-“Lead
-• ^
-%
-[ 135 ]
-“Lead me to a place where I may be free from the tremendous sight and noise. — I am frighted to death. —
-I thought of a closet contiguous to the diningroom, in which the plate was kept. Thither I sheltered the trembling Mrs. Guery,
-“There is no chair here, madam 5 ru go and fetch one. —
-%
-“.Dis needless — i’ll sit upon the floor — leave me not by myself— — the
-the door. — What noise -- -- It Seems as
-if the elements vied with each other in their mutual destrudion. — My Soul shakes with horror. — Lie by me.”
-I obeyed.
-‘ 'I
-E 136 ]
-I obeyed, but So awkwardly that — I know not how it happened — my hand rested upon her bosom.
-\
-'^ k
-“Forgive. -- -- -- darkness only has
-caused my indiscretion.” - —
-Mrs. Guery appearing to take no notice of the position of my hand, and of my apology, I passed my arm round her waist, and left my hand in the pos
-i
-Session of the undisputed charms.
-“Do you thinl yourself Safe now against the storm
-I
-And I amorousiy told her lips that I loved.
-“You
-%
-I
-f
-i
-N
-I *37 I
-\
-You are more dangerous than the
-storm. -- -- My fear of it is vanished. —
-It is ungenerous to abuse the asylum you gave me. — let’s leave this closet
-\
+## LETTER XIV
 
-My transports are a tribute nature imposes upon our sensibility in favour of beauty. -- -- -- -
-“I cannot welcome a compliment made at the expense of my virtue— — -* cease to offend, or let us join the
-y
-company. —
-/
-I
-** It is too difficult to obey. -- ‘let’si
-go. —
-f
-** What! Have you So little power
-over your passions r
-%
-4
-• With[
-[
-“With another woman I might Sub
-due them. -- -- -- With you, love and de
-sire make me their siave. —
-“Love! how easily men pronouno that word! does not honour reprov you for the shameful prostitution of, Sentiment you do not feel -
-“It confirms what I have Said, — i love you. —
-“You love me! ah, ah, ah! i’l try whether I can be false with as gooc a grace as you. — I love you. — I hav( not Spoke those words with the Same accent of sincerity. — Let me hear yoi again. —
-“I love
-r '39 ]
-“I love you. —
-I will not attempt after your— — ' how long have you been practising the art of belying your thoughts? — 1 own, you excel me in that art’ — and yet I am a woman. —
-“Did you love me, you would ex press yourself as I do. — There is no deceit on my tongue — I love — I Say it as
-I feel. -- --
-“You are the most discreet man I have yet conversed with: You love me! how could you keep that Secret in your heart? —
-•'by praising my discretion, you have told the motive of my silence. —
-That
-i
-t 140 I ■
-“That discretion proves your indifference. -- -- Had you loved, you would
-have Spoke. — Talk not to me of a pas fion, which the darkness of this closet has caused.” -- -- -- -
-4
+The certainty of being loved by a handsome womaon, Francis, disposes a heart to gratitude; and gratitude is sometimes as lively and delusive a sentiment as love. Her actions and eloquence, made me oblivious of Mrs. Guery's foibles; my reason perceived no fault in the woman, who to wit united a flattering partiality in my favour. This indulgence is common, to all men; the stupid and the sensible, pay equally that debt to self-love, always blind to the imperfections of those by whom we are loved or esteemed. 
+
+The countess took notice of the warmness of my compliments, and whispered in my ear, - “Have you forgot I am here?" -
+
+Those few words, accompanied with a smile - No woman, Francis, smiled like the countess - robbed Mrs. Guery of my homage, and destroyed the illusions self conceit had surrounded me with. 
+
+Pleasure invaded the rest of the evening; he presided at supper, commanded the countenance, and created the wit of every guest. Joy was the sole sensation felt, when sudden claps of thunder, and slashes of lightning threw the company into terror and disorder. As the windows had been left open for the sake of breathing the fresh air after a sultry day, everybody hastened with the steps of fear to the next apartment. Their impatience adding to the confusion, Mrs. Guery hearing me banter calmly at the cowardly flight of so many feiisible people, came to me.
+
+“You are a man, Mr. Rambler: With you I cannot be apprehensive of danger. -"
+
+Another frightful flash of lightning, altered instantly her language. She took hold of my hand, and pressng it in her’s -
+
+“Lead me to a place where I may be free from the tremendous sight and noise. - I am frighted to death. -
+
+I thought of a closet contiguous to the dining room, in which the plate was kept. Thither I sheltered the trembling Mrs. Guery. 
+
+“There is no chair here, madam; I'll go and fetch one. - 
+
+“'Tis needless - I’ll sit upon the floor - leave me not by myself - shut the door. - What noise? - It seems as if the elements vied with each other in their mutual destruction. - My soul shakes with horror. - Lie by me.”
+
+I obeyed, but so awkwardly that - I know not how it happened - my hand rested upon her bosom.
+
+“Forgive. - darkness only has caused my indiscretion.” - 
+
+Mrs. Guery appearing to take no notice of the position of my hand, and of my apology, I passed my arm round her waist, and left my hand in the possession of the undisputed charms.
+
+“Do you think yourself safe now against the storm?" - 
+
+And I amorously told her lips that I loved.
+
+"You are more dangerous than the storm. - My fear of it is vanished. - It is ungenerous to abuse the asylum you gave me. - let’s leave this closet. -
+
+"My transports are a tribute nature imposes upon our sensibility in favour of beauty. -
+
+“I cannot welcome a compliment made at the expense of my virtue  - cease to offend, or let us join the company. -
+
+"It is too difficult to obey. - Let’s go. - 
+
+"What! Have you so little power over your passions? -
+
+“With another woman I might subdue them.- With you, love and de sire make me their slave. -
+
+“Love! how easily men pronouncethat word! does not honour reprove you for the shameful prostitution of sentiment you do not feel? - 
+
+“It confirms what I have said. - I love you. -
+
+“You love me! ah, ah, ah! I'll try whether I can be false with as good a grace as you. - I love you. - I have not spoke those words with the same accent of sincerity. - Let me hear you again. - 
+
+“I love you. -
+
+I will not attempt after your - how long have you been practising the art of belying your thoughts? - I own, you excel me in that art - and yet I am a woman. -
+
+“Did you love me, you would express yourself as I do. - There is no deceit on my tongue - I love - I say it as I feel. -
+
+“You are the most discreet man I have yet conversed with: You love me! how could you keep that secret in your heart? - 
+
+"By praising my discretion, you have told the motive of my silence. - 
+
+“That discretion proves your indifference. - Had you loved, you would have spoke. - Talk not to me of a passion, which the darkness of this closet has caused.” -
+
 And she arose.
-The storm is not over. —.
-“They may look for me.«> i must not be found here— — the fear of the lightning only made me imprudent,, another cause may be fuspedfed. — It is not enough to be really virtuous, a woman ought to have the reputation of it — Without that reputation,
-her virtue is of no advantage to Soi
 
-ciety. — —
-“What!
-f
-. I HI j
-What! not one kiss before we )a; t? -- -- --
-“No; not one.’’ -- -- -- -
-She opened the door, and bidding me not to follow her, stepped to the 'oom where the company had retired..
-\
-\ ^
-I
-4
-LETS
+"The storm is not over. -
 
-\
-«
-L 142 J
-• ^
-I
-LETTER XV
-♦
-THE facility with which I had Said,
-I love you. Surprised me; had I been true, I could not have acted more. naturally. I ceased to wonder how - men could wantonly deceive; how women could So easily believe. The behaviour of Mrs. Guery announced a woman of sense, Superior to the didlates of a silly pride. Though inclined to credit me, she had quickly discerned the man of gallantry from the lover — —
-I was ashamed of the part I had performed, and feared it would turn to my disgrace.
-My
-. r 143 ]
-My falsehood will prejudice her a sinst me, Said I to myself; she cannot teem the man who has attempted to ipose upon her credulity — her in ination for me must necessarily dwin le into indifference or contempt, ” ____
-1 loved the countess, Francis, and et was afraid of Mrs. guery’s displea
-ire -- -- 1 Searched for the reason into
-y heart -- -- there I found it in a rest:
-: curiosity, creating incessantly new esires, and forcing us to long for the njoyments of the goods we do not
-N
-loffess. Curiosity, like avarice, iat northeast er asseep : it commands over every snse, and, with the string of pleasure, eads the Soul at discretion. The love )f women is, I fear, the effect only of : uriosity.w -- ~W^ not this pashon the
-prin
-1 h4 1
-principle of our affection for the fair, would we, after a few months of intimacy with them, grow infensibly weary, indifferent, and inconstant? At that time, those refiedlions made but a weak
-impression upon me. -- -- -- -- No argument
-could have persuaded me that my pas Sibn for the countess would not have outlived my possession of her. At what season of life are not ' men children I We wish for a toy; do we get it, we
-i
-'pant .after another -- -- -- -- Thus, from the
-t
-hour we think to the hour we die, we are under the irresistible Sway of folly.
-\
-^ W W ^
-The storm Iiaving Subsided, the com
-I
-pany returned to the diningroom, and renewed their devotions to Bacchus and
-pleafurc:
-I, 145 J
-leasure. Soon after they left the castle, nd we retired to rest.
-4
-%
-%
-Ambition Suggested me that Mrs:
-4
-juery’s fortune was a prize Worthy of icing wished for — worthy of being ob ained, though at the expense of hof
+“They may look for me. I must not be found here - Though the fear of the lightning only made me imprudent, another cause may be suspected. 0 It is not enough to be really virtuous, a woman ought to have the reputation of it - Without that reputation,
+her virtue is of no advantage to society. -
 
-loiir -- that honour, which forbids to
-xpress what we do not think, appeared 0 me invented by knaves for the pur
-)ofe of cheating with ease the credu ous of their purse or reason. con duding it was not a real virtde, I re blved to Support the part I. had began, m.d. to convince Mrs. Query that I felt what I fpokc. Who will be true, when
-incerity can injure him either in his
-/
-brtune or reputation? As I could not, without belying my experience, admit
-I
-: he possibility of Such a self-denial in vol. I. H men
-'«
-/
-w
-L j
-I
-men living in Society, I Saw no meanness in the hypocrisy by the mean of
-which 1 was to become great and opulent. Had the person of Mrs. Guery been as uripleasant as it was desirable. Virtue would have told me not to sacri
-I
-'sice her happiness to ray ambition, and
-perhaps would I not have opposed her triumph; but certain that Mrs. Guery would never repent her confidence in me. Virtue was Silent, and self-interest confirmed my resolution.
-■' I •
-To carry this feigned amour with the looks of truth, and Secrete it from the countess, required an art I was afraid not to be master of. Mrs. Guery was often with her; at that time, could I at in character without displeasing cither of them? the countess had already
+"What! not one kiss before we part? -
 
-I
-1 h7 j
-dy reproved me for my attention to Mrs. Guery — Would not Mrs. Guery be, as naturally, provoked at an indifference I should causelessly affect?? modest and reserved women are, '
-%
-their pride is always delighted with a public homage. Coquettes would be
-an unknown being, would men pay,
-but in a tue a tite. their tribute of fiat
-tery and adorations.
-\
-Rather than to give an hour of un easiness to the countess, I would have chosen to fink again in my former
-station, and vegetate, all my life in a disgraceful obfeurity. I hoped her
-virtue would, at last? conquer over her passion, and change it into friendship. The woman who had So often come off victorious over love and nature, could
-H 2 not
-[ 148 ]
-not long indulge a Sentiment Ibe was determined never to gratify.
-“When her reason, assisted by absence, or the Scarcity of our private conversations, shall resume its power, the countess will applaud my behaviour, and countenance my ambition. -- -- -- -- Till
-that day comes, I must dissemble — let
-/
-me lose the fortune I covet — it will be
-no loss if the countess is happy.” — _
-•
-r
-After that Soliloquy, I refieded on
-0
-the authority a Sensible woman has over the passions of a young man. From a theorical knave, longing for the practical part, I had been, by degrees, forced into a delicacy of Sentiments I had not ' the idea of. Had not the virtue of the
-countess been put to the test by the Severe
-[ 149 ]
-vere trials it had undergone, she would have had no influence over my morals — I would have attributed her virtue to my stnshilfulness, or want of a proper opportunity, and continued an unbeliever to female chastity.. My esteem commenced my reform; I blushed at the errors I had entertained, and well come at last principles I had till then
-f
-laughed at. This alteration was not the only one the conntefs operated in my mind. I mistrusted what I heard every day against the fidelity of women, and undertook their defence openly,
-whenever their conduct was impeach
-#
+"No; not one." -
 
-• * V
-✓
-“You will change your opinion when you go to London, Said my friends,
-, bantering at my faith in woman’s virtue.
-/'■ [ IC ] ' -■
-tue. There llbertinism Sways with the more liberty, that, like villainy, it is eau ly concealed under the mask of honour, and that all adluated by the Same interest of pashng for the reverie of whiat they are, have agreed to take that mash for the identity of the person who wears it. Hence it happens that a really virtuous woman is often, from the coquet try of her manner, mistaken for a voluptuary, whilst the drapery of decency ranks the voluptuary among the devotees to virtue. A husband is Seldom beforehand with the public in the Secret of his wife’s intrigues. If the public is imposed upon, there is ten to one that the husband shall not know his disgrace; or that if he knows it, he will not dare to complain through the fear of not being believed. This certainly,
-Mr,
-[ II ]
-kfr. Rambler, has made the outward ppearance of the v/offiifen So extremely nodest, that, unless they be Surprised n the very ad: of infidelity, a world of )olite and Sensible people will always ide for them, and Swear to their con lancy. A woman is like a patriot. Soong as the former commits no indis
-■retion, and the latter accepts of no
-«
-or peerage, both are esteemed,
-m.d. respeded -- -- -- from the hour, only,.
-they betray themselves, they are hang sd up to the Scorn of the public.” -- -- *
-these refiedions against women con
-irmed me the more in my esteem ot them. Were they Such libertines as
-they were represented, they could not
-be So stridly upon their guard as not
-to, 'be forcibly themselves now and then;
-Impru*
-[ 15^ 1
-Imprudence is the attendant of vice — ' What a torment to belie perpetually our nature -- -- -- -- -- to look, to talk, to
-drcss, in opposition to our desires!
-ri *
-Such a Sacrifice for a few hours of a stolen unenjoyed bliss — for the Sake of the esteem of a public. So often wrong in their judgement! -- -- -- -- -- that discretion
-9
-s
-appeared to she an absolute chimaera —
-I thought no more, Francis; Morpheus
-#
-struck my senses wjth his Soporific band;
-t
-I gave way to steep, and awoke only when a Servant came to let me know that my
-lord was ready to Set out for Lincoln.
-\
-/.
-I
-«
-%
-✓
-4
-L E TT
+She opened the door, and bidding me not to follow her, stepped to the room where the company had retired.
 
-/
-[ '53 J J
-S
-LETTER XVI
-\
-A S in our - way to Lincoln we ^ ^ rode within a mile of Mr. Bei' '
-lord C -- was tempted to go
-m.d. inquire after the ’squire’s health,
-/
-He deserves, Rambler, I should idd insult to punishment.” —
-I
-And he bid the postilion to drive to ' knson hall. A Servant came to the; ate, and told his lordship, that his' naster was sick, in his shed, and had een ordered, by the physicians to See 0 company,
-H 5 what’s
-[ j54 ■ ]
-“what’s the matter with him : I wa: assured last night that he had beei whipped almost to death in my park. —
-I
-Is it true
-No, my lord. He fell frobi hi: horse, received Some contusions in hi: breast —
-L
-f
-On his back, you mean, don’ you
+---
+
+## LETTER XV
+
+The facility with which I had said, I love you, surprised me; had I been true, I could not have acted more naturally. I ceased to wonder how men could wantonly deceive; how women could so easily believe. The behaviour of Mrs. Guery announced a woman of sense, superior to the dictates of a silly pride. Though inclined to credit me, she had quickly discerned the man of gallantry from the lover - I was ashamed of the part I had performed, and feared it would turn to my disgrace.
+
+"My falsehood will prejudice her against me, said I to myself; she cannot esteem the man who has attempted to impose upon her credulity - her in inclination for me must necessarily dwindle into indifference or contempt." -
+
+1 loved the countess, Francis, and yet was afraid of Mrs. Guery’s displeasure. - I searched for the reason into my heart -
+there I found it in a restless curiosity, creating incessantly new desires, and forcing us to long for the enjoyments of the goods we do not possess. Curiosity, like avarice, is never asleep: it commands over every sense, and, with the string of pleasure, keads the soul at discretion. The love pf women is, I fear, the effect only of curiosity. - Was not this passion the
+principle of our affection for the fair, would we, after a few months of intimacy with them, grow insensibly weary, indifferent, and inconstant? At that time, those reflections made but a weak impression upon me. - No argument could have persuaded me that my passion for the countess would not have outlived my possession of her. At what season of life are not men children! We wish for a toy; do we get it, we pant .after another - Thus, from the hour we think to the hour we die, we are under the irresistible sway of folly.
+
+The storm having subsided, the company returned to the diningroom, and renewed their devotions to Bacchus and
+pleasure.  Soon after they left the castle, and we retired to rest. 
+
+Ambition suggested me that Mrs. Guery’s fortune was a prize worthy of being wished for - worthy of being obtained, though at the expense of honour - that honour, which forbids to express what we do not think, appeared to me invented by knaves for the purpose of cheating with ease the credulous of their purse or reason. Concluding it was not a real virtue, I resolved to support the part I had began, and to convince Mrs. Guery that I felt what I spoke. Who will be true, when sincerity can injure him either in his fortune or reputation? As I could not, without belying my experience, admit the possibility of such a self-denial in men living in society, I saw no meanness in the hypocrisy by the mean of which I was to become great and opulent. Had the person of Mrs. Guery been as unpleasant as it was desirable. Virtue would have told me not to sacrifice her happiness to my ambition, and perhaps would I not have opposed her triumph; but certain that Mrs. Guery would never repent her confidence in me. Virtue was silent, and self-interest confirmed my resolution.
+
+To carry this feigned amour with the looks of truth, and secrete it from the countess, required an art I was afraid not to be master of. Mrs. Guery was often with her; at that time, could I act in character without displeasing either of them? the countess had already reproved me for my attention to Mrs. Guery - Would not Mrs. Guery be, as naturally, provoked at an indifference I should causelessly affect? However modest and reserved women are, their pride is always delighted with a public homage. Coquettes would be an unknown being, would men pay, but in a tete a tete,their tribute of flattery and adorations.
+
+Rather than to give an hour of uneasiness to the countess, I would have chosen to sink again in my former station, and vegetate, all my life in a disgraceful obscurity. I hoped her
+virtue would, at last, conquer over her passion, and change it into friendship. The woman who had so often come off victorious over love and nature, could not long indulge a sentiment she was determined never to gratify.
+
+“When her reason, assisted by absence, or the scarcity of our private conversations, shall resume its power, the countess will applaud my behaviour, and countenance my ambition. - Till
+that day comes, I must dissemble - let me lose the fortune I covet - it will be no loss if the countess is happy.” -
+
+After that soliloquy, I reflected on the authority a sensible woman has over the passions of a young man. From a theorical knave, longing for the practical part, I had been, by degrees, forced into a delicacy of sentiments I had not the idea of. Had not the virtue of the countess been put to the test by the severe trials it had undergone, she would have had no influence over my morals - I would have attributed her virtue to my unskillfulness, or want of a proper opportunity, and continued an unbeliever to female chastity. My esteem commenced my reform; I blushed at the errors I had entertained, and welcome at last principles I had till then laughed at. This alteration was not the only one the conntess operated in my mind. I mistrusted what I heard every day against the fidelity of women, and undertook their defence openly, whenever their conduct was impeached. 
+
+“You will change your opinion when you go to London, said my friends, bantering at my faith in woman’s virtue. There libertinism sways with the more liberty, that, like villainy, it is easily concealed under the mask of honour, and that all actuated by the same interest of passing for the reverie of what they are, have agreed to take that mask for the identity of the person who wears it. Hence it happens that a really virtuous woman is often, from the coquetry of her manner, mistaken for a voluptuary, whilst the drapery of decency ranks the voluptuary among the devotees to virtue. A husband is seldom beforehand with the public in the secret of his wife’s intrigues. If the public is imposed upon, there is ten to one that the husband shall not know his disgrace; or that if he knows it, he will not dare to complain through the fear of not being believed. This certainly, Mr. Rambler, has made the outward appearance of the women so extremely modest, that, unless they be surprized in the very act of infidelity, a world of polite and sensible people will always side for them, and swear to their constancy. A woman is like a patriot. So long as the former commits no indiscretion, and the latter accepts of no pension or peerage, both are esteemed, and respected - from the hour, only, they betray themselves, they are hanged up to the scorn of the public.” - 
+
+These reflections against women confirmed me the more in my esteem of them. Were they such libertines as they were represented, they could not be so stricty upon their guard as not
+to be forcibly themselves now and then. Imprudence is the attendant of vice - What a torment to bely perpetually our nature - to look, to talk, to dress, in opposition to our desires! Such a Sacrifice for a few hours of a stolen unenjoyed bliss - for the sake of the esteem of a public. So often wrong in their judgement! - that discretion appeared to she an absolute chimaera - I thought no more, Francis; Morpheus struck my senses with his soporific band; I gave way to sleep, and awoke only when a servant came to let me know that my lord was ready to set out for Lincoln.
+
+---
+
+##LETTER XVI
+
+As on our way to Lincoln we rode within a mile of Mr. Benson, 
+lord C----- was tempted to go enquire after the ’squire’s health.
+
+He deserves, Rambler, I should add insult to punishment.” - 
+
+And he bid the postilion to drive to Benson hall. A servant came to the gate, and told his lordship, that his master was sick, in his shed, and had been ordered, by the physicians to see no company. 
+
+“What’s the matter with him: I was assured last night that he had been whipped almost to death in my park. - Is it true? -
+
+"No, my lord. He fell from his horse, received some contusions in his breast -
+
+"On his back, you mean, don’t you?" - 
+
 And he burst into laughter.
-“It is well it is no worse, refiimec. his lordship; they alb Said at the casth that your master deserved Such a lesson
-, — Tell him that I was amazed to sine
-\
-that no body pitied him. Men ant women were pleased with the Sad disaster
-he had met with. I thought ht
-. • • ••
-wa!
-■ ' t "'sr ]
-ivas loved, and he is hated by all his
-leighbours! Fail not, John, to impart
-\
-0 him what Ishave Said, that he may turn t to advantage, when he recovers.” —
-Then his lordship laughed again, and'l ode away.
-#
-t
-“This visit, Rambler, will prove
-\
-nore effectual than the blows you Irucki be he ever So base, he will not lare to face public contempt. T hope
-i
-shave got the county rid of that plague )f Society. How artfully he obtained siytriendship and confidence! The lan » juage of honour and virtue stowed per » ictually from his lips, — r — to ast the tnave, he put on the garb of honesty— — unfuspicious I took him for vhatshe would be. — Who would have
-Seen[
-[ ]
-Seen a Scoundrel in the part he per
-I
-formed! — Would I had had that Sa gacity! — It is a torment. Rambler., t( disesteem the woman we love. — Couh you know what 1 have Suffered, yoi would pity me. Indeed, had I an ene my, I would have the humanity not n wish him to be jealous. Any other evi
-»
-a man of courage may Support; bu jealousy braves philosophy, and is no always conquered by religion. — Yoi are young. Rambler, profit by my experience. If ever you marry, beware O]
-t
-the man who will talk you into suspicions of your wife’s conduct.. —
-he be true, that man is your enemy, Soi he beggars you of the Sole illusion which can make your life happy. — That consciousness of having a virtuous wife, k the greatest bliss we enjoy. — Woe to
-» him
-[ '57 ]
-him who attempts to steal it from us, el there by Seducing her affections, or fian^ dering her good name!”
-Had the honest lord C -- -- -- -- -- looked
-upon me, when he pronounced the imprecation, he would undoubtedly have discovered in my features, the Symptoms of guilt. To free me of that troublesome qualm of conscience, and of the fear of being understood, I gave a gayer turn to the conversation, and told his lordship the judgement most of nay friends had formed of the women.
-“That there aie women. Rambler, who deviate from the paths of honour, I allow, but that their number is considerable, I deny : their love for dissipation and flattery is as natural, and may be as
-innocent,,
-0 I S ® -' ] '
-f
-innocent, as that of a man of merit for the praises of the public, or that of an. excellent adbor for the applauses of his audience.. The Seeming levity of Some.
-I
-of the fair, is only an air, which they assume, either to comply with fashions, or keep alive, the affections of the men they esteem. That levity has no influence over their morals, totally independent of the external form they think, proper to assume. None but fools will; judge of the virtue of the women from their dress, gesture and conversation: those fancy or opinion dilates, and have no other tendency than to Set off the charms they possess, and make them more conspicuoussy graceful and lovely. Believe me. Rambler, I have in the Spring of my life frequented the comrpany of the women, and foupd, after
 
-[ >59 ]
-ter Several years of intimacy with them;, that though their behaviour was marked.
-with gaiety' and thonghtleffness, their actions were always consistent with virtue. If a few are carried off by the storm of passion into the arms of a lover, it is more nature’s fault than them own — they are to be pitied and forgiven. -- -- r“
-“few, you say, my lord : Yet; what woman is Safe against the tongue
-of Slander? -- -- -
-%
-w
-“Slander, Rambler, is no proof of a woman’s guilt. When folly and preju
-It
-dice pronounce their Sentence against her, her virtue is like the Sun, which never shines brighter but when it has been
-darkened by an invidious cloud. That
-you
-%
-♦
-1 ]
-you may have no doubt of the pudicity of the fair Sex, and of the malice of their vile traducer?, try your fortune among them. You have a figure, a Sstape, a complexion, which promise you fuccess. Make a few trials' —
-“Indeed, I will. — I have a mind to begin with Mrs. Guery. —
-%
-^ %
-“The world has not Spared her— —
+“It is well it is no worse, resumed his lordship; they all said at the castle that your master deserved such a lesson - Tell him that I was amazed to find that no body pitied him. Men and women were pleased with the sad disaster he had met with. I thought he was loved, and he is hated by all his neighbours! Fail not, John, to impart to him what I have said, that he may turn it to advantage, when he recovers.” -
 
-She has hiad her portion of censure, and I dare say she is as virtuous a woman as ' ever existed — try. —
-\
-“I am determined. — I hope you will let nobody into this Secret. —
-No, not even the countess. She
-f
-might warn your enemy of your designs,
-f
-k I
-and
-f ]
-V
-and prevent your victory. Indigna, tion must not arm in her favour, —
-To virtue only must she trust her defence, — and be indebted for her triumph.
-/
-“Do you sincerely think, my lord, that virtue may gain the day against love? —
-*
-“It depends upon the more or leis degree of lensibility in women. In Some, love is a passion, — in others, a sent
+Then his lordship laughed again, and rode away.
 
-timent. — This distindion tells you when virtue may win or lose. Did passion lead women into a forgetfulness of their duty, I would be tempted to pardon
-them. — Sentiment is not an excuse:
-«
-With it, reason is not a stave to feelings. — The woman who has the power
-of
-I 16z J
-f refiefling, cannot Surrender without crime. As to. those who yield Solely to the charm of pleasure, they are as com temptible as these wretches of our own; Sex, who go to a bagnio, to riot in the arms of a woman, they never law — avoid them, Rambler; as you would deadly'poison, — they are a disgrace to human nature.” * -- -- -
-As his lordship finished; the last
-words, a post-chaise and four attended
-$ *
-by three men, rode by us. A Screaming, which Seemed to come from afe
-I
-male voice, attracted our attention.
-“There is an unhappy woman in
-/
-that chaise, Rambler, let us delivei her.” — >
-I. hac
-4
-/
-I ]
-I had no need to be stimulated to dol
-good aft, ion. -- -- It was impossible,
-lot to be a man in company with his ordship. -- -- -- He would have inspired
-\
-ruffian with honour and generosity,.
-%
-)ur horses being the Swiftest, we Soon
-(vertook the chaise; and lord C -- -- --
-vith the tone of authority, bid men and, lostilions to stop. The blinds of the : haise were immediately pulled down vith a -- -- -- -
-“Dam — on!! the matter ^
-Vho. dares to stop me ^
-/
-“Help — help! Save me— — I am indone.”
-/
-Lord W -- -- -- ^ was struck, silent, mo?
-ionless at the sight of his uncle.
-“What
-t 1^4 1
-“What lady have you got there sir? —
-j
-“Nobody worthy your concern, n lord. -- --
-f “She IS unhappy, and not wordiy^ my concern I -- -- -
-“She is not unhappy. —
-“I am “I am~for heaven’s salir
+“This visit, Rambler, will prove more effectual than the blows you struck. Be he ever so base, he will not dare to face public contempt. I hope I have got the county rid of that plague of society. How artfully he obtained my friendship and confidence! The language of honour and virtue stowed perpetually from his lips, - to act the knave, he put on the garb of honesty - Naturally unsuspicious I took him for what he would be. Who would have seen a Scoundrel in the part he performed! - Would I had had that sagacity! - It is a torment, Rambler, to disesteem the woman we love. - Could you know what I have suffered, you would pity me. Indeed, had I an enemy, I would have the humanity not to wish him to be jealous. Any other evil a man of courage may support; but jealousy braves philosophy, and is not always conquered by religion. - You are young, Rambler, profit by my experience. If ever you marry, beware the man who will talk you into suspicions of your wife’s conduct. - Should he be true, that man is your enemy, for he beggars you of the sole illusion which can make your life happy. - The consciousness of having a virtuous wife, is the greatest bliss we enjoy. - Woe to him who attempts to steal it from us, either by seducing her affections, or flandering her good name!" 
 
-protect a virtuous maid.” —
-Lord C — had no more patienc
-He ran to the door of the chaise, an forced it open.
-“What, ^ -- -- Youth, innocence ar
-i
-beauty, could not move thy pity ^ —
-Ba
-r 165 ]
-rbarian! — what heart hast thou? — — eak freely, madam; are you carried ‘ against your will? -- -- -
-“lam.” - ■ '
-\
-And a stood of tears gushed out from
-I
-A
-: eyes.
-t
-%
-“Though I am the uncle of that irthless fellow, mistrust not my honour,
-[low me, madam — ril be your guard d protector— —
+Had the honest lord C----- looked upon me, when he pronounced the imprecation, he would undoubtedly have discovered in my features, the symptoms of guilt. To free me of that troublesome qualm of conscience, and of the fear of being understood, I gave a gayer turn to the conversation, and told his lordship the judgement most of nay friends had formed of the women.
 
-X
-“You, his uncle! -- -- -- is this a new
-ceit? -- What am I to believe
->
-“Emily! Dear Emily, leave me
-t.” -- -- --
-And
-[ i66 ]
-✓
-And he took hold of his hands. A tear <drop’d on his cheek. -- -- --
-t
-“My lord, 1 adore Emily : 1 cannot
-part from her —
-) “You love, and could make her
-miserable? -- -- Her despondency you
-have caused- -- -- -- you love! Is it
-by an ad: cf hatred you show your af fe<5tion? — Does he love you, madam? -- -- --
-“Before he stole me away from my family, I thought he loved me — I have a mother, a father, who are now labouring under mortal anxiety — their ignorance of my fate is a keen torment to them — their misery is my own — i am in an agony of Sorrow — My
-lord
-I 3
-0
-3rd -- -- am a daughter -- -- -- forgive my
-ears -- -- -- -
-Shed them, tender, generous girl ' — With yours I will mingle mine — —.
-)! nephew, what wrongs have you otto expiate? your inhumanity con qunds me -- -- -
-I
-# »
-“Passion blinded my reason— —
-\
+“That there are women, Rambler, who deviate from the paths of honour, I allow, but that their number is considerable, I deny: their love for dissipation and flattery is as natural, and may be as innocent, as that of a man of merit for the praises of the public, or that of an excellent actor for the applauses of his audience. The seeming levity of some of the fair, is only an air, which they assume, either to comply with fashions, or keep alive, the affections of the men they esteem. That levity has no influence over their morals, totally independent of the external form they think, proper to assume. None but fools will judge of the virtue of the women from their dress, gesture and conversation: Those fancy or opinion dictates, and have no other tendency than to set off the charms they possess, and make them more conspicuously graceful and lovely. Believe me, Rambler, I have in the spring of my life frequented the company of the women, and found, after several years of intimacy with them, that though their behaviour was marked with gaiety and thonghtlessness, their actions were always consistent with virtue. If a few are carried off by the storm of passion into the arms of a lover, it is more Nature’s fault than them own - they are to be pitied and forgiven. -
 
-“Passion inspires not villainy in a
-loble heart -- talk not of passion — *
-ibertinism was thy guide -- where was
-ou going? — ^ —
-I
-“To my state in Yorkshire —
-Does not the choice of thy retreat
-letray thy meanness ^thou lovest!
-- — Too
--- — —
-I
-4
-t i68 ]
-— Too credulous Emily, I pity you
--- -- Had thou not a hand to offer to
-Emily with the tender of thy heart? —
-%
-“I was afraid of your displeasure — she is not noble — '
-• t
-“Is she not virtuous? — Rather than to have alarmed her virtue, or injured her reputation, thou shouldst have Scorned my dilpleasure — Thou a lover! — thou art a rake, below my notice, and the
-.9
-esteem of Emily_______come, madam, I
-will give you back to the arms of your
-■V
-parents — — this man does mot deserve
-4
-you -- -- -- --
-t
-Emily, with a sigh, arose to leave the chaise, when Lord W — stop’d her by the arm.
-“Stay,
-W 4 ^
-/. '
-[ 1% ]
-r ■
-♦
-“Stay, dear Emily, we can yet be appy. The fear of losing you, ont
+“A few, you say, my lord: Yet; what woman is safe against the tongue of slander? -
 
-i, caused this false step -- -- -- -- 1 in
-/
-%
-to keep you at W -- -- -- -- -- ^ — hall
-11 I had obtained my uncle’s consent,
-— Will you forgive, if his lordship ap roves of you for his niece
-/
-Now, I know thee for my nephew,
-will you consent to take him for bet: r and worse? -- --
-“Good God! -- -- -- -- is it poshble? — •
-ow lucky this event! -- -- -- have I heard
-rell? -- -- am I not deceived ^ —
-4 V
-And she alternately darted her looks : my lord and her lover in Search of uth.
-vol. L I « I
-[ lo] ]
-“doubt no longer -- -- -- -- -- -- sincerity is
-in your countenance — I am happy— —.
+“Slander, Rambler, is no proof of a woman’s guilt. When folly and prejudice pronounce their sentence against her, her virtue is like the sun, which never shines brighter but when it has been
+darkened by an invidious cloud. That you may have no doubt of the pudicity of the fair sex, and of the malice of their vile traducers, try your fortune among them. You have a figure, a shape, a complexion, which promise you fuccess. Make a few trials - 
 
-\
-I cannot express, Francis, the joy of
-Emily, and the thanks she gave to her
-/
-generous protector— — leave to thy feni
+“Indeed, I will. - I have a mind to begin with Mrs. Guery. - 
 
-Sibility the picture of her feelings. — Adieu,
-I
-*
-r
-t
-I
-\
-♦
-i
-». I
-i
-«
-\
-L E X
-\
+“The world has not spared her - She has had her portion of censure, and I dare say she is as virtuous a woman as ever existed - try. -
 
-\
-/
-I
-I i 1
-0
-i
-I
-$
-\
-/
-h
-LETTER XVII
-t
-/
-■' 0 A FTER having enjoyed the grati
-tilde of the lovers, and presented
-meto Mils Clinton, lordc * desired them
-to follow him to Lincoln, where he
-would stay but a few hours.
-“Is not my niece a charming creature, Rambler — A beauty in dis tress is the most moving Spectacle our eyes can behold — — the tears of .Dmily would have forced my consent, had I not long ago been resolved to give it — *
-I z was
-/
+“I am determined. - I hope you will let nobody into this secret. - 
 
-\
-t
-\
-[ ]
-‘‘ Was you not, my lord, a stranger to their amours?
-♦
-I was not. Rambler. I loved my nephew with too much affection to be careless of his conduct. His valet de chamber informed me of his master’s tastes, manners and pleasures. By that means I learned that he was passionately fond of miss Emily Clinton. As this intelligence gave me no light into her charade, r or family I was alarmed. I wrote to a friend; and his answer re moved my fears. miss Clinton is the only daughter of a rich merchant in
-the city. Having no pride, I made no
-/
-attempt to oppose an attachment, which could not turn to the disgrace of my nephew; but his silence making me apprehensive for emily’s honour, I
-thought
-0
-L 173 I
-thought it my duty to put her upon her guard against his seduction'. In my last journey to London, I Sent her a card, under a sidlitious name, in which, after a few compliments upon her beauty, - I advised her to mistrust the inclination of lord W -- -- -- ashe made a mystery
-of it to his uncle, and Seemed to be, from principle, an inveterate enemy to marriage. — Lord W -- -- -- -- never dropping
-a word about Emily, I fancied he had recovered from his love fit, though every post day confirmed he was still in,
-the height of the amorous disease. -- -- --
-His fear of my indignation was false,
-4
-Rambler; the rogue invented that ca.. against me to deceive Emily, and regain her esteem. Had not fortune thrown them charitably in my way, he never would have thought of
-her
-$
-I 174 ]
-%
-her for a wife but when he would have had lost every hope of making, her his. mistress.
-t
-“My lord, I am fraid, you do not justice to your nephew; he has too much honour to have intended the disgrace of the woman he loves -- -- -- -- -- -
-“Young men of his rank, Rambler,
-‘ ^
-see things in a different light. self-love,
-and not virtue, dictates often their
-addons. Surrounded by flatterers,
-whose constant study is to indulge,
-%
-and ennoble their follies, they will find a glory in the very prostitution of their name and character. The
-4
-ruin of a woman is a triumph they
-boast -- -- -- -- her defeat, instead of exposing
-them to infamy, raises their rei
+No, not even the countess. She might warn your enemy of your designs, and prevent your victory. Indignation must not arm in her favour. - To virtue only must she trust her defence, - and be indebted for her triumph.
 
-putation,
-f
-%
-L 175 ]
-putation, and opens them a way to new conquests. They are monsters, the more dangerous in a community that the law takes no rjotice of their guilt. Were Seducers, like felons, sub jeded to fines, or corporeal punishment, or condemned to wed the woman they have undone, nature would
-resume her rights in their hearts, and
-»
-vice give way to virtue, — I wonder there are So many chaste women, when
-\
-I consider the gentleness of their disposition, the number and the audacity of their tempters. The perpetual Satires against them. Rambler, prove only the baseness of their fianderers: you
-I
-never shall hear but debauchees arraign their modesty: those men are naturally their enemies through the sense of their
-own
-I
-I ^70 J
-I
-own depravity and unworthiness. Be » Sure that the man, who ascertains that women have no virtue, has never frequented but the dregs of that Sex, and is below the contempt of the Sensible and rational. -- -- --
-“From the a6livity of your nephew’s pashons, I dare Say that miss clinton’s virtue has been put to the test -- -- -
-\
-%
-“The love he has expressed for her confirms ybur conjecture. From his own lips I will hear at Lincoln how he attacked, and how she defended herself: that she conquered is certain :
-had he triumphed, ten to one he would have abused his victory- -- -- -- -- -- -- -
-\
-cannot
-[ 177 J
-I cannot conceive how ymuth can be So ungenerous as to devote to infamy, the woman, who, confiding in their honour, has made them happy I My Soul shudders at the thought of it. — ^
-¥
-/
-i
-✓
-15 LETS
-<
-t 1
-'4
-f
-LETTER xvin.
-^ i
-HE principles of lord C -- -- -- -- -- -- -^
-made me a convert to honour and virtue: I blushed for my past ingratitude, and Swore never to be guilty of it again. After I had uttered that, oath, it Seemed as if my heart had been lightened of an intolerable weight: I
-could think calmly of the charms of the Gountefs, recollect each beauty without a sigh for my loss, without a wish for repairing it.
-%
-Lord -- -- -- U — alighted at the An gel
-inn, where he was immediately, waited
-on by two gentlemen.. Whilst he was.
-dot
-^79 J
-doseted with them, miss Clinton wrote to her parents, and lord W — — and f
-took a turn in the city. Lord W -- -- -- -- -- -
-was too Sensible of his happiness not to make it the topic of our conversation. He praised his Emily with the most lively colours — talked of her character, talents and virtues with the raptures of a lover. ^
-t
-* —
-r
-“The consent of my uncle So unex pefledly obtained, Mr. Rambler, has made rtie the happiest from the most miserable man 1 was. My Soul was torn by love and honour, and hesitated between them. Possessor of .Emily, I knew not how to dispose of her — She
-was in my hands like a treasure in the
-\
-pow’er of a miser, a cause of torturing
-troudies and anxieties — -- -- -- -- The generosity
+“Do you sincerely think, my lord, that virtue may gain the day against love? -
 
-[. io j
-ntrosity of lord C — has put an end co the fierce conssidl to which I was a prey,
-and Saved Emily and me -- -- -- -- 1 could
-not have resisted a perpetual bewitching temptation — the man would have died in me in favour of the lover — — I would, undoubtedly, have Sacrificed
-honour to pleasure -- -- -- I tremble at an
-action love only could have justified — Emily — I would have lost Emily — her. death would have followed, nay anticipated my triumph -- -- -- -- -
-“She loves you -- -- -
-“She loves herself still better. Her modesty was never asseep: I always found it between her and me. When virtue commands in a female heart, she Silences
-every other passion; pride, love, desire.
-[ isi ]
-»
-sire, vanish at her voice, or appear only
-to grace her train. -- -- -- -1 have dared',.
-sir, what any mortal can dare -- -- -- art
-and force have attended my attempts
-against emily’s honour — shame, consu' fion, and Sorrow have been the constant effects of my attempts -- -- -- --
-“How could you engage her to accompany you ^ -- -- -- -- -
-\
-“Emily was decoyed into my chaise — never would she have followed me — had she consented, contempt and indifference had Succeeded my love and esteem -- -- -- -
-“Having it not in my power to enjoy the company of Emily whenever I
-•I
-pleased, I resolved to carry lifer off. I
-told
-[ 182 ]
-'i'
-told her yesterday before her mother,
-that the countess of C -- -- -- -- -, who was
-privy to our amour, had written me
-r
-from Barnet, she would be glad to See miss Clinton at that place before three
-in the afternoon, that she might judge
-\
-by herself of the merit of the niece I intended to give her. They asked for the letter; I showed them one I had eaused to be written for that purpose. Mrs. Clinton observed that decorum forbid Emily to go with me alone. With me, who is to be her husband,
-madam! — She is not yet your wife, my lord, — I hope you mistrust neither my
-honour, nor the virtue of your daughter, madam? — Neither of therri — But — I appeared displeased at that But — E mily sided for me, and represented to her mother, that, though decorum was
-i
-against
-[ 1^3 ]
-igainst her, her consciousness of my probity Spoke as strongly in my favour -- -- -
-he could not deny Such an insignisicant mark of her regard to the man she e steemed, without doubting his honour
-— The good-natured Mrs. Clinton with --
-O
-drew her objection, and two hours after Emily and I sat out for Barnet.
-“As I had emily’s hand in mine, I perceived it trembled on a Sudden; and looking upon her, Saw a tear trickling, down her cheek
-“Are you not well, dear Emily?” —
-Emily unwilling I should know the
-cause of her uneasiness, answered with
-/ ^
-a forced Smile that she was well. Discretion bidding me to appear contented
-%
-t >84 J -
-CD with that answer, I took no notice of her tear, and endeavoured to fix her attention, and make her forget The hours.
-I
-We had already rode five and twenty miles without any visible sign of impatience from Emily, when taking her, - watch she Said, we either rode very
-slow, or Barnet was not So near i.on don as she thought. Near four o clock, my lord !” Your watch goes
-too fast, dear Emily, it is not yet three by mine. At that very minute a Servant brought Emily the following card
-\
-^
-The countess of C -- -- -- -- ’s compliments
-to miss Clinton : - begs she would
-come with lord W -- -- -- to the dutchess
-qs (3>_ — j where she has been forci'
-'^
-r '^5 ]
-/
-)ly engaged to dine: she hopes Mist fiinton will forgive and comply.
-“Ridiculous! exclaimed I. I wish, ear Emily, you would not go. This; a trick of the countess, who will ave the dutchess sit with her in judge lent on your wit and beauty .....- ^
-; t us return to London — "
-V ^
-!
-“How far is it to the dutchessst?
-A
-Near ten miles -- -- -- - •
-\
-“’tis very far -- -
-“Too far indeed. Besides I fear
-leir criticism were I certain you
-old please -- But '
-‘‘you
-C io J
-'“You frighten me, my lord. -- --
-t
-And she Smiled.
-The countess is So shandsome — the dutchess So partial in her favour, that though I think you the loveliest of ypur Sex, she may differ from me, and whis per in my ear, the countess is more, beautiful —
-i
-“w’hy should you be vexed at § ^ preference the countess deserves
-“She deserves it not: yob have over her a Superiority — —
-“This is only a compliment, my
-lord; your fear has declared for her against me.......
-‘‘well
-t *^7 ]
-$
-0
-Well — I own frankly the ad van:
-: may be on her side -- -- -- 1 would not
-lave the duchess conscious of it -- -- -
-i
-/
-“Why? -- -- -- -- --
-I
-“I have So often told her that no woman could boast your accomplishments, that she would not fail to ap
-/ \
-from my self-love to the tribunal.
-%
-if her own taste, and annul the Sen'' ''
-^
-tence I have pronounced — —
-“Perhaps she might confirm it — —
-/
-“It is a perhaps -- -- -- -
-‘‘ You are not a flatterer, my lord — "
-♦ % '
-^ With
-t
-/
-/
-V
-*
-I isa j
-/
-“With you, Emily, I must be true “— the countess is allowed to be the first, beauty in the kingdom — Would the dutchess hesitate only one minute between fou both — llie will not.” —
-The pride of Emily got the better of her prudence. She paused — “thea Said — -- -- -
-S
-“I will See the countess: bid the postilion drive on.” — —
-At the next village I took fresh horsesy and left my own,
-/
-t
-V /
-LET
-€
-T ’89 ]
-r -
-• r. - *
-■*, i • •
-\
-;
-'' h
-L E T T E R XIX
-/
-l^he time approaching when Emily could no longer be deceived,
-ly heart gave way to fear, ^ and my >ngue began to falter. In vain did I
-tempt to revive my Spirits, and erase.
-\
-om miy mind the folly of the step I ad taken. How I ought to behave I new not — Should I acknowledge my (discretion, and return to London lonour Said, yes — Love more loudly led, no — the latter I obeyed. Emily asso deeply engaged with the thought f a rival in beauty, that I had time 3 calm my agitated soul, and invent
-C IJO ]
-vent a new imposture. I burst into laughter. Emily roused from her reverie.
-V
-“Upon my word, dear Emily, I
-never imagined I should be able 'to
-/
-maintain a lie for So many hours fall
-N
-hood is So contrary to my nature that I 'am forced to break the word I gave to your mother, and be true —
-4
-%
-“What do you mean, my lord? Have you imposed upon my creduli
-/ ty? -- -- -- -
-“You will easily forgive, wheff you know it was to gratify a whim of Mrs. Clinton.” — —
-The
-/
-{ i ]
-The Sagacious eye of Emily disco red no hypocrisy in my looks,
-“Explain yonrself, my lord — But, st, order the postilions to drive back London -- -- -- -
-Dear Emily, if you value my ten rness, fuspedt not my honour — I have t taught you to despise me — resume lur chearfulness, and listen coldly to e,
->
-m
-“It will be all false what you will y to me — I am betrayed — —
-\
-‘S Were I convinced you think So
-%
-leanly of my integrity, I vvould obey )u, and return to London..... ..... —
-Ipokc
-[ 192 ]
-I ffpoke too naturally not to cause a doubt. Emily dissembled her Suspicions, and begged 1 V old unravel the
-mystery of her mother’s whim,
-* /
-• • ^ '
-“Lord C — —, who I was afraid
-\ 4
-would never assent to our marriage, was. So powerfully Solicited by his countess, that he at last yielded to her entreaties. He wrote to me that he. approved of my inclination, and bid
-* V
-me to induce Mrs. Clinton and her daughter to come to elverton.castle, where he wished the ceremony should be performed. I received yesterday
-I,
-the blessed, letter, and went immedi
-I
-. ately.to communicate it to you. You was absent, Emily; your mother was
-4
-overjoyed at the news, and after hav
-*
-exchanged the usual compliments
-• '
-on
-%
-N
-[ '93 1
-n Such an occasion, she desired me not 3 mention that letter to you. I was mazed, and ashed, trembling, the rea
-3n.
-s
-“My reason is only a whim, which
-las just entered my head. If we can
-0
-\
-jve a romantic turn to your union vith Emily, it will display her charac er, and give a poignancy to her hap )iness — the less ssie shall think of it, the greater will be her enjoyment, Trbu
-)les only can enliven pleasure- -- -- --
-%
-: ent any pretext to carry her off -- -- it
-vill be but one day of vexation; the lext will amply compensate for it — •
-’U Set out an hour after you, and join i, mily at Lincoln, where my unexpect: d presence will change her terrors into felights.......
-D ^ ^
-vol. I. K, Ifliall
-[ *94 1
-“I shall not be able to Support a lie, to bear with her Sorrow, to See her doubt my honour -- -- -- --
-“Mrs. Clinton, dear Emily, laughed at my answer: I complied at last with her fancy, and promised to make you miserable for twenty-four hours. The letter and card were consequently forged — I have carried, dear Emily, the imposture to the very instant, when the thought of a rape would have filled
-your heart with grief -- -- -1 have Spared
-your sensibility the torment of defpising the man you love, and Spared my own feelings, the Spedacle of your just despair— — hate falsehood as much as I love you — forgive the deceit, and impeach not my veracity —
-« That
-t 195 J
-That my mother should have Suck thought!’’ — —
-And she shook her head with an air f incredulity.
-J \ - It
-“You have told a very ingenious ale, my lord; but it is only a tale —
-I
-ince.my mother Set out an hour af er us, let’s wait for her — an hour will •
-xe Soon over -- -- -
-%
-Still an unbeliever, Emily “No — I believe you -- -- -- -- --
-s
-“You do not, Emily, since you
-vant the presence of your mother to : onfirm what 1 have Said —
-4
-\
-K 2 “rier
-t 195 ]
-“Her company would make the
-V
-journey more agreeable ■ ■
-To'you, possibly, but not to her. By humouring her fancy we will make her more happy — — she must not know I have betrayed her to please you — Make me not repent my generosity — tomorrow morning you will See Mrs.
-Clinton -- -- Let us study our part, that
-we may perform it well -- -- If we do
-not aft it with ingenuity, she shall be the more Sensibly disappointed of the pleasure she expects from your Surprise and mine, that imagination will have paint ed it to her with the most Seducing colours.” —
-Emily did not listen -- she thought
-- — after a few minutes reflection she
-turned
-[ >97 ]
-urned to me with a Smiling counte ance.
-“My mother’s whim, however ridi ulous, is credible — it is impossible a lan of'your honour should have in ented it — forgive my diffidence — I he tate no more — be my guide: FU fol
-w you with pleasure -- -- -
-it You lie, Emily.” —
-Those words, sir, I did not speak, or trusted I their meaning to my sea ires. I thanked her for the justice she id me, and thought on defeating her Ians of escape.
-y
-/
-(
-“Where do you please to stop, my )rd
-Ac
-[ *98 ]
-“At Stilton —
-“Stilton! it is but a few miles from Peterborough. 1 have a near relation iri that town, where we shall be better accommodated than in an inn.......
-You are right, dear Emily; wc'
-%
-will go to Peterborough.” — —
-Emily looked earnestly upbri me. My compliance, which she did not expect, worked her mind in my favour, and prevented her from making use of
-the opportunities I apparently gave her
->
-, of flying from me. We drank tea at
-%
-biggleswade; from whence, at my desire, Emily dispatched one of my Servants to her relation, to announce the visit she intended to pay her. This
-new
-[ »99 ]
-new attention was death to the fears of
-*
-Emily, and Secured me her confidence.
-She stepped cheaifully into the chaise,
-and answered the language of my passion. The horses having gone agreeably to the rate I had didtated, it was near twelve o’clock when we arrived at
-Stilton. ♦
-%
-%
-LET.
-A
-%
-[ J
-. t
-/
-. '
-LETTER XX
-H E landlord and his daughter were the only persons up at the
-V
-inn where we stopped. They came to the chaise, and the former told us that my Servant had commanded every innkeeper in the place to let us know that
-*
-Mrs. S -- -- -- was, with all her family,
-at Wishish. -- -- -
-«
-“Mrs. S -- - — — is not at Peterborough,
-” ashed Emily, with the accent of Surprise ?« —
-“No, madam. As I knew she was absent, I told it to the Servant, who
-alighted
-m
-%
-[ 201 ]
-alighted here; but he would not be lieve me — — *'
-‘‘ Where is he?
-I
-“He went back, my lord, to Peterborough,
-to order Some lodgings for her
-$
-ladyship and you' — —
-“We will ride thither — Emily, you
-have certainly Some acquaintance in that. /
-/ **
-town, who will be glad to receive you -- -- -- --
-$
-‘‘ I have none —
-i ^ ¥
-“It is unlucky -- -- -- What shall we
-do V
-K 5 1 few
-%
-r
-[ 202 ]
-I Saw, once more, suspicion animate the looks of Emily —
-“Mrs. S -- -- -- -- at Whishish! — is it
-possible? -- --
-“Trust neither my Servant nor that fellow, dear Emily -- -- -
-“Fellow! mumbled the landlord— —
-have told the truth; and am not a
-/
-fellow, my lord — — if the lady will not believe me I cannot help it — — fellow! —
-i
-“And pronouncing an oath very distinctly, he bid his daughter in, and followed her — ~ **
-** Be
-[ 203 ]
-“Be not So Saucy, Mr. Landlord, and give us fresh horses — •
-I have no horses — fellow!’* —
-/
+“It depends upon the more or less degree of sensibility in women. In some, love is a passion, - in others, a sentiment. - This distinction tells you when virtue may win or lose. Did passion lead women into a forgetfulness of their duty, I would be tempted to pardon them. - Sentiment is not an excuse: With it, reason is not a slave to feelings. - The woman who has the power of reflecting, cannot surrender without crime. As to those who yield solely to the charm of pleasure, they are as comtemptible as these wretches of our own sex, who go to a bagnio, to riot in the arms of a woman, they never saw - avoid them, Rambler, as you would deadly poison, - they are a disgrace to human nature.” -
+
+As his lordship finished the last words, a post-chaise and four, attended by three men, rode by us. A screaming, which seemed to come from afe male voice, attracted our attention.
+
+“There is an unhappy woman in that chaise, Rambler, let us deliver her." - 
+
+I had no need to be stimulated to do good action. - It was impossible not to be a man in company with his lordship. - He would have inspired ruffian with honour and generosity. Our horses being the swiftest, we soon overtook the chaise; and lord C----- with the tone of authority, bid men and, postilions to stop. The blinds of the chaise were immediately pulled down with a -
+
+“Dam - on! what's the matter? - Who dares to stop me? 
+
+“Help - help! Save me - or I am undone.”
+
+Lord W----- was struck, silent, motionless at the sight of his uncle.
+
+“What lady have you got there, sir? -
+
+“Nobody worthy your concern, my lord. -
+
+“She is unhappy, and not worthy of my concern!
+
+“She is not unhappy. -
+
+“I am - I am - for heaven’s sake protect a virtuous maid.” -
+
+Lord C----- had no more patience. He ran to the door of the chaise, and forced it open.
+
+“What? Youth, innocence and beauty, could not move thy pity? -
+
+Barbarian! - what heart hast thou? Speak freely, madam; are you carried off against your will? -
+
+"I am."
+
+And a stood of tears gushed out from her eyes.
+
+“Though I am the uncle of that worthless fellow, mistrust not my honour, follow me, madam - I'll be your guard and protector -
+
+“You, his uncle! - is this a new deceit? - What am I to believe? -
+
+“Emily! Dear Emily, leave me not." -
+
+And he took hold of his hands. A tear drop'd on his cheek. - 
+
+“My lord, I adore Emily: I cannot part from her -
+
+“You love, and could make her miserable? - Her despondency you
+have caused - and you love! Is it by an act of hatred you show your affection? - Does he love you, madam? -
+
+“Before he stole me away from my family, I thought he loved me - I have a mother, a father, who are now labouring under mortal anxiety - their ignorance of my fate is a keen torment to them - their misery is my own - I am in an agony of sorrow - My lord - I am a daughter - forgive my tears -
+
+"Shed them, tender, generous girl - With yours I will mingle mine - O! nephew, what wrongs have you not to expiate? your inhumanity confounds me -
+
+“Passion blinded my reason -
+
+“Passion inspires not villainy in a noble heart - talk not of passion - libertinism was thy guide - where was you going? -
+
+“To my state in Yorkshire -
+
+"Does not the choice of thy retreat betray thy meanness? - Thou lovest! Too credulous Emily, I pity you - Had thou not a hand to offer to Emily with the tender of thy heart? -
+
+“I was afraid of your displeasure - she is not noble -
+
+“Is she not virtuous? - Rather than to have alarmed her virtue, or injured her reputation, thou shouldst have scorned my displeasure - Thou a lover! - thou art a rake, below my notice, and the esteem of Emily - Come, madam, I will give you back to the arms of your parents - this man does mot deserve you. - 
+
+Emily, with a sigh, arose to leave the chaise, when Lord W----- stop’d her by the arm.
+
+“Stay, dear Emily, we can yet be happy. The fear of losing you, only, caused this false step - I intended to keep you at W-----hall till I had obtained my uncle’s consent. - Will you forgive, if his lordship approves of you for his niece? -
+
+Now, I know thee for my nephew, - will you consent to take him for better and worse? -
+
+“Good God! - is it possible? - How lucky this event! - have I heard well? - am I not deceived? -
+
+And she alternately darted her looks at my lord and her lover in search of truth. 
+
+“I doubt no longer - sincerity is in your countenance - I am happy. -
+
+I cannot express, Francis, the joy of Emily, and the thanks she gave to her generous protector - Ileave to thy sensbility the picture of her feelings. - Adieu. 
+
+---
+
+## LETTER XVII
+
+After having enjoyed the gratitude of the lovers, and presented
+me to Miss Clinton, lord C----- desired them to follow him to Lincoln, where he would stay but a few hours.
+
+“Is not my niece a charming creature, Rambler - A beauty in distress is the most moving spectacle our eyes can behold - the tears of Emily would have forced my consent, had I not long ago been resolved to give it -
+
+"Was you not, my lord, a stranger to their amours?
+
+"I was not, Rambler. I loved my nephew with too much affection to be careless of his conduct. His valet de chamber informed me of his master’s tastes, manners and pleasures. By that means I learned that he was passionately fond of miss Emily Clinton. As this intelligence gave me no light into her character or family I was alarmed. I wrote to a friend; and his answer re moved my fears. miss Clinton is the only daughter of a rich merchant in
+the city. Having no pride, I made no attempt to oppose an attachment, which could not turn to the disgrace of my nephew; but his silence making me apprehensive for Emily’s honour, I
+thought it my duty to put her upon her guard against his seductions. In my last journey to London, I sent her a card, under a fictitious name, in which, after a few compliments upon her beauty, I advised her to mistrust the inclination of lord W----- as he made a mystery of it to his uncle, and Seemed to be, from principle, an inveterate enemy to marriage. - Lord W----- never dropping a word about Emily, I fancied he had recovered from his love fit, though every post day confirmed he was still in, the height of the amorous disease. - His fear of my indignation was false, Rambler; the rogue invented that calumny against me to deceive Emily, and regain her esteem. Had not fortune thrown them charitably in my way, he never would have thought of her for a wife but when he would have had lost every hope of making her his mistress.
+
+“My lord, I am sfraid, you do not justice to your nephew; he has too much honour to have intended the disgrace of the woman he loves -
+
+“Young men of his rank, Rambler, see things in a different light. Self-love, and not virtue, dictates often their actions. Surrounded by flatterers, whose constant study is to indulge, and ennoble their follies, they will find a glory in the very prostitution of their name and character. The ruin of a woman is a triumph they boast - her defeat, instead of exposing them to infamy, raises their reputation, and opens them a way to new conquests. They are monsters, the more dangerous in a community that the law takes no notice of their guilt. Were seducers, like felons, subjected to fines, or corporeal punishment, or condemned to wed the woman they have undone, nature would
+resume her rights in their hearts, and vice give way to virtue. - I wonder there are so many chaste women, when I consider the gentleness of their disposition, the number and the audacity of their tempters. The perpetual satires against them. Rambler, prove only the baseness of their flanderers: you never shall hear but debauchees arraign their modesty: those men are naturally their enemies through the sense of their own depravity and unworthiness. Be sure that the man, who ascertains that women have no virtue, has never frequented but the dregs of that Sex, and is below the contempt of the sensible and rational. -
+
+“From the activity of your nephew’s passion, I dare say that miss Clinton’s virtue has been put to the test -
+
+“The love he has expressed for her confirms your conjecture. From his own lips I will hear at Lincoln how he attacked, and how she defended herself: that she conquered is certain: had he triumphed, ten to one he would have abused his victory - I cannot conceive how youth can be so ungenerous as to devote to infamy, the woman, who, confiding in their honour, has made them happy! My soul shudders at the thought of it. -
+
+---
+
+## LETTER XVIII.
+
+The principles of lord C----- made me a convert to honour and virtue: I blushed for my past ingratitude, and swore never to be guilty of it again. After I had uttered that, oath, it seemed as if my heart had been lightened of an intolerable weight: I
+could think calmly of the charms of the countess, recollect each beauty without a sigh for my loss, without a wish for repairing it.
+
+Lord C----- alighted at the Angel inn, where he was immediately, waited on by two gentlemen. Whilst he was closeted with them, miss Clinton wrote to her parents, and lord W----- and I
+took a turn in the city. Lord W----- was too sensible of his happiness not to make it the topic of our conversation. He praised his Emily with the most lively colours - talked of her character, talents and virtues with the raptures of a lover. 
+
+“The consent of my uncle so unexpectedly obtained, Mr. Rambler, has made me the happiest from the most miserable man I was. My soul was torn by love and honour, and hesitated between them. Possessor of Emily, I knew not how to dispose of her - She
+was in my hands like a treasure in the pow’er of a miser, a cause of torturing troubles and anxieties - The generosity of lord C----- has put an end to the fierce consflict to which I was a prey, and saved Emily and me - I could not have resisted a perpetual bewitching temptation - the man would have died in me in favour of the lover - I would, undoubtedly, have sacrificed
+honour to pleasure - I tremble at an action love only could have justified - Emily - I would have lost Emily - her death would have followed, nay anticipated my triumph - 
+
+“She loves you -
+
+“She loves herself still better. Her modesty was never asleep: I always found it between her and me. When virtue commands in a female heart, she silences every other passion; pride, love, desire, vanish at her voice, or appear only to grace her train. - I have dared, sir, what any mortal can dare - art and force have  have attended my attempts against Emily’s honour - shame, confusion, and sorrow have been the constant effects of my attempts -
+
+“How could you engage her to accompany you? -
+
+“Emily was decoyed into my chaise - never would she have followed me - had she consented, contempt and indifference had succeeded my love and esteem -
+
+“Having it not in my power to enjoy the company of Emily whenever I pleased, I resolved to carry her off. I told her yesterday before her mother, that the countess of C-----, who was
+privy to our amour, had written me from Barnet, she would be glad to see miss Clinton at that place before three in the afternoon, that she might judge by herself of the merit of the niece I intended to give her. They asked for the letter; I showed them one I had caused to be written for that purpose. Mrs. Clinton observed that decorum forbid Emily to go with me alone. With me, who is to be her husband, madam! - She is not yet your wife, my lord, - I hope you mistrust neither my
+honour, nor the virtue of your daughter, madam? - Neither of them - But —-I appeared displeased at that But - Emily sided for me, and represented to her mother, that, though decorum was against her, her consciousness of my probity spoke as strongly in my favour - she could not deny such an insignificant mark of her regard to the man she esteemed, without doubting his honour. The good-natured Mrs. Clinton withdrew her objection, and two hours after Emily and I sat out for Barnet.
+
+“As I had Emily’s hand in mine, I perceived it trembled on a sudden; and looking upon her, saw a tear trickling, down her cheek - 
+
+“Are you not well, dear Emily?” -
+
+Emily unwilling I should know the cause of her uneasiness, answered with a forced smile that she was well. Discretion bidding me to appear contented with that answer, I took no notice of her tear, and endeavoured to fix her attention, and make her forget the hours.
+
+We had already rode five and twenty miles without any visible sign of impatience from Emily, when taking her, watch she said, we either rode very slow, or Barnet was not so near London as she thought. "Near four o' clock, my lord!” Your watch goes
+too fast, dear Emily, it is not yet three by mine. At that very minute a servant brought Emily the following card. 
+
+The countess of C-----’s compliments to miss Clinton: begs she would come with lord W----- to the dutchess of G----- where she has been forcibly engaged to dine: she hopes Miss Clinton will forgive and comply.
+
+“Ridiculous! exclaimed I. I wish, dear Emily, you would not go. This a trick of the countess, who will have the dutchess sit with her in judgement on your wit and beauty - let us return to London - 
+
+“How far is it to the dutchess's?
+
+"Near ten miles - 
+
+“’Tis very far -
+
+“Too far indeed. Besides I fear their criticism - Were I certain you would please - But - 
+
+“You frighten me, my lord. - 
+
+And she smiled.
+
+"The countess is so handsome - the dutchess so partial in her favour, that though I think you the loveliest of your sex, she may differ from me, and whisper in my ear, the countess is more, beautiful -
+
+“Why should you be vexed at the preference the countess deserves? - 
+
+“She deserves it not: you have over her a superiority -
+
+“This is only a compliment, my lord; your fear has declared for her against me - 
+
+"Well - I own frankly the advantage may be on her side - I would not have the duchess conscious of it -
+
+“Why? -
+
+“I have so often told her that no woman could boast your accomplishments, that she would not fail to appealfrom my self-love to the tribunal of her own taste, and annul the sentence I have pronounced -
+
+“Perhaps she might confirm it -
+
+“It is a perhaps -
+
+"You are not a flatterer, my lord - 
+
+“With you, Emily, I must be true - the countess is allowed to be the first, beauty in the kingdom - Would the dutchess hesitate only one minute between you both - she will not.” -
+
+The pride of Emily got the better of her prudence. She paused - then said -
+
+“I will see the countess: bid the postilion drive on.” -
+
+At the next village I took fresh horses, and left my own. 
+
+---
+
+## LETTER XIX.
+
+The time approaching when Emily could no longer be deceived, my heart gave way to fear, and my tongue began to falter. In vain did I tempt to revive my spirits, and erase from my mind the folly of the step I had taken. How I ought to behave I knew not - Should I acknowledge my indiscretion, and return to London Honour said, yes - Love more loudly led, no - the latter I obeyed. Emily asso deeply engaged with the thought of a rival in beauty, that I had time to calm my agitated soul, and invent a new imposture. I burst into laughter. Emily roused from her reverie.
+
+“Upon my word, dear Emily, I never imagined I should be able to maintain a lie for so many hours falsehood is so contrary to my nature that I am forced to break the word I gave to your mother, and be true -
+
+“What do you mean, my lord? Have you imposed upon my credulity? -
+
+“You will easily forgive, when you know it was to gratify a whim of Mrs. Clinton.” -
+
+The Sagacious eye of Emily discovered no hypocrisy in my looks. 
+
+“Explain yourself, my lord - But, first, order the postilions to drive back London -
+
+"Dear Emily, if you value my tenderness, suspect not my honour - I have not taught you to despise me - resume your chearfulness, and listen coldly to me. 
+
+“It will be all false what you will say to me - I am betrayed -
+
+"Were I convinced you think so meanly of my integrity, I would obey you, and return to London -
+
+I spoke too naturally not to cause a doubt. Emily dissembled her suspicions, and begged I would unravel the mystery of her mother’s whim.
+
+“Lord C-----, who I was afraid would never assent to our marriage, was so powerfully solicited by his countess, that he at last yielded to her entreaties. He wrote to me that he approved of my inclination, and bid me to induce Mrs. Clinton and her daughter to come to Wlverton castle, where he wished the ceremony should be performed. I received yesterday the blessed, letter, and went immediately to communicate it to you. You was absent, Emily; your mother was overjoyed at the news, and after having exchanged the usual compliments on such an occasion, she desired me not to mention that letter to you. I was amazed, and asked, trembling, the reason. 
+
+“My reason is only a whim, which has just entered my head. If we can give a romantic turn to your union with Emily, it will display her character, and give a poignancy to her happiness - the less she shall think of it, the greater will be her enjoyment, Troubles only can enliven pleasure - invent any pretext to carry her off - it will be but one day of vexation; the next will amply compensate for it - Set out an hour after you, and join Emily at Lincoln, where my unexpected presence will change her terrors into delights. -
+
+“I shall not be able to support a lie, to bear with her sorrow, to see her doubt my honour - 
+
+“Mrs. Clinton, dear Emily, laughed at my answer: I complied at last with her fancy, and promised to make you miserable for twenty-four hours. The letter and card were consequently forged - I have carried, dear Emily, the imposture to the very instant, when the thought of a rape would have filled your heart with grief - I have spared your sensibility the torment of despising the man you love, and spared my own feelings, the spectacle of your just despair - I hate falsehood as much as I love you - forgive the deceit, and impeach not my veracity -
+
+That my mother should have such a thought!" - 
+
+And she shook her head with an air pf incredulity.
+
+“You have told a very ingenious tale, my lord; but it is only a tale - since my mother set out an hour after us, let’s wait for her - an hour will be soon over -
+
+"Still an unbeliever, Emily?" 
+
+"No - I believe you - 
+
+“You do not, Emily, since you want the presence of your mother to confirm what I have said -
+
+“Her company would make the journey more agreeable - 
+
+"To you, possibly, but not to her. By humouring her fancy we will make her more happy - she must not know I have betrayed her to please you - Make me not repent my generosity - Tomorrow morning you will see Mrs. Clinton - Let us study our part, that
+we may perform it well - If we do not act it with ingenuity, she shall be the more sensibly disappointed of the pleasure she expects from your surprise and mine, that imagination will have painted it to her with the most seducing colours.” -
+
+Emily did not listen - she thought - after a few minutes reflection she turned to me with a smiling countenance.
+
+“My mother’s whim, however ridiculous, is credible - it is impossible a man of your honour should have in invented it - forgive my diffidence - I hesitate no more - be my guide: I'll follow you with pleasure -
+
+"You lie, Emily.” -
+
+Those words, sir, I did not speak, or trusted I their meaning to my features. I thanked her for the justice she did me, and thought on defeating her plans of escape.
+
+“Where do you please to stop, my lord?
+
+“At Stilton -
+
+“Stilton! it is but a few miles from Peterborough. I have a near relation in that town, where we shall be better accommodated than in an inn -
+
+"You are right, dear Emily; we will go to Peterborough.” -
+
+Emily looked earnestly upbri me. My compliance, which she did not expect, worked her mind in my favour, and prevented her from making use of the opportunities I apparently gave her of flying from me. We drank tea at Biggleswade; from whence, at my desire, Emily dispatched one of my servants to her relation, to announce the visit she intended to pay her. This new attention was death to the fears of Emily, and secured me her confidence. She stepped chearfully into the chaise, and answered the language of my passion. The horses having gone agreeably to the rate I had dictated, it was near twelve o’clock when we arrived at
+Stilton. 
+
+---
+
+## LETTER XX
+
+The landlord and his daughter were the only persons up at the
+inn where we stopped. They came to the chaise, and the former told us that my servant had commanded every innkeeper in the place to let us know that Mrs. S----- was, with all her family,
+at Wisbish. -
+
+“Mrs. S----- is not at Peterborough," asked Emily, with the accent of surprise? - 
+
+“No, madam. As I knew she was absent, I told it to the Servant, who alighted here; but he would not believe me -
+
+"Where is he?
+
+“He went back, my lord, to Peterborough, to order some lodgings for her ladyship and you -
+
+“We will ride thither - Emily, you have certainly some acquaintance in that town, who will be glad to receive you -
+
+"I have none -
+
+“It is unlucky - What shall we do?"
+
+I saw, once more, suspicion animate the looks of Emily -
+
+“Mrs. S----- at Whisbish! - is it possible? -
+
+“Trust neither my servant nor that fellow, dear Emily -
+
+“Fellow! mumbled the landlord - I have told the truth; and am not a fellow, my lord - if the lady will not believe me I cannot help it - fellow! -
+
+“And pronouncing an oath very distinctly, he bid his daughter in, and followed her -
+
+“Be not so saucy, Mr. Landlord, and give us fresh horses -
+
+"I have no horses - fellow!" -
+
 And, damning me, he shut his door. The behaviour of the landlord, and the innocent carriage of his daughter, reingratiated me with Emily. She could not think there was a plot laid between us against her.
-i
-“Shall we stay here, my lord, or go
-\
-to Peterborough?
-#
-♦
-“To Peterborough, by' all means, Emily.’* —
-And 1 bid the postilions drive on, —
-Not
-[ 204 1
-#
-“Not they indeed — they would not
-V •
-for the first duke in the kingdom — Their horses were tired — they were not used to overgo their usual stage —
-“Open the door of the chaise, cried I to a Servant, mimicking a fit of fury; ril teach the rascals to obey -- --
-4
-I
-'^ “don’t put yourself in a passion,
-my lord, whispered Emily — Let us rest this night in this house —
-“In this house, Emily, after the landlord’s insolence to you and me! —
-\
-“don’t mind it — a man of Spirit will Suffer no more from a lord than from his equal — he is an Englishman; you
-should
-y
-[ 205 ]
-should rather praise than condemn him — come, let us alight -- -- -
-“ril obey you — but —
-/
-“No luts^ if you love me.” —
-The landlord uttering a' few curses opened the door, and ushered us into a parlour. — Lucy dropping a low curtsy offered her Services to miss Clinton.
+
+“Shall we stay here, my lord, or go to Peterborough?
+
+“To Peterborough, by all means, Emily." -
+
+And I bid the postilions drive on. - 
+
+“Not they indeed - they would not for the first duke in the kingdom - Their horses were tired - they were not used to overgo their usual stage -
+
+“Open the door of the chaise, cried I to a Servant, mimicking a fit of fury; I'll teach the rascals to obey -
+
+"Don’t put yourself in a passion, my lord, whispered Emily - Let us rest this night in this house - 
+
+“In this house, Emily, after the landlord’s insolence to you and me! -
+
+“Don’t mind it - a man of Spirit will suffer no more from a lord than from his equal - he is an Englishman; you should rather praise than condemn him - come, let us alight -
+
+“I'll obey you - but -
+
+“No buts, if you love me.” -
+
+The landlord uttering a few curses opened the door, and ushered us into a parlour. - Lucy dropping a low curtsy offered her services to miss Clinton.
+
 “You shall lie with me, Lucy —
-/
-“With me, madam! won’t you lie with that sine gentleman? —
-A blush arose in the cheek of
-N •
-Emily.
-J
-/
-« No,
-[ 206 ]
-No, child —
-\
-“You are not angry with his lord ship, 1 hope, madam? —
-“I am not -- -
-And yet you will not lie with him? —
-Hold thy tongue, thou little chattering thing —
-“Shall I make the two beds in the same room, my lord
-I smileddo, as my lady orders.” ^
-Enaily
-[ 207 ]
-Emily went to her, whispered a fev/ words, and Lucy left us.
-/
-“They al, here, believe you are my wife; hence lucy’s impertinent, tittle tattle — be not displeased with her.” —
+
+“With me, madam! Won’t you lie with that fine gentleman? - 
+
+A blush arose in the cheek of Emily.
+
+"No, child -
+
+“You are not angry with his lordship, I hope, madam? -
+
+“I am not - 
+
+"And yet you will not lie with him? -
+
+"Hold thy tongue, thou little chattering thing -
+
+“Shall I make the two beds in the same room, my lord? -
+
+I smiled - "Do,as my lady orders.” -
+
+Emily went to her, whispered a few words, and Lucy left us.
+
+“They all, here, believe you are my wife; hence Lucy’s impertinent, tittle tattle - be not displeased with her.” -
+
 And I attempted a kiss, which I half stole, and half printed on her lips.
-f
-“I forgive this, my lord — offend no more
-'
-t
-“tomorrow I shall hav«a claim to those favours ■ ■ grant them today
-when they are yotirs -- -- -- -- -- put not off
-your liberality to the moment you
-shall be obliged to give -- -- -- how shall
-I be able to discern your love from
-your
-V
-ft
-[ 208 ]
-your duty? the former only can make me happy -- -- -- -
-“The latter only can I obey — When it commands, love will bid you welcome -- -- -
-“I have but your word, Emily — —
-the word of a woman! -- -- perhaps ambition
-may determine you -- -- Were this
-the motive, we both should be completely miserable -- If you love me,
-deny me not what you have yet in
-your power to bestow -- -- -- A good we
-enjoy, without any other title to it than the generosity of its giver, has charms, which that we purchase cannot boast —
-Gratitude devotes our hearts to our be
-♦
-/
-nefaflors -- it does not Speak for those
-whose
-* m
-[ 209 ]
-whose favours we are entitled to order —
-N
-“Is this the language Emily should hear from your lordship? -- -- --
-t
-“It is the language of love .......
-false delicacy may blush to understand it; but virtue will not.” -- --
-Indignation fixed a few minutes in the eyes of Emily. She arose — walked to the chimney, and rung the bell. Her contempt restored me to the fense of honour,
-1
-A trifile difcomposes my Emily! —
-•> ' •
-ria.
-✓
-“A trifle!” —
-And
-[ iio ]
-And she rang the bell again. The landlord entered with the Supper.
-Will you forgive, Emily
-She paused. Twice she opened her
-lips — — I Saw she wanted to deceive
-, \
-me. —
+
+“I forgive this, my lord - offend no more -
+
+“Tomorrow I shall have a claim to those favours grant them today
+when they are yours - put not off your liberality to the moment you shall be obliged to give - how shall I be able to discern your love fromyour duty? the former only can make me happy - 
+
+“The latter only can I obey - When it commands, love will bid you welcome - 
+
+“I have but your word, Emily - the word of a woman! - perhaps ambition may determine you - Were this the motive, we both should be completely miserable - If you love me, deny me not what you have yet in your power to bestow - A good we enjoy, without any other title to it than the generosity of its giver, has charms, which that we purchase cannot boast - Gratitude devotes our hearts to our benefactors - it does not speak for 
+whose favours we are entitled to order - 
+
+“Is this the language Emily should hear from your lordship? -
+
+“It is the language of love - false delicacy may blush to understand it; but virtue will not.” - 
+
+Indignation fixed a few minutes in the eyes of Emily. She arose - walked to the chimney, and rung the bell. Her contempt restored me to the sense of honour. 
+
+A trifile discomposes my Emily! -
+
+“A trifle!” -
+
+And she rang the bell again. The landlord entered with the supper.
+
+"Will you forgive, Emily?" -
+
+She paused. Twice she opened her lips - I Saw she wanted to deceive me. 
+
 “Will you, my lord, talk and behave like a gentleman?
-You are witty, Emily.” — —
-\
-And taking her by the hand —
-“I think that your wit is adequate
-to my language -- Wear even— —
-the past be mutually forgot —
-tt Let It be So.” -
-I en
-««
-[ 3
-I endeavoured to repair the impertinence of my Speech by the discretion of
-my behaviour; but Emily could not
-0
-dissemble her thoughts; Sorrow was in her heart, though gaiety Seemed to enliven her mien and conversation.
-^ A
-“You do not easily forgive an inju ity, Emily —
-“I own that your discourse has
-vexed me -- -- -- it could hardly become
-the most profligate man of the age —
-“You are So lovely, Emily, that it is impossible not to be Sometimes entirely under the Sway of passion— — am but a man — Say you love me, and never shall you have a cause of complaint — -
-r Id
-t 212 ]
-I do love you —
-Confirm the word with one kiss — it will Seal my pardon.” -«-
-Emily gave that kiss, and her fears gave way again to confidence and lovcr
-I
-\
-I
-LET
-V ' •»
-[ 213 1
-. —
-/■
-LETTER XXL
-I
-H E incidents of the day had So effedlually favoured me, that EU.
 
-mily had not the least idea of having been imposed upon. She laughed at her mother’s whim, and Said she would gratify it to the utmost of her abilities.
-“Your despair, and my joy at her
-unexpected sight, will form a most diverting contrast -- Then the narration
-of woe’s disasters, and virtue’s hairbreadth escapes, told feelingly 1 am
-impatient to be at Lincoln -- -- -
-*
-i
-\ I
-“Had
-t 214 ]
-Had you, or your virtue, Emily,
-been exposed to real danger, your narration would be more moving and
-pathetic — I am afraid you will talk but coldly of imaginary misfortunes — let me strike your Soul with the apprehensions of being undone —
-“My imagination, my lord, will make up for the want of reality — i’ll feel the part I shall perform without the
-help of your lordship.” —
-«
+"You are witty, Emily.” -
+
+And taking her by the hand -
+
+“I think that your wit is adequate to my language - We are even -
+the past be mutually forgot -
+
+"Let it be so." -
+
+I endeavoured to repair the impertinence of my speech by the discretion of my behaviour; but Emily could not dissemble her thoughts; sorrow was in her heart, though gaiety seemed to enliven her mien and conversation.
+
+“You do not easily forgive an injury, Emily - 
+
+“I own that your discourse has vexed me - it could hardly become
+the most profligate man of the age - 
+
+“You are so lovely, Emily, that it is impossible not to be sometimes entirely under the sway of passion - I am but a man - Say you love me, and never shall you have a cause of complaint - 
+
+"I do love you - 
+
+"Confirm the word with one kiss - it will seal my pardon.” - 
+
+Emily gave that kiss, and her fears gave way again to confidence and love. 
+
+---
+
+##LETTER XXI.
+
+The incidents of the day had so effectually favoured me, that Emily had not the least idea of having been imposed upon. She laughed at her mother’s whim, andsSaid she would gratify it to the utmost of her abilities.
+
+“Your despair, and my joy at her unexpected sight, will form a most diverting contrast - Then the narration of woe’s disasters, and virtue’s hairbreadth escapes, told feelingly I am impatient to be at Lincoln -
+
+"Had you, or your virtue, Emily, been exposed to real danger, your narration would be more moving and pathetic - I am afraid you will talk but coldly of imaginary misfortunes - let me strike your soul with the apprehensions of being undone - 
+
+“My imagination, my lord, will make up for the want of reality - I’ll feel the part I shall perform without the help of your lordship.” -
+
 And ringing for Lucy, she retired with her to her room.
-From my conversation with Emily I concluded I could with impunity force myself into her arms. Should not suc cess crown my attempt, I would retreat
-honour[
-[ ]
-lonourably, by Swearing I had no other
-4
-ntention than to alarm her virtue, that he might have the next day a real dis ress to describe. However foolish the ustification, I doubted not its excel ence, when pronounced by a lover, and easoned with mirth and pleasantry. Jncertain of the manner love should bid
-northeast behave, I had, at all events, or
-iered Lucy to cough three times when Smily should be in bed, and then to )pen the door that I might unsuipedt,
-: d steal into the room. The signal was riven, and I was at the bedside of
-4
-%
-imily before she was aware. She started at my sight, and asked with a trem )ling voice what I wanted.
-“Only to wish you a good night a
-; con, d time — that’s all —
-V Lucy? —
-[ 2i6 ]
-“Lucy? — i
-\
-f
-“My lady? — —
-♦ ^
-. “Stay -- -- -- -
-k“
-“husband may be angry with
-me if I do, madam — —
-!
-“When shall you esteem me enough, Emily, not to fear me? — — I could not go to bed without Seeing you again —
-Is that a crime? -- Stay, Lucy, or my
-lady will be frightened to death —
-^ •
-V
-/
-“To be Sure, muttered Lucy, if I
-had Such a handsome husband I would
-#
-not let him lie by himself- -- --
-“
-f
-‘. ' V
-I
-I 217 ]
-Well, my lord, you have Seen me
-\
-leave me that I may rest — - I am immensely tired — -- -- --
-“First let me have one kiss, and then
-ni go -- -- -- -
-“Is it thus you keep the word you
-gave? ...I was to have no more
-cause of complaint —
-“I love.” - — ^ — -
-And I ravished a kifs. Emily arose in a transport of rage; I Seized both iier hands in one of mine, and gazed with delight on the loveliest bosom I ever Saw. Her eyes darted anger and fury at me; but the stutter of her Spirits not permitting her tongue to express
-what she felt, I grew indiscreet, ’
-\ •
-vol. I. L and
-I 218 J
-and paid my homage to her panting breast.
-t V
-“My lord, force me not to despise
-you- -- -- I can yes forgive without
-debasing myself go — — this instant leave me.......
-“Am I not your husband, Emily?
-i
--- -- -- -- Must we Submit our pleasures
-to a vain ceremony? — our hearts beat
-for enjoyment -- -- let trs obey their die
-A
-tates -- -- -- apriest will sanctify them
-tomorrow— — —
-man of true delicacy would not disgrace the woman he intends for his
-wife -- -- have you no honour — no respect
-for yourself? —
-Were
-*
-<
-I
-[ 2 >9 ]
-“Were I in your place, you in mine, my reason would be yours — the rights of love should be attended to — my caresses, my transports would be a debt, which my consciousness of your affection for me, and of your honour, would
-oblige me to pay -- -- Think, Emily, as
-I would do, had fate made me your
-mistress, had fate made you my lover — Make me happy — Bid Scruple away;
-I
-leave it to the fools or insenfible.’* —.
-Then my hand wandered wantonly in Search of agreeable sensations.
-$
-4
-Ungenerous man 1” _____ —
-And she violently struggled to free
-her hands which I continued to hold
-in vain did she call Lucy — Lucy was
-L 2 deaf
-[ 220 J
-%
-deaf — Having already too much offended to hope for pardon, I thought I could not obtain it, but by completing
-her defeat -- Neceshty only. Said I to
-myself, can oblige her to forgive — -
-This ressedlion silenced humanity in my heart, and gave the victory to pas sion over honour. I, on a sudden, threw the bedclothes to the foot of the bed, and, fixing myself in her arms, braved her tears, prayers and resistance. Virtue herself could not have
-made a better defence. Emily feeling
-%
-her strength to decay, and my courage to renew, desired me to let her breathe — that desire being accompanied by an
-i
-animated kiss, and a promise to make me happy, I desisted from the attack —
-“My
-J
-t 22 1 ]
-My dear lord, Said Emily with the bewitching tone of voluptuousness, were I certain you would not cease to love me, I would cease to oppose your triumph -- -- -- Love Speaks strongly in your
-favour -- -- the fear only of your inconstancy
-arms my virtue against you.” — ^
-*
-I Swore to be constant. —
-I
-I
-“Well, no longer will I resist — —. undress yourself, and come to partake
-of my bed -- -- -- -- Your oath has made
-you my husband- -- -- -- -
-“Emily, thou makest me the happiest of men.” — -
-<
-*
-1
-And
-[ 222 ]
-And I jumped out of the bed. I had not been two minutes from her when she exclaimed- -- -- --
-“! forgive me this murder — Virtue commands it.” -- -- -- -
-I cast a trembling look upon her — ' she held a pistol in her hand -- -- -1 remained
-motionless in the chair where I Sat.
-“My lord, this instrument of death
-is yours: I stole it from the table in ¥
-the parlour upon which you laid it — — if you dare to move one step towards
-me, you are no more -- -- -- -- leave this
-room, or I sire at youyou are a villain
-beneath my pity —
-“Ah,
-xfh,
-C 223 ]
-Ah, ah, ah! Now, Emily, you shall be able to perform tomorrow
-your part to a miracle — you have been upon the very brink of ruin — I did not intend to finish it, but to bring you into danger, that you might at more naturally the charasler you are to assume — Were I inclined to Satisfy my pashon for you, I would defy your anger, and that pistol — Had I been more generous my design would have miscarried — I repent not for what T have done — nay, I glory in it, since it adds to my esteem and' love for you —
-^ ^ J
-You did not steal that pistol without my knowledge, Emily; I Saw you take it — Amazed at your making no use of
-I
-it, I began to fear that love would prevail over your virtue — The suddenness
-of
-0
-[ 2^4 ]
-I
-of your caresses told me your design — I gave you purposely a respite — You have answered my expedlations —
-I adore you -- -- -- fear me not, virtuous
-Emily — I deserve rather your thanks for having put you to the trial, than your indignation — Let not Lucy know
-t
-this Scene between us — remember that you are to be my wise, and that your reputation must be as unquestionable as your virtue — Calm your Ipirits, dear Emily — endeavour to rest till the cool ness of the morning invites us to proceed on our journey -- Lucy!!! —
-Secrete that pistol from her sight — Lucy! —.
-eiow artful man! how he 'gilds his
-villainy! — — —,
-I feigned
-[ 225 ]
+
+From my conversation with Emily I concluded I could with impunity force myself into her arms. Should not success crown my attempt, I would retreat honourably, by swearing I had no other
+intention than to alarm her virtue, that he might have the next day a real distress to describe. However foolish the justification, I doubted not its excellence, when pronounced by a lover, and seasoned with mirth and pleasantry. Uncertain of the manner love should bid northeast behave, I had, at all events, ordered Lucy to cough three times when Emily should be in bed, and then to open the door that I might unsuspected  stel into the room. The signal was given, and I was at the bedside of
+Emily before she was aware. She started at my sight, and asked with a trembling voice what I wanted.
+
+“Only to wish you a good night a second time - that’s all - 
+
+“Lucy? -
+
+“My lady? -
+
+“Stay -
+
+“Your husband may be angry with me if I do, madam -
+
+“When shall you esteem me enough, Emily, not to fear me? - I could not go to bed without seeing you again - Is that a crime? - Stay, Lucy, or my lady will be frightened to death -
+
+“To be sure, muttered Lucy, if I had such a handsome husband I would not let him lie by himself - 
+
+Well, my lord, you have seen me - now leave me that I may rest - I am immensely tired -
+
+“First let me have one kiss, and then I'll go -
+
+“Is it thus you keep the word you gave? - I was to have no more
+cause of complaint - 
+
+“I love.” - 
+
+And I ravished a kiss. Emily arose in a transport of rage; I seized both her hands in one of mine, and gazed with delight on the loveliest bosom I ever saw. Her eyes darted anger and fury at me; but the stutter of her spirits not permitting her tongue to express what she felt, I grew indiscreet, and paid my homage to her panting breast.
+
+“My lord, force me not to despise you - I can yet forgive without
+debasing myself go - this instant leave me -
+
+“Am I not your husband, Emily? - Must we submit our pleasures
+to a vain ceremony? - our hearts beat for enjoyment - let us obey their dictates - a priest will sanctify them tomorrow -
+
+
+"A man of true delicacy would not disgrace the woman he intends for his wife - have you no honour - no respect for yourself? -
+
+“Were I in your place, you in mine, my reason would be yours - the rights of love should be attended to - my caresses, my transports would be a debt, which my consciousness of your affection for me, and of your honour, would oblige me to pay - Think, Emily, as I would do, had fate made me your mistress, had fate made you my lover - Make me happy - Bid Scruple away; leave it to the fools or insenfible." - 
+
+Then my hand wandered wantonly in search of agreeable sensations.
+
+"Ungenerous man!" - 
+
+And she violently struggled to free her hands which I continued to hold in vain did she call Lucy - Lucy was deaf - Having already too much offended to hope for pardon, I thought I could not obtain it, but by completing her defeat - Necessity only, said I to myself, can oblige her to forgive - This reflection silenced humanity in my heart, and gave the victory to passion over honour. I, on a sudden, threw the bedclothes to the foot of the bed, and, fixing myself in her arms, braved her tears, prayers and resistance. Virtue herself could not have
+made a better defence. Emily feeling her strength to decay, and my courage to renew, desired me to let her breathe - that desire being accompanied by an animated kiss, and a promise to make me happy, I desisted from the attack -
+
+"My dear lord, Said Emily with the bewitching tone of voluptuousness, were I certain you would not cease to love me, I would cease to oppose your triumph - Love Speaks strongly in your
+favour - the fear only of your inconstancy arms my virtue against you.” -
+
+I swore to be constant. -
+
+“Well, no longer will I resist - undress yourself, and come to partake of my bed - Your oath has made you my husband - 
+
+“Adorable Emily, thou makest me the happiest of men.” -
+
+And I jumped out of the bed. I had not been two minutes from her when she exclaimed -
+
+“Lord! forgive me this murder - Virtue commands it.” -
+
+I cast a trembling look upon her - she held a pistol in her hand - I remained motionless in the chair where I sat.
+
+“My lord, this instrument of death is yours: I stole it from the table in the parlour upon which you laid it - if you dare to move one step towards me, you are no more - leave this room, or I fire at youy - you are a villain beneath my pity -
+
+"Ah, ah, ah! Now, Emily, you shall be able to perform tomorrow
+your part to a miracle - you have been upon the very brink of ruin - I did not intend to finish it, but to bring you into danger, that you might act more naturally the character you are to assume - Were I inclined to satisfy my passion for you, I would defy your anger, and that pistol - Had I been more generous my design would have miscarried - I repent not for what I have done p nay, I glory in it, since it adds to my esteem and love for you - You did not steal that pistol without my knowledge, Emily; I saw you take it - Amazed at your making no use of it, I began to fear that love would prevail over your virtue - The suddenness of your caresses told me your design - I gave you purposely a respite — You have answered my expectations - I adore you - fear me not, virtuous Emily - I deserve rather your thanks for having put you to the trial, than your indignation - Let not Lucy know this dcene between us - remember that you are to be my wife, and that your reputation must be as unquestionable as your virtue - Calm your spirits, dear Emily - endeavour to rest till the coolness of the morning invites us to proceed on our journey - Lucy! Lucy! - secrete that pistol from her sight - Lucy! -
+
+"How artful man! how he gilds his villainy! -
+
 I feigned not to hear; and bidding Lucy not leave my lady, I went to my room with the looks of innocence.
-/
-f
-(
-1
-*
-4
-»
-V
-i
-f
-\
-/
-• \
-— ft
-i
-I
-LET;
-« •
-•v
-✓
-•*
-0
-.
-«
-[ *26 ]
-X
-/
-LETTER xxri.
-f T is needless, Sir, to tell you the re
-ssedlions I made upon my disap
-(
-pointment, and the compliments I paid
-to my self-love for the happy turn I had given to my assaults against the
-S virtue of Emily. I thought she believed me : I was mistaken. At the dawn of the day I was awoke by Lucy.
-“My lord, the lady has been Soliciting me these two hours with gold and promises to procure her a post
-chaise for London. I know no lon.q; cr
-o
-1
-I t ir a
-i uvy
-f 227)
-t
-how to deny without appearing entirely in your interest. What shall I
-“Receive her gold by all means,
-'Lucy, and order a poshchaise. When ilie has got in it, let my people Secure
-I
-■ the postilions till I am warned of her flight.*’.
-I got up, and stepped into a room, from whence I could, unseen, observe the motions of Emily. I had hardly
-given my orders to my valet de chamber., when she came into the yard, and, after having thrown her looks every way
-r
-for fear of Spies, fly tiptoed to the chaise, and leapt into it. Emily had not indulged two minutes the hope
-f
-of running away from me before my
-ct ^ r“ “
-[)
-valet de chamber destroyed, by his presence,
-the flattering illusion.
-%
-“May I ask, madam, where you are going?” -- -- -- --
+
+---
+
+##LETTER XXII.
+
+It is needless, Sir, to tell you the reflections I made upon my disappointment, and the compliments I paid to my self-love for the happy turn I had given to my assaults against the virtue of Emily. I thought she believed me: I was mistaken. At the dawn of the day I was awoke by Lucy.
+
+“My lord, the lady has been soliciting me these two hours with gold and promises to procure her a post chaise for London. I know no longer how to deny without appearing entirely in your interest. What shall I do? -
+
+“Receive her gold by all means, Lucy, and order a post-chaise. When she has got in it, let my people secure the postilions till I am warned of her flight."
+
+I got up, and stepped into a room, from whence I could, unseen, observe the motions of Emily. I had hardly given my orders to my valet de chamber, when she came into the yard, and, after having thrown her looks every way for fear of spies, fly tiptoed to the chaise, and leapt into it. Emily had not indulged two minutes the hope of running away from me before my valet de chamber destroyed, by his presence, the flattering illusion.
+
+“May I ask, madam, where you are going?” -
+
 Emily turned from him with contempt, and bid the postilions to go.
-“My duty, madam, obliges me to oppose your departure, till my master
-is acquainted with it.” -- --
-%
-And calling one of the Servants, he Sent him to me, whilst he threatened Lucy with my indignation for having favoured the lady’s frolicksome trick. — *
-“Am I a stave, cried Emily, biting her lips with Ipite and fury -- -- --
-“I dare say, madam, that his lord ship will not detain you one minute
-against
-[ 229 ]
-against your will -- -- -- -- -- -- -- ^here he
-comes -- -- -- --?
-What! -- -- -- My Emily ssying from’
-the man who adores her? -- -- -- -- -- -- Ami
-4
-awaked? -- -- -- -- is it Emily I see -- -- --
-And I feigned the greatest amaze i ment. Emily was too Sensibly affecst ed with the miscarriage of her favourite
-Scheme to answer me. She cast her '
-«>
-eyes down, and the sighs she involuntarily breathed were marked with grief.
-y
-“Are not the indiscretions of a lo 3
-\
-ver excused by the beauty of his mistress?? — — I constantly decent and respeftful, What idea could you entertain
 
-V[
-[ ]
-terrain of my passi©n for you? -- -- -- —
-\
-Your virtue is too Severe, Emily“
-“my lord -- -- -- but you have
-none -- -- -- 1 mistook your character— —
-have made a wretch of Emily —
-And Some tears stowed over her lovely bosom,
-“those tears are an insult to my honour“
-“honour! -- -- -- -- You dare to
-talk of honour! -- -- prostitute not that
-Sacred word -- -- -- -- Alas! that I should
-Speak Such a language — — Speak it without injuring you! -- -- --
-i. II W * fc > w
-I 23° ]
-reserve this pathetic, Emily, for
-your interview with your mother -- -- -- -- -
-This is not a proper time to rehearse
-it -- -- -
-“Add not raillery to abuse -- -- -- -- --
-you are already but too contemptible —
-“You will give me leave, Emily, to
-differ from your opinion -- -- -- -- -1 have
-been guilty of many follies and errors, but never of meanness.
-What right have you to detain me
-here? -- -- -
-/
-You have been committed to my' care.” —
-The
-[ 232 ]
-The hue of indignation flushed up into her face, -- --
-f
-How bold and shamelefs !” -■-■ - »
-I thought it then a feasonable time to be displeafed in my turn.
-•N.
-Madam, my impertinence deserves
-not Such an effusion of contempt -- -- -- -
-Will you go to Lincoln, or return to London -- -- -- Choose which you like the
-best— — -
-\
-London, my lord — —
-“With all my heart, madam i’ll see you Safe at home.” —
-C
-/ s N
-And
-O
-[ 233 I
-And turning from her, with the air
-y
-of indifference, I ordered my chaise to
-%
-be got ready. emily’s anger began to abate : she alighted, and passed into the parlour, where she sat pensive and me lancholic. I crossed the parlour, and affected to take no notice of her. A few minutes after, being told that th carriage was at the door, she fouewed my valet de chamber. Surprised at my not following her, and at thp order given to the postilions to Set our, and take the road to London, she called to them to stop.
-/
-¥
-“Where is my lord i
-V
-y
-*
-Being answered I was in another chaise, she concealed her displeasure under the mash of content,
-y To
-t 235 1
-r
-“To London, my friends, cried she to the drivers — —
-X
-/
-“Yes, madamd* -- -- -- -- -
-(
-And they drove to Lincoln,
-I
-I
-4
-\
-/
-I
-- LET[
-[ ]
-\
-I f
-LETTER XXIII 7}
-A
-'j
-i
-4
-V
-A S Emily had rode above three ]
-^ ^ hours in the dark the night before, I was in hopes that she would not ] perceive the deceit put upon her; but ■' an unlucky post ereded in a cross way betrayed me. Reading distindlly upon it road to Lincoln, her panic terrors changed into a real fear. She insisted upon my coming to her. ~
-“Read, my lord — Will you boast your honour again? —
-f ‘ What?
-[ 236 ]
-%
-What? is it but this minute you discovered we were posting away to
-Lincoln? -- Upon my word, madam,
-your Surprise wrongs your understanding. — Have I not told you that yoiw mother expedls you at Lincoln? You despise me indeed, if you think I could take upon me to give her up to the mortal anxiety of waiting in vain for your arrival. What would not be her anxiety had I complied with your caprice? -- -- 1 neither can nor will punish
-Mrs. Clinton for the injustices of her daughter -- -- When I have delivered
-you into her hands, madam, no
-longer lliall you See me -- -- 1 am too
-proud to bear with an usage I do not
-de Serve.” — — —
-%
-Then
-\
-I
-I 237 ]
-Then bowing respedlfully, and draw ng a few paces back, I beckoned to
-r
-he postboys to go on, Emily turned ler head to wipe an involuntary tear. —
-\
-“My lord? —
-Madam? —
-Madam! am I no more your emily?” ?” — •
-*•
+“My duty, madam, obliges me to oppose your departure, till my master is acquainted with it.” -
 
-The tone of her voice had a Sedudlion, which I did not attempt to resist. I opened the door of the chaise, and Sat near her. emily’s half blushes and half Smiles telling plainly she resented my behaviour, and loved me, I had the discretion not to Speak one word that might recall the past into her
-mind.
-0
-[ 239 ]
-mind. The dignity of her deportment struck my heart with remorse — fearing her virtue should force her to hate me, when not finding her mother at Lincoln, she would in me See a villain instead of a man of honour, I resolved to tell her the truth, but to colour it in a manner as to avoid her hatred, though I could not her indignation. After we had taken fresh horses at the last stage, I artfully confessed my sin, humbly begged for absolution, and Swore a most Sacred oath to bring her back to her parents, if in a fortnight I could not obtain the consent of my uncle, or to wed her, should she not
-i
-disdain to give her hand to a man, who had no fortune to boast. The amazement of Emily was not So great as I
-expefled;
-/
-[ 238 J
-expedfed; she listened calmly, and as calmly answered me.
-“After the last night’s incidents, my lord, and the numberless impostures you have been guilty of, I cannot trust
-to your word — -- -- -- if your happiness
-is wrapped up in mine, hesitate not to return to London to free my parents of the Sorrow they will be oppressed with, if they do not See me today— — love
-them; make them not miserable -- -- -- -
-prove me by your compliance that pass Sion only has made you imprudent and criminal — My father is rich, he will never say No to his daughter when my inclination shall point you out to him for the husband I have chosen —
-« Will
-«
-f 240 ]
-Will his riches be a compensation for the loss of fifteen thousand pounds a year? No, dear Emily : I love you too much to beggar you of a life of greatness and pleasure— — shall leave you at W — hall in Yorkshire, whilst ni come to Solicit the approbation of lord C -- -- -
-« H is approbation I will wait in London —
-“He will give it the Sooner that
-V
-your reputation may Suffer by his denial — Lord C — is the most humane and generous of men — Pride is the only
-foible I suspedl in him — and possibly
-/
-my fears only have caused that Suspicion— — many noblemen are So foolishly infatuated with their birth. So
-\
-averse[
-[ }:
-averse to a marriage beneath their rank, -
-^ \
-that I never durst reveal to him my' inclination for you > i was wrong; a man of his Sensibility cannot be Surely
-tainted with a ridicule wshich owes its
-/
-birth to folly — Dear Emily, since you love me, for your own Sake, I must dis obey you — v/rite to your family from Lincoln — your absence may be kept a Secret.” —
-I
-Emily Seemed to yield to my ael vice; — Soon the appearance of three
-r
-gentlemen om horseback declared her dissimulation. When they came near enough to be heard,., she called for help — they immediately rode to the chaise, but my valet de chamber telling them that his mistress was troubled with, vapours, they galloped away.
-vol. I. M. The[
-[ ]
-The cowards, cried Emily! — —
-\
-My lord, you See I am determined to leave you —
-“ril take care you shall not — From that moment the blinds were pulled down, and we remained Silent.
-Hearing a carriage riding by, she cried out with all her might — Lord C — — came to her relief — happy, the happiest of men has this unexpedled event
-made me — Emily has forgiven -- -- May
-you. Sir, meet an Emily, and be, more worthy of her than I!” -
-t
-END or THE FIRST VOLUME.
-0
-% %
-\
-(
-* f
-s
-^ V
-I
-. ' • '
-»
-w
-C
-. /
-4 ‘
-, 4
-• '
-\
-\
-\
-/
-/
-»
-V
-. ^ (
-■* ". rx
-% ' •
-- S' '•
-- r “'
-\
-✓
-i
-, /
-I \
-t
-f
-\
-I
-/
-/
-t
-I
-. Z
-* % * ‘ ^
+And calling one of the Servants, he sent him to me, whilst he threatened Lucy with my indignation for having favoured the lady’s frolicksome trick. -
 
-V -- ^ V
-'V'v :
-O
-. .*^ *
-- " ' ■ V. "
-■ \ ■' -'
-* i
-\
-\
-¥ *
-f
-t
-_ ' J
-r
-■ ‘r'i* ■
-XL ' -.
-V
-- ir
-. » *
-* " I ‘ S.
-4 '
-". y
-.
-', ‘i .A <^ ^ *^ * *^ /
-• •, V
-A" •- ■• 't r
-rri \'.a
-cr -
-h. c^.: '• ■ '' '
-CA *
-^ "
-— '
-• • •*
-A' • I
-*-;. «
-*; '-'• V >•
-'
-•/: ^
-* .^ 7.
-‘. 0
-?• •
-k • • •
-"ja '■ ■
-A
-\
-\ • • J -
-•i>ym
-aamab^\>. s
-■-
--
-- • - ^ ' • *
-- •' ’, \ < ■ '■ ■' ■ lv^aaffs^
-V,, '; -. .■•■;. - •' ■" Lc
-- ■ ■ ^ _: ct,, '- -^ ' ■■
-*. ■ - ^ ■" v’ h"' ' - ■>■''■' t .- '-'^. ' - ■
-. • ■ - T. ■•. ■ * ■ C' ' -- ' - • •/
-. T- -- -. / ■ ■.,. ' ' ■-'■■.•. '; : .: „ ^ N'
-''' ' * • “.'••■ vc. utv^/ tc' '■''■' ■ ■
-, -- g; ’; ' :, •.. ^ Wriri' -- ',.
-■‘. ' ■ ■ ■■'■; ■^ ' A... .... ■'. ' ■ '.. -
-» '*' * « ' ^ -. ■ ■ ' ■ ■*
-■■ ■ ^ : V /- : /; ■ '■. - : '■
-•• ■'. ■ -- r. 't. *
-■>. - ■ ■. ■ > ■ ',. " ■
-.. ^ - ■, A ■ ^ ^ ^
-'t.. • ■
-^ ' ''' ' ^ ^ ' * ' ' ' ' ' ' ^ '-'^ '*" '' ^ \ ' '
-A '* .' V *• ■ ' * ' -'.. /*■■■■*■'*'■- - -■ :
-^ i ■. ■; \ ■ '.- .’'■ ■ Vtec'o' ' C
--- f ' V • .- - '%• •; •. '.
-r ' ^ ^ :,. - ■ ^ .D -. V ■. S ■.
-._ ‘ F ^ :; 1., •; -..^. •,
-- ■ i''.: ''.:,.,.,;, k i*‘‘: Lvi.. ^, - '. C
-i ‘.. aa'^ r. • • •. ',; .'-. •• '•
-- ■ .-■. X - - .I.. -. .' -■ - ' • *
-'■'" A ... X. / ‘.. C
-, L b " '• A ^ ^ ‘■■a'r
-■" -■ AAA.. ‘ ' ' '. '"■ ■
-* ". ^. • • T K • * • -
-AA; : 5' ar' ' \ ''■
-, - ■ ■ ^ -. ■),. - * \, -,
-\. A V. • ' ' •. A;;., - ov
-CD' ' - A;; r S ', -' caadi^^ -
-ri ' / ■ -. 'AXE V.
-> ‘ ■ - 'T- -- .- ■.. ^ I -,., V ' ■ ‘... ..•.,
-'...■ •*. ' ■ ' ' V ' V ■- A. ■ -. u..
-- ' ’ ' ■ " ■' ' ‘ -, ■;. A '. ’ '. '.
-'h L'L n' •'■-'■■ ■■- ' '. A D -- W
-.. ' - I' '
-Avi.; -- A A.. / ^ ■ - ■• V '
-^ ' '/■ ". ■■, .■■■- ■ ■■.; : • ■- ' • rt }■ ■ ' ' " ■
-'■ -. -. • ’ 'An; : C
-V, *, / ». ■'•• ■'.■.■ ^
-: I. •. A... ^ ^ N ^
-. • ■ -. s. C. •, •
-A - \ ^ ■;; .- •-■..•, ■;.; .:
-- J \; I A;
-'r,..
-- A: ■ ' ■ ■ ■ ■ ^ ■.. ■ A '■ ■ ■ Ah - ■..
-'• .' ' ^ ^ '. ■ .': wac;
-* - - ' ' A — : AA ■ • - ■ aa: A
-•,. ■' : ' ■/ -^. ' '.. '.. ^
-.. -- ■ - -_. ' A' ■> A i -* ■. /.. A' ‘ A " AA
-■ • • .' <• - • I' ' - •'."-
-• ‘ ' ' '. ♦ ^'•.c'.\. ‘ .'''. *' A’ h -. '. .• .>, .' -. ■ ■
-y ' ' ' V ■' ^ .^’ _. * * ’ 4
-\
-I •
-* t, •
-(
-. I
-\
-/
-I
-‘ ' ' /
-/
-t •
-/ ’ «
-*. 4
-J
-»
-i
-/.
-^ y ' '
-«
-I
-t
->
-• ' ^ t
-/
-/
-\
-/
-\
-(
+“Am I a slave, cried Emily, biting her lips with spite and fury -
 
-/
-/
-I
-s
-t
-«.
-y
-'
-t
-/
-'> ' ' ■ C
-• /
-I
-"> / ‘
-. ' ■
-«
-«
-I '
-/
-V -- ' “' '' -'• /.... -5' - ■ / lt %. ’ • • ■*
-■* -•- - L • • ■" ■ •* • * C ' V’ " * •. • 1 •.
-■ ••t^ .‘. .• » - rrx ' • r • V ' • ■
-.. ■ ' - ?AF - ^ * ■ ■. .■ ^ - -^ ...... ~
-VT'.. ^. • » .f ''AI,
-■ ' • : ' *• ' V ■,..., :
-L ( ■ ■ ^, ■ ' V / '
-nh y IS • -■ '.
-“• ■ “"*-'’ ■ F -- ff \ ^ - ■ • ' • ‘' '- • " "
-- '■ :. iv
-\. ai>va^ly^a -- y v l y - • — ■ t.., ■' C r' ' ■
-'. ■ ■-"'%• ■’ '' c '*''’i
-■ '. ' iteiin i L 'fa v'^‘ ■ ' ’■ "tt • ■* ~ ■ k ' ' /■■.'
-V • *.: '., : rv ^; *' -.. ^ ■ .- r b •' i ..-
-• «. ■ ■ T' ' - •• : -..*. *, ••! ■ '. ■'■*': •.. ■.'...
-^ ' *■ ’'* ' ' v '* ' V •'• '. ' ’ • '. ■
-I ■ '-■■*■■ ^', .'■. -. • ‘- •: t
-\ : V '-• V,, *• “, V 'A I '. ' ■ ...;
-^^. i. '; -, .T \ * ' '. /.-.'■, •• •
-'‘'' '' '' ' ' ' ” ” '' ' '* ''^' * ' ' ' ' ' '' ' ' '' '
-, -- i < ■ ■. b • ■ - ■ V pl..
-'.
-~d \f .- - I •..; ' ti /
-'.- - -- ■*•■; ■ ' ■ ■ ' ' ’
-1 • ■■ : V ■ ‘. ... ' • .- •
-■" - ' ^^ -. ■» ^ ■ • ' - '., ■<■ ■ ■ ^
-- '^' -- Lt N: -, -^ C -- / ' * -- ■ * ', i *
-, .•., i -- '. ..'. < ■y r^f.’ ^, ' .^re sft _ :, -. r ‘ ^
-■■ ' .1 ' ' -. .J.;... ■. - ■. -
-'- nsl VC - ■ ' V...
-. .- -■■ ■,, : ■ ... ■... St -. V ■■ ■ : ■; ■ ^, -, ■ ■ ■ ■ •-,. L „:.,., ..:.
-I • • • V •• ^
-V V - ■/;. V -. C... •.••■'■?-•'•■•.: •' .'; • N /,
-*T‘*' '. •• N' ', -■ ■' v' ' ’’\ \ / ^ : V': .■■':
-. ■_ • ■ .:; i ^^^- .- ' IC 'W ■ '
-. ■' ■. nnn:.. : ■ ■ ■ ^ ' ■ •, .s; ' n .., r *
-’ : n.d»bb b S *, .te -■ / ■ b b
-•• V ■. ' -... ■\'''‘""'^'^ V ■. C bi^^^bb .'b \ b'■ b b sv: : V
-■. •■ ■- ■ s' ' ■■-: •■-■'■■..._. \b..lb nb
-> -- - - - b'b : .b, v^b •■ b... i • rv _ ^
-.'■ ■'. ■'■ -; .'. .: vbb. ^r, .... -.;., ■., : ..b>bcs^
-'• ' • '-.. *.! -• •-'^ • ' - •' - • •; ■•••-■ \>.,. _' • CV- -- ' -’■.>-,.
-'.* -: '5, '"'^i.^b - ^ • ' ' .' - j ***"'*
-^ ^. ^, V. ■
-* ' i S
-* .-. / ■ .' A
-■.. A -. ^ •- ■. ■ C., ■
-% ' - -. ^ ■■■'•.■ ■ ' • ■ A - r ■ '
-.....
-■* •. * • /■
-'- ■ ^ - : ■. -
-- ■ • - ^. ' ■ 1-
-•,
-'.. * V • s ^ >
-I "
-* - *
-■ * w '. ' ' ■ \
-• * i '.. ' - \
-'I ' ■' '. ' '. ■ '
->. •.,
-.. •*
-^ ■ ■'. r ■, ■ ■'■ ■. ■
-^ •. •'■ V: -: ' -
-* - ' -' ' '
-'“w; -. ‘t ' * *■
-C.; • ATE 'Ci" "
-■ - : S ' r.,
-I
-\ < ^ •
-i •. ^ _
-% *
-. "" ' ' ' ' ■, ■ '■. .' ■ '.
-■■ ■: ■ ’ ' ' ' ‘ A.
-■ ' A "•-' v: : : ■ ■ ■ '■ ■.. ■
-^ A;. ' \ 'T ■ • '. ••■' •' ♦ Y
-ic ^ ' A'
-W' ^7 L ■ ■ '
-, V --
-7'j3.f ...
-s ^>- - A. •- '
-V — - ‘ 4. s.. • * ■ -
-^. "VS ■>■.'-• ' i" “■ ‘ *..
-^ - ■ ■ %; V. ‘
-'• \ - *• -'*.
-- ■' ^ ‘ ^ '; ■ ‘ .D. L *. ' f ■. ■ V * ■ .*. ■. • ' ' "
-■ - ■ v- -- - ‘ ■ • '., •;
-'n. - / ■ • ■ 3 h ' ■ - • \ :,;
-■: ^. - - ■.■■■■ •-■' ‘ '■ ■ * r ■.. -;; V
-’. C - - ■■ > '. ■. .- C -:. i •• ^,
-• - • ' ' ^^0. '■ ' ■ • \ -
-^ ^
-■■ • • i - V ’
-'.. ■ ', •.. - .r --
-'N..., C •. ■ ■■ ■ ■ NV ■ ■ ■ ' ■ ■■
-.. ■ •: ■• ■ •
-. I • V -
-i / ^ ^. -
-^ T - '. '. ' ' '. ^ ^ '
-'■ >■■ • ■ *.. ■ ’
-'. - - ' V ■.. ' ■ N •' • V V
-•. : ■ ' ND.... ' ' ' ' * ■ ■ V
-T. ■ ■-■.. - ■ ■ " ' < ■.. ■ ■/ C s.
-‘ ‘. — • -. .• ■ ■■: r: ^-
-i.. - - -. - ■ - ^: V
-: C ' ■ t: '•:
-'•• \
-’ ■ ^ ■'; ■- C • - ■ D
--: ^ - ' • ' A • •: _...
-'' ' .' '' * ' ' ' ' ' *
--> f.. V ' - - ^ ■*
-r,, ' * ■ * ' A ^ '
-■ ■ ' - * ‘ ‘ J • ' '. ’ i -, 3.,
-s' A ^.,, - - ' ^ :
-.• ■ • r... •. V ^. •, ' - •
-- : ^ ' ■ ' ' ^ ■/- ' ^
-;. ■. :, • r, evtrs
-V : L, ■ •. • ■. ■,, .^
-■; ■ ' • '. ■ '' ■ -'■• t: ' ■ ■■ L,, <
-• ■:. ' V. ’ C : ■ .D.,, 'IT j; V
-* * •.. ’ • * '''■
-* ' • • T •. •* • - <■. ■;
-'• ■ ■/.. ■ ■: ■ *. / - - 'i C '
-tf ■ ■' - At,. '.,
-■ • d - *. > ' ’
-/' • ’.. ' ^ ■;
-s. - • \ ^-
-. ^ ' D • ■, • -• ■: •■■ i'. ■ ■., : C
-*. »
--,. ■ - ■' •■. I' ' ■ • /■,.. ■ ■ '
-. i j. •.; ♦ sv. /. • 'VC.
-'h. a. ‘ •■'s;
-'‘ ■ ' ‘ ■.. h • hr
-•. ^ ^ > - ' V -; SC
-- • ‘
-.. * ' ... • i
-* •
-^. V ^ _ ■.. - AT V
-■ ^ ■ • : ■ ■-■■■.. :. ■ • '■
-• * • •
-'-.. ■ -. ■ y ■' • V, • V V. '.
-^ ‘; fet. • • ■ •' h - ‘ '•
-'. •. •, ■ ■ ■ ■. O, .T: : :
-• \ ' ' X ' d. ■ ' -
-^. .* •
-. ■ f V cfi., ', .*. -.•.*■• a' q «^s
-* ' • ■ .•. r - -... • ^.- r.'
-ri^v... - • = ‘ * '"'te'c* ■*'• •
-Fra ari' 'ra^f^^amar^ AT" "
-*^''\ '■ ■" .^^, '* s "p; viv '^^vi'v “' -. • : vc'’h: ^C'.’'; ■ ..- ■''
-.1 •• ■''■•■■■"'• ’ /' “C J.. : '. ■ < i ■ r' ■'dca/jc.t'n V rc Cnv
-^. i.' -- .c, .-,; .- ■ rn.bffvd. : •.. ' ■ •. ' • • -•' f '• ''•• - ' '■ ' V ■‘••••.■'^-^ '
-• • Cw. v '; C’ ..• L v/itv ' C ^ ■■ V V ' ■ ” '- '■'.-/, ■-■; TV,, ■. ^
-■'., ' ^ ..' fy‘ mr: FA ra
-• ‘ '■. •-' ■ ."•'•■■' L.. •• L,.,.. V • ..» .- • ' ."' ^ "■■■■'■■.', * a. ' - '■ ■
-T ••'•■ .-■ ' ' ^ tc'tevv^ 'n "i' Ct
-O' h / c ’f'•'.'/v? rn -■-•.•. •., - ■ -■.■■ • •' •-
-•• ' -- C '■ L ' .N. I,, :., .•. •. • •. ■ •••■. •• -.. "
-••• .» ria -- \viar: yri ■ '■. '.. ■ V .•-'■'■•' A '
-'.• - ^ •■ ' V' '. .- • '. V..
-■ * ■ ■ ' ■■■ ■ '■ D ..'■.■■■- ^ ■. ■■ ' ■ ■; ■ A
-'■' ■ - ' ''t ■ : ■ S. ' ’ ■ ■ ■ j. ' * ' ' ■' .: '. • y '0 S
-'■ h.y' C ■ ■ '0 * '.■ ■. ' ■ '. ■■ ■ ‘ ^ ■: ■.■': *■
-. ■'.. y. h' ' ■. ' ■, ■ '■■ ' '
-AS ■ *" ■■• ia'yyya.d ys; ' V, ■ ■ ‘. AY .*; y '
-y " .A: •: '• ' " O' ■ '.
-v.. ■■■■, ■■ ‘ ■ ■■ ■•" a:
-‘ -. ■ - ■ A.,, ^, y .yc ’. ■ - ■ ■•.■■'-... ~ • _ ■
-\ ' \ y .-. / - ' • : - /.. - >• c
-■ • ' •-<■ .'. -: C... ■.. -
-'r' ' varia' •' ■-■ '. • - •■ ■ “
-•■»; ■, •, y /', '(.■/.■ -. ■. •... •
-, •■* h ./■ ». - • - • '. •-•
-■'• ya^s; :, = ■ _ :., y • ■- ■
-» - '-' ■ • '■ ' y iy •. \. '■-■
-l .v yy :,., 'yy. • ^ ■• • ■, y S ■^ ■
-. 'O' y'.~v y?. • ■
-.. r''.’ '•••• «, .f, ' lf. i: -., • V •
-^ » f
-^^ • ’ ’ y ' /
-C T
-VA
-• * * ' ’ • •
-..
-■■ ■ " ‘.., •■^y s. y
-* • ' ' •., C V ‘ ■ • ’
-• ‘ ■ ' y ■, T ' • ' ■
-y. : .' ' A. .-. •■..
-■ - ■ ' -.
-•... • • ' • '.. *
-^ ‘ ■*'. I - y- -- -‘^; : ■■. ■
-. * * *
-7 ■.. -■ ■ ■
-- : / '
-y'. •.'/•■•• -- •..
-’ 'I' ' ' A
-'■ L '
-■ t : ysa'sb: yy ■; : ya
-^ ■-; ■'■ ■ A ■ ‘aa a; '
-^ A;; ■■ ■: ...,; ',. ■
-^ ••■✓,. I - ■.. * ' ' '
-i ■; : aa - aa --... ■ •
-1 y.. ■ •••-•, •
-A. ‘ ■.■-■ i ' ■'■ ■' '; ■■ _, • '
-; ' ',. C ^■' ', ' ■*; '■'. ■ -., S: : V. y .- -- .' ■ ■. ■. .s'
-■ ' 1- ^ I - •; ' ■ ^ ‘ I. • '^ .r....
-'■■• "'y' ■' _ 'yv ' "o" ' ^ ‘ •
-'■• -..,; y "A, «■, - •..
-, -»•'.< y '■ -' ^. ■ '■, '•• V ' • ■•.. - ■ ■
-• '. ' ■’' y •'• •'. ' '■•■'•• ••-'.. ■ ■
-. ■• 1 C.. • ..'7.. y ' r ." '■ •'. ■.; ■ ' ‘, •, .■...•.
-1; /■■■ * ••'.■•• •
-r .A ■ a’''hv tyr., .vsy A' ya • '^-
-■■- " y. 'i.' ■■> y.'sas' y ■
-''. • 'f b ■ V y \ ■',,. ■
-•- • ^ vac' y>yyy - yi'c"' •' * •• "■**"■-, ■ a ■ ■'... •
-'^/■; y, .^yaa'i > SA'., _ r .sal, S ■ 'csl/; -- ys a*''‘r ■■: •■ 'A'' '' ' ■ .■',
-a^y'.i.s a'a ya.syv..; s, y^^s S '■' A, - ^ A. ‘
-. '.y •a''=^n a'.hs -- ''/< -- yy • ■'.•: y • .- --. _
-. ' ' '.t ^ L ■ y' S ' * '■‘/V .e ‘•'’ar • '(•. ' ' ... ■ •
-'•' ■‘y! A;;.. ■.
-A ^.a^v'ya^ tea C A; A' -- : - ^ s.. y • AV. ' '
-y.., Vy; A:
-• ■ ■ aaha: : AL cy
-^ )/zy o
-■ “H /11,
-H ^ i;. I "7 “^
+“I dare say, madam, that his lord ship will not detain you one minute against your will - here he comes -
 
-'
-\ 'A
-\. A ■
-\
-\ ria ■ ■ ^ ■
-CL ■ - '.
-I j
-1^, '
-I "F
-■ Of .' ■
-^ s.
-. ■■ ■ /
-• ■■• '-■ ^•: -
-.
-; H 5; --, •,
-I ^ *1 f ^.
-., L - icc: : .................
-s; cc- --
-, L v'v r i ’ -( ' •'■* •
-• >. V • ‘ ^
-.* ’5<, • ^ f, c*r ■ '■'••■
-I ■ ■ '• T; S.. ^r..y: rr r^xl" C ■
-'a<atm0rifa
-■ r! ■-■’■-• orte/. ‘r. > -- ■
-to l.ad.ria
-ah
+"What! - My Emily flying from the man who adores her? - Am I awaked? - is it Emily I see? -
 
-'i I .......
-si I cnis
-'i
-■, ‘o
-it' i ...
-‘W
-it '
-I
-»
-/
-/
-%
-#
-I
-'-. ■■'■■'". ■ ..A - ■■ ■■ ■ ■ = ". '
-‘ ■. ". ' ■-/■ a .■ ■': ■ ^ ■ :. ' -
-A ' ■- s.''. • '•: ->. ■ - -
-V •'* ' ■ ■,
-'■ •, - : • \ •
-'*# “.* I • ’ *
-■-.■■■*" V ". ■
-: ■■-■. • •. •* V" " -.
-■. ■ ■ ' ^ - _ ’ A
-'' ■• A • • ' ^ 'A
-^ ‘ • # V ^ V ^
-■ ••. • ' *
-I ' V.
-• --. r A. ',
-''' Lf A - '.. V » • ' X
-“^ - ' I '
-. r... - ‘ ^
-■ 1 i
-■ A
-, A -, ' *; ■ ^ A.
-■ ' ' ' •" ■ ^
-‘ J.: .: ■ ■ ‘ ^ • -. :. ■ ^
-■■■' ‘-■■■- ‘ ■ / -. ■ ■
-C ■ - V • ^ » •
-A. ‘ ' aa'
--- -^ -- AAA • • - •. ^
-: - r *.
-• ' ^ .-^. •. >
-va artn: C" ".
-'y., 'A; C • * - '.
-VAA';. .A.
-■A■ iaa a.. ■ -. _. _,. ( ' _
-r * ■ '■'..
-A "'■■ ■ - • '. '
-"■■ •.■■■-'■ ' ' ' K '
-AC.. ^ -. '■ * * ' ' ’,
-■■■ ' AAA.' -- ^ A‘ -: -., '. ' - - >.
-^■ L ■ ■ *
-/ CD. - s.
-.•-. - ». •-, «!•• ' f‘ IA. ■ ■ ' : N
-:; • -. .-,, >, ■; t ■. •., - '■ ' :
-. • .1 ■ •.,... ^ • - -. OL ■. V
-■• ■ ^ ' ■ -- ■■ ■■. ( f., ^ ...
-■ ■ ■ r - •..,,. > ^
-^ ' -;. V '.
-■f h' ' •. '. :. \.,, ''»♦■.
-■ -- ‘=- ■. _ \
-'- - ” J., • f .V 1s' '•’•-/•».. • • / 'I
-•'.» •- » ________ V... • 'M
-• •, ^ '. ' ' ^ -• is
-i : V i \ ■.
-* ' r t I V « C ’. y
-, ^ •., • ‘ ■ ■ ■•. »'■ t • VW » * A ■
-.. t -. :.? Tw ■... /
-5., .s ^. r
-.• ‘ X »
-'A. ..... 'f '
-•, ■ A ■ ' ' ■ ■ ■ "A.
-, ' f,,,,,.. *,
-*. *. f ' •
-. AA Ai, ■; ■• 'A. ■■
-- ^ A * A -
-'' ■. ‘ ' it ./ •
--, '• ■ - t • ' ' * * / ' ‘
-• I • f ... ‘
-S ^ ■
-■ ■■ ■■ .■.■■, ^ L ^ ^.
-• ». ’ ■ • •., ■ • .•
-V ' ' _ ■. ' * ■ • ■ ‘ ■ A A.
-/ ^. • •, • / ... ri .ft
-* S ' • ■ •.
-• p *.. ’.
-^ I ■ ■ # A V,
-,. ■ ’ * ■.;
-- V '
-u.: .-. ■. ■. A •,
--, 'A CA,,. '. ■ ■ '
-: ■ ■ ■ A : V ^ ■ ■’• - * ■ -> 'A
-. p '.i
-^ • '*
-'^ #-. *•
-. 3 ' » ' r
-'*•• • ^ •
-* II ' b
-’ A ■'- V - ' V' ' •
-«_. ^
-. ^ ^ • X ^ ^ ^. ' • *. >• ' \ • r
-. • •-. •... — •,; ... i. • ■ '
--. vc.. ' - T' ■.. ■ ' A ■ ■ •
-: .vc', .C: : ■! '■' ...
-'' ' ' '■■/■ '"’'■ ' ■■ '^
-• ■- c' v/visi.'’* •. ■ ■ '
-.T' ' • •%■ • ^. •'• *», * ' I.
-'88'' '" ''''^ ' '' ' ''''''^
-V. ‘ '' •. ' ■ ■ -: •, •
-. -- ^ • ■ ^ ' : -■ V...,
-..■; " : T. ' •n'hn' - ■... N
-V /> ' -- • •, '■ ■ j.., • ^ ■
-VC. ' ■ i ■ ■ \ ^ f ' 4. •* ■ ' ■ V.
-'■. ...; .c.‘' - ' •'■ ^_ ^ ' ... '•’• ■-'''* ■.
-■ h " n. ' '■ ■ ■ ' ■ '. • ' '. ■ “V ' ■.-. \.' : ' ■ '■
-: -. .-^■: vw.. ■'. ' .'■ '. ■ ■■•. -'•; -, : -. ■ ■
-'■ •■•*.' ■ ' - * — .• •. ■ • ■.
-( ^; n'y.^v;; ■'.
-•* > ■ ^ ■' '. '. ■ ’ - I'. -'. • ■ •: .'. •.' .F.., ••
-'' ' ••; • : 'S' ' '
-■
-■ - - C ■ ' ' fapaia fr ■■.
-■, .■'; ■aa'‘s'f".. .■. ■ - ' 'S; _; C;
-, ■ ‘ >. ' ' V/V V V V, '
-V fi .•■ i..
-■ ^-,. *,, j. V.. ^ .-,
-■ - “-.. ’ ’■. rh s'
-■. •• • ' ■ i V ' ' S'
-V V r ■., ■ ■.. •, - ■ '
-. • r ' ■ ' ' ■, ' ■ ■
-^ ‘‘ • '
-■' ' ' ' .... -
-. * * * *.. *
-■ •' ' '* ' V ■• ', '-■■■,, '■/, ■■ ■-■ "; ■., ■ i ■ ■ ■■ i
-■ •.. ■... •• *.* •
-fe' ■ ■"' ■ ^ :;, s,
-."... ■ * '■•' - ■■■ .A, ■ ' ■ ■
-■. ■ SSVA' * ■ .X- -- - -- ■
-■■ V ^ r; X; '. ln.
-r. • ^ ‘ •. •• •.
-‘.l' v' ■ ■ i; '^ •■
-■' ■■ X 'rx. AA ^.,; ■ ■■
-■ "■ • : •'■
-. ' ■■_ -■ • • riaa larir.
-• '.. ■ r • •..
-. -. r ’ ' -. ' y 1. •. •.. • I 7 •'.
-: N:; V >
-I •: '.i ■: : r ^ '
-'• » - ' I - • '. \ •
-, o ■■ - - - ■.. ‘ '•: ■.. ' ■,.
-''•. > : V... il
-'• - • ■ • ■. ■ • * ■.'•/••■ H • ./ ■' • '. - - C -. '
-.i ’ A •. ■ V. •• • -
-T ‘ ■" v/i’c ■ • t ■' .■, ' ■ *'■ '■ '■ *. .■ ■.
-*> — V: ■'«: ' '. ■ ’ - ' ’ '■ *
-~ j ■, • -. ^ ‘ ^ .*» • • ■• '
-• '""CV "" ■ V ' ■ -, ~ ^ ■ / ' V ■
-, ii ■; ■ A yf ^ rid. ■ A” ” ■
-■ y ^ ■. •? - • .• ‘^
--, - > -. ' • ■.
-• O. C ■■- -• Si '. • ' S': ' ^ TL ' ■. *
--,. -- - -. ■ -. ■,.. ■.. ■.. : : t S ‘ C' ■' ■ ' ''' I ' ' ".''S ' '* -.
-.... '; vl: v\ l _: d ■_. ■ r..
-^. ' ■ ' ' - si.,., -. " ' ■ •
-C ■. \ ' ■:.; •• \,... X
-'' ■' " ^ ' '
-'■''' ' : I '. " ■ ■ ' i V' V,,
-'% •■*■ •.
-r V - ■ •, ■ ‘ • ■ *'
-'• '■ ' ■ •*-. *.
-■> - .* ■ c 1. ‘ - ' ■ e.' * -.
-•' • *’ * -• ’ • •* — .1^ N *. '’
-": ■■■ .- : v y • ' •. »'• * •..'•■-• • *, ■.;
-■- y • - - V ■ • ' ■ •••■-.
-yv'• :. • ■■. .!' ^ ■ ■
-sa - ■... ^.. ' '
-- y' *'.
-^ ' " - i ’. ■', s ■■. .n ar.
-i - : I ■/ :,. '
-: Lv^h --; ai yy/s; " Ty ■ V
-S ‘ yc'wn; /., v ryi N: '"-.. IV ■ '.. yy‘. y; y .y;;
-/ ' ■... •' > • „, ..'y, y ^ ^
-■ f F H : ■ •. •,
-. V /• ■• ■ - 'W
-.. h '. ■. ■. / V aan A... •... ‘ ^
-':. -.. ^ ^. '1 ' ■ ' V
-’ .NN • -* V ’ ‘ ■, ■.. 1 ‘
-. -. ■ • - ■ I
-* ‘.. ' V V, • ‘. .J
-■ ' ■ ' ‘ ‘ \ V J ■ ' ' '
-■ ■ - ■■■ ^..., : ■ ■ IV -.
-TUN... ..-. '.D. ^
-- Sw'n A. ns. -. ■ ■. ■: ■. cvv. v:, .vrv' wv - ■
-.; ' i SO -• ^ ■ y ■ * ^ • • - ■.
-, N.: .' 'f ■- - ■••! ' - - - • ■. ■ - ^.. '. ' -
-'i - ' * : ■ I ' '- ' -
-,. ' r * •/.'*'. -^ • C nw
-• - - r....,.. • ... •
-. ' y..; : '..; :.. - vscs • 'te
-/ ■• .sky ■■ ' ■
-.■. -- Svy : :, V y.. •,, ',,; ■ y
-^ L ■' '•* -. ' ‘. - ■ f •, .•, ■-• .t T
-- ' V ' f ( ** ■ AI; ' '•
-**. " ■: ■.': ■-■•■■'> :.. .NTS' .i
-A ■ ' ■ 't^yyn, f ^ : .D ■.■, .y
-'. • :..; - yy y' ' ■, •■... *.
-r .- N:.,..; y ' / ••
-■ Nh y S : SN; A‘ ■ V yv, of,, V ‘ ' .'A
-'■'■ “A. -- y;. ■ ^; y; ^^ ‘ ^
-''A '* > -. ‘ ■ V S
-A: .L y- --. ' yv' -,. '. V. ^
-y ■ - ._ -- j;; AY ■ '■ :?, ' » \ V '
-Sy~v ‘y y Nt'y ' v.’ " \ *’ f ' 'A ^ '
-■ - I' ' ' I ' - '. ■ ^
-.vw’ • .'SI.. J. -.. - • .*.. _ •
-»
-\
-%
-€
-/
-y
-4
-\
-%
-/
-%
-%
-♦ «
-♦
-[
-%•
-♦ ^
-4
-I ^
-$ «
-%
-S
-m
-0> *
-THE
-0
-palinode.
-I
-V
-%
-!
-\
-»
-%
->
-M
-e
-N
-/
-;
-\
-/
-/
-N
-N
-/
-* f
-V
-I
-I
-f ' ■
-* :
-V
-• f‘..
-*
-4
-\
-I
-\
-\
-\
-T
-i
-'' »
-\
-•>
->
-N
-: •
-'i
-#
-\ *
-I
-*
-/
-/
-/
-I
-THE
-/
-• A L I N O D E;
-0
-OR, THE
-TRIUMPHS
-O F
-s.
-I R T U E OVER LOVE:
-I
-\
-< A Sentimental
-NOVEL.
-n which are painted to the Life the gha rafters and Manners of Some of the most celebrated beauties in England.
-5ymr. TREYSSAC de VERGY*
-V O L II
-LONDON: '
-•inted for G. Woodfall, Chaiing crofs, and T. Evans, No. <4.4 Paternoster-row,
-^ .IT ^
-\
-%
-W
-/
-$
-\
-/
-♦
-X
-A
-1
-/
-*
-\ i
-t *
-✓
-Mte.., V, > •
-V
-I
-4
-.
-\
-»
-I ". '
-V
-V
-9
-\
-i
-S
-s
-00
-♦
-LETTER I. •
-jokt^ Rambler, esq, to Sir Francis
-Croslev.
-WFI E N lord W — had
-finished the moving history of the disgraceful part, V hich pashon had forced him to adl,
-I involuntarily exclaimed --
-My lord, you have been more lucky than wife.” — —
-t
-I
-vol. II B His
-• f
-[ 2 ]
-His lordship Smiled.
-“I own. Rambler, that I have been very inconsiderate : but, of my actions which do you blame the most? — — —
-9
-“Your attempt against miss Clin
-♦ • “
-ton’s honour. — — — —
-j
-“You are right; for had I been Successful, I might not have had the generosity to be just to Emily. ' Grati
-tilde. Rambler, Seldom follows enjoyment — the woman who has made us
-happy, is too often, like a troublesome creditor, the object of our aversion. The vaineness of my attempt has endeared Emily to me — now, I know her worth; before, I was uncertain of it —
-her
-m'
-[ 3 ]
-her behaviour has proved her virtue beyond the power of words. —
-“The odds were So much against her, my lord! A woman — a tender woman in the circumstance you have So feelingly related — she triumphed! I congratulate you upon her victory“
-“have, as you Said, Rambler, been more lucky than wise. -- -- --
-“After Such a trial, my lord, you mav boast a virtuous wife. -- --
-“The woman who has not been
-tempted, is hardly praise worthy
-Her virtue has no more reality than the honesty of a man, whom avarice, hath
-2 red,
-L 4 j
-red, or ambition, never incited to be base. -- -- --
-‘‘ Except those, whom age, stupi dity, or extreme ugliness Secure against
-the flattery of men, what woman has not every day her own desires to Subdue, or a powerful tempter to resist? — ■
-%
-“Temptation, Rambler, has more or less power according to the degree of our Sensibility. Desire does not So forcibly actuate one woman, as it does another — that difference is the thermometer of my esteem of female honour. I respedt the woman, whose behaviour declares her modesty; but I com mend that only, who, under the despotic Sway of love, or of the want of
-^ ' i
-pieafure, continues a faithful devotee
-'^ to
-✓
-L 5 J
-to virtue — the former is indebted to
-k
-indifference for the regularity of her conduct— — latter to the sense of her duty. —
-“I am afraid, my lord, many are not the women of that character— — - — ■
-“of their number from the few, who are openly charged with libertinism— —
-/
+And I feigned the greatest amazement. Emily was too sensibly affected with the miscarriage of her favourite scheme to answer me. She cast her eyes down, and the sighs she involuntarily breathed were marked with grief.
 
-Discretion, my lord, may Save thousands from fiaader. — - —
+“Are not the indiscretions of a lover excused by the beauty of his mistress? - Were I constantly decent and respectful, what idea could you entertain terrain of my passion for you? - Your virtue is too severe, Emily -
+
+“Yours, my lord - but you have none - I mistook your character -
+You have made a wretch of Emily -
+
+And some tears stowed over her lovely bosom. 
+
+“Those tears are an insult to my honour -
+
+“You honour! - You dare to talk of honour! - prostitute not that
+sacred word - Alas! that I should speak such a language - speak it without injuring you! -
+
+"Reserve this pathetic, Emily, for your interview with your mother - This is not a proper time to rehearse it -
+
+“Add not raillery to abuse - you are already but too contemptible -
+
+“You will give me leave, Emily, to differ from your opinion - I have been guilty of many follies and errors, but never of meanness.
+
+"What right have you to detain me here? -
+
+"You have been committed to my care.” - 
+
+The hue of indignation flushed up into her face. -
+
+"How bold and shameless!" -
+
+I thought it then a seasonable time to be displeased in my turn.
+
+"Madam, my impertinence deserves not such an effusion of contempt - Will you go to Lincoln, or return to London - Choose which you like the best -
+
+"To London, my lord -
+
+“With all my heart, madam - I’ll see you safe at home.” -
+
+And turning from her, with the air of indifference, I ordered my chaise to be got ready. Emily’s anger began to abate: she alighted, and passed into the parlour, where she sat pensive and melancholic. I crossed the parlour, and affected to take no notice of her. A few minutes after, being told that the carriage was at the door, she followed my valet de chamber. Surprised at my not following her, and at thp order given to the postilions to set out, and take the road to London, she called to them to stop.
+
+“Where is my lord?" -
+
+Being answered I was in another chaise, she concealed her displeasure under the mask of content,
+
+“To London, my friends, cried she to the drivers -
+
+“Yes, madame." -
+
+And they drove to Lincoln.
+
+---
+
+## LETTER XXIII. 
+
+As Emily had rode above three hours in the dark the night before, I was in hopes that she would not perceive the deceit put upon her; but an unlucky post erected in a cross way betrayed me. Reading distinctly upon it road to Lincoln, her panic terrors changed into a real fear. She insisted upon my coming to her. 
+
+“Read, my lord - Will you boast your honour again? -
+
+"What? is it but this minute you discovered we were posting away to Lincoln? - Upon my word, madam, your surprise wrongs your understanding. - Have I not told you that your mother expects you at Lincoln? You despise me indeed, if you think I could take upon me to give her up to the mortal anxiety of waiting in vain for your arrival. What would not be her anxiety had I complied with your caprice? - I neither can nor will punish
+Mrs. Clinton for the injustices of her daughter - When I have delivered you into her hands, madam, no longer shall you see me. I am too proud to bear with an usage I do not deserve.” - 
+
+Then bowing respectfully, and drawing a few paces back, I beckoned to the post-boys to go on, Emily turned her head to wipe an involuntary tear. - 
+
+“My lord? -
+
+"Madam? -
+
+"Madam! am I no more your Emily?" -
+
+The tone of her voice had a seduction, which I did not attempt to resist. I opened the door of the chaise, and sat near her. Emily’s half blushes and half smiles telling plainly she resented my behaviour, and loved me, I had the discretion not to speak one word that might recall the past into her mind.
+The dignity of her deportment struck my heart with remorse - fearing her virtue should force her to hate me, when not finding her mother at Lincoln, she would in me see a villain instead of a man of honour, I resolved to tell her the truth, but to colour it in a manner as to avoid her hatred, though I could not her indignation. After we had taken fresh horses at the last stage, I artfully confessed my sin, humbly begged for absolution, and swore a most Sacred oath to bring her back to her parents, if in a fortnight I could not obtain the consent of my uncle, or to wed her, should she not disdain to give her hand to a man, who had no fortune to boast. The amazement of Emily was not so great as I expected; she listened calmly, and as calmly answered me.
+
+“After the last night’s incidents, my lord, and the numberless impostures you have been guilty of, I cannot trust to your word - if your happiness is wrapped up in mine, hesitate not to return to London to free my parents of the sorrow they will be oppressed with, if they do not see me today - I love them; make them not miserable - prove me by your compliance that passsion only has made you imprudent and criminal - My father is rich, he will never say No to his daughter when my inclination shall point you out to him for the husband I have chosen -
+
+"Will his riches be a compensation for the loss of fifteen thousand pounds a year? No, dear Emily: I love you too much to beggar you of a life of greatness and pleasure - I shall leave you at W----- hall in Yorkshire, whilst I'll come to solicit the approbation of lord C-----
+
+"His approbation I will wait in London -
+
+“He will give it the sooner that your reputation may suffer by his denial - Lord C----- is the most humane and generous of men - Pride is the only foible I suspect in him - and possibly my fears only have caused that suspicion - many noblemen are so foolishly infatuated with their birth. So averse to a marriage beneath their rank, that I never durst reveal to him myinclination for you - I was wrong; a man of his sensibility cannot be surely tainted with a ridicule which owes its birth to folly - Dear Emily, since you love me, for your own sake, I must  disobey you - Write to your family from Lincoln - your absence may be kept a Secret.” -
+
+Emily Seemed to yield to my advice; - Soon the appearance of three gentlemen on horseback declared her dissimulation. When they came near enough to be heard, she called for help - they immediately rode to the chaise, but my valet de chamber telling them that his mistress was troubled with vapours, they galloped away.
+
+"The cowards, cried Emily! - My lord, you see I am determined to leave you -
+
+“I'll take care you shall not - From that moment the blinds were pulled down, and we remained silent. Hearing a carriage riding by, she cried out with all her might - Lord C----- came to her relief - happy, the happiest of men has this unexpcted event
+made me - Emily has forgiven - May you, Sir, meet an Emily, and be more worthy of her than I!” -
+
+END of THE FIRST VOLUME.
+
+---
+
+<a id="half-title-page" />
+
+<p class="centered large">THE<br>
+PALINODE.</p>
+
+---
+
+<a id="volume-ii" />
+
+<a id="full-title-page" />
+
+<p class="centered large">THE<br>
+PALINODE:<br>
+OR, THE<br>
+TRIUMPHS<br>
+OF<br>
+VIRTUE OVER LOVE:</p>
+
+<p class="centered">A Sentimental
+</p>
+<p class="centered large">NOVEL.</p>
+
+<p class="centered">In which are painted to the Life the Cha-<br>
+racters and Manners of Some of the most<br>
+celebrated beauties in England.</p>
+
+<p class="centered">By MR. TREYSSAC DE VERGY.<br>
+VOL. II.</p>
+
+<p class="centered">LONDON:</p>
+
+<p class="centered small">Printed for G. Woodfall, Charing-Cross, and<br>
+T. Evans, No, 54, Paternoster-Row.</p>
+
+---
+
+## LETTER I.
+
+John Rambler, Esq; to Sir Francis Crosley.
+
+When lord W----- finished the moving history of the disgraceful part, which pashon had forced him to act, I involuntarily exclaimed - 
+
+"My lord, you have been more lucky than wise.” - 
+
+His lordship smiled.
+
+“I own. Rambler, that I have been very inconsiderate: but, of my actions which do you blame the most? -
+
+“Your attempt against miss Clinton’s honour. - 
+
+“You are right; for had I been successful, I might not have had the generosity to be just to Emily. Gratitude, Rambler, seldom follows enjoyment - the woman who has made us happy, is too often, like a troublesome creditor, the object of our aversion. The vaineness of my attempt has endeared Emily to me - now, I know her worth; before, I was uncertain of it - her behaviour has proved her virtue beyond the power of words. -
+
+“The odds were so much against her, my lord! A woman - a tender woman in the circumstance you have so feelingly related - she triumphed! I congratulate you upon her victory. -
+
+“I have, as you said, Rambler, been more lucky than wise. - 
+
+“After such a trial, my lord, you may boast a virtuous wife. - 
+
+“The woman who has not been tempted, is hardly praise worthy
+Her virtue has no more reality than the honesty of a man, whom avarice, hatred, or ambition, never incited to be base. - 
+
+"Except those, whom age, stupidity, or extreme ugliness secure againstcthe flattery of men, what woman has not every day her own desires to subdue, or a powerful tempter to resist? -
+
+“Temptation, Rambler, has more or less power according to the degree of our sensibility. Desire does not so forcibly actuate one woman, as it does another - that difference is the thermometer of my esteem of female honour. I respect the woman, whose behaviour declares her modesty; but I commend that only, who, under the despotic sway of love, or of the want of pleasure, continues a faithful devotee to virtue - the former is indebted to indifference for the regularity of her conduct - latter to the sense of her duty. -
+
+“I am afraid, my lord, many are not the women of that character. -
+
+“Judge of their number from the few, who are openly charged with libertinism. -
+
+"Discretion, my lord, may save thousands from slander. -
+
 “An English woman has no art. Rambler; in her motions or upon her
-features, are marked the passions of her
-heart." *.....
-• ^
-“I would
-I f
-/
-/
-[ 6 1
-“I would not trust to their expression
--- -- -- Ingenuity is often a refinement
-of art. — «
-“With courtiers, not with lovers Rambler. — —
-“Was you not deceived by the caresses of Emily —
-“self-love, I own, betrayed me intij a foolish credulity. — —
-“Who is free of self-love? — how of
-* does it not bid reason away, and ‘ form our judgments? — Oh! my
-* lord, it is not So easy to read woman!
-< — would I shad the key of her heart! ‘ who has it? nobody. — —
-&
-t
-\
-t 7 ]
-1
-A Servant coming to let us know that
-lord C -- -- -- -- waited for us, we hastened
-to the Inn. On our entering the room where his lordship was with Emily, he took her by. the hand, and casting a glance of indignation at his nephew— — — —
-/
+features, are marked the passions of her heart. - 
 
-“There, Emily, is the man, whose
-I
-tongue, since he left London, has not
-uttered one word of truth — who at his
-$
-looks would not take him for a man of honour ^ — Come here, sir, fall on your
-knees before this injured beauty -- -- -- -- -
-at what School did you learn to be
-false? -- -- -- -
-\
-“At the School of necessity, my
-/
-lord. -- -- -- -
-— w
-“That
-I 8 3
-That necessity was your own work — you are doubly criminal — Emily, forgive him not -- 'let him first prove himself
-worthy of your pardon — make him buy it by six months of Sorrow — it is in your power to punish.
-For that very reason I must forgive — your kindness to me forces me to forget his wrongs. —
-“You may repent your generosity, Emily -- -- --
-“She never shall, my lord; I am sincerely Sorry for the past — — the behaviour of the husband will compensate for that of the lover. — Your virtues
-V
-and those of Emily, stxall become my:
-'own
-%
-r 9 ]
-own — It v*?ill be my Sole study to de serve her love, and your esteem. — —
-V
-You believe him, Emily.
-“I do, my lord. -- -- -- --
-V
-“So guilty, and yet So readily acquitted— — shall not have her indulgence — you have too wantonly trissed with emily’s happiness, not to Suffer
-for it -- she shall not be your wife till
-I am convinced that passion only lead
-/
-you astray — My respeft for her bids me
-«
-to be Severe — your conduct, and not your words will I credit — if in a month
-J
-I have no doubts of your probity, Emi
-V
-ly shall be yours, — -- -- -
-t ‘ My
-/
-%
-I
-/
-V
-[ 10 ]
-“My lord, repeal your Sentence, or I shall be the most miserable f men — a month! Such a punishment for a fault, which it Seems, a propitious God
-9
-made me commit, that Emily and I
-r
-might be happy! — You rather should reward me for a fault, which gives you an opportunity of obliging -- -- against
-me only will you be the reverse of your
-«
-— I know that the delay of ihy happiness will be a torment to you — ' for your own Sake repeal your Sentence — you Smile -- -- -- -1 am forgiven— — '
-♦
-“more of that chattering nonsense
-— let us have Some refreshment —
-1 - ■ '
-“The month, dear Emily, will dwindle into a week — that week will
-be an age to my impatient soul -- -- -- --
-\
-your
-C II j
-your good nature has added to your
-beaisty and my love -- -- -- -- let me thank
-you.” — —
-/
-\
-And he thanked her upon her lips
-t
-I
-s
-The presence of the waiters put an
-end to his gratitude, and the blushes
-0
-of Emily: After a light repast, a post coach was ordered, and we Set out for
-Elverton Castle.
-* ^ 0
-\
-i
-\
-%
-a
-I
-§
-4
-L E t:
-t
-*.
-C 12 1
-?
-* \
-. ►
-LETTER II
-i
-T O R D C » — gazed upon Emily with the eye of a tender parent, who had uriexpedledly rescued his only favourite daughter from the hands of
-4
-an inhuman ravisher — Emily looked, and Spoke all the feelings of a heart delicately sensible to the generosity of her benefadlor. Often did the tear of joy trickle down her cheeks — that tear
-I.
-lord C -- -- answered with the language
+“I would not trust to their expression - Ingenuity is often a refinement of art. - 
+
+“With courtiers, not with lovers Rambler. - 
+
+“Was you not deceived by the caresses of Emily? -
+
+“Self-love, I own, betrayed me into a foolish credulity. - 
+
+“Who is free of self-love? - how often does it not bid reason away, and form our judgments? - Oh! my lord, it is not so easy to read woman! - would I shad the key of her heart! who has it? nobody. -
+
+A servant coming to let us know that lord C----- waited for us, we hastened to the Inn. On our entering the room where his lordship was with Emily, he took her by the hand, and casting a glance of indignation at his nephew -
+
+“There, Emily, is the man, whose tongue, since he left London, has not uttered one word of truth - who at his looks would not take him for a man of honour? - Come heresir, fall on your
+knees before this injured beauty - at what school did you learn to be false? -
+
+“At thesSchool of necessity, my lord. - 
+
+"That necessity was your own work - you are doubly criminal - Emily, forgive him not - let him first prove himself worthy of your pardon - make him buy it by six months of sorrow - it is in your power to punish. - 
+
+"For that very reason I must forgive - your kindness to me forces me to forget his wrongs. -
+
+“You may repent your generosity, Emily - 
+
+“She never shall, my lord; I am sincerely sorry for the past - the behaviour of the husband will compensate for that of the lover. - Your virtues and those of Emily, shall become my own - It will be my sole study to de serve her love, and your esteem. - 
+
+"You believe him, Emily? - 
+
+“I do, my lord. -
+
+“So guilty, and yet so readily acquitted! - I shall not have her indulgence - you have too wantonly trissed with Emily’s happiness, not to suffer for it - she shall not be your wife till
+I am convinced that passion only lead you astray - My respect for her bids me to be severe - your conduct, and not your words will I credit - if in a month I have no doubts of your probity, Emily shall be yours. -
+
+“My lord, repeal your sentence, or I shall be the most miserable f men - a month! Such a punishment for a fault, which it seems, a propitious God made me commit, that Emily and I might be happy! - You rather should reward me for a fault, which gives you an opportunity of obliging - against me only will you be the reverse of yourself? - I know that the delay of my happiness will be a torment to you - for your own sake repeal your sentence - you Smile - I am forgiven. -
+
+“No more of that chattering nonsense - let us have some refreshment —
+
+“The month, dear Emily, will dwindle into a week - that week will
+be an age to my impatient soul. - your good nature has added to your beauty and my love - let me thank you.” -
+
+And he thanked her upon her lips.
+
+The presence of the waiters put an end to his gratitude, and the blushes of Emily. After a light repast, a post coach was ordered, and we set out for Elverton Castle.
+
+---
+
+## LETTER II.
+
+Lord C----- gazed upon Emily with the eye of a tender parent, who had unexpectedly rescued his only favourite daughter from the hands of an inhuman ravisher - Emily looked, and spoke all the feelings of a heart delicately sensible to the generosity of her benefactor. Often did the tear of joy trickle down her cheeks - that tear lord C----- answered with the language
 of concern and tenderness.
-“Long ago, charming Emily, I knew the inclination of my nephew for
-you —
-[ 13 ] '
-you — like a guardian angel I watched
-I
-over his steps -- -- was pleased he loved
-a woman of your beauty and merit -- -- -- -
-it was I who armed you against his fe dudtions -- - — do you remember a card you received — -- -- --
-“It was you, my lord, who wrote that card! -- --
-“Yes, Emily.” -- -- - — ■
-\
-She dropped on her knee, and carryi ' ing affedionately his hand to her lips, would talk her sense of his goodness, and could not express it -- -- --
-t
-Lord O' — — pressed her;, to his boi
-, 4
-fom.
-#
-Emilyj
-[ H ]
-“Emily, thank me not — — my happiness being centred in yours, self-interest bid me to put you on your
-guard -- -- -- had you fallen a vldlim to
-the passion of lord W -- -- -- --, I would
-have been miserable -- -- -- -- never would
-I have forgiven him -- -- -- -- never would
-I have embraced you as my niece — — but once, you have told me, he has
-been guilty of an attempt against your honour —
-%
-“I loved Emily with too much sincerity, not to respedt her, cried lord
-yi -- -- -- -; till last night — forget that
-night, Emily -- -- -- 1 never offended —
-“Your discretion, nephew, has a claim to my favour_ i had interpreted
-the Secret you made me of your passion
-in
-*
-r >5 j
-in a way disgraceful to your charaflef -- -- -1 owe you a reparation for the injustice I did you, and a reward for deserving my esteem — —
-*
-“What a noble Soul you poffess, my lord! stammered Emily, bedewing his hand with her tears.
-“Lord W -- -- -- -- -, let it be the Sole
-care of our life to make him happy —;
-I
-“Never cease to love one another — i
-j
-♦
-your constancy will bless me” -^ —,
-9
-This new Scene, Francis, increased
-my respedt for lord C -- -- -- -. I beheld
-him with an admiration, which he could not help observing,. .j
-Next
-pni.i -»
-[ i6 I
-“Next to my nephew. Rambler, you are the man I love best -- -- -- -- -- 1 wish
-I
-you Such a wise as Emily -- -- -- -- -- did you
-know the trials her virtue has gone
-0 «
-through, you would have a decisive argument against the contempt the libertine have of her Sex.
-I
-\
-“Lord W -- -- -- -- -, my lord, has made
-me his confident. miss Clinton is an inestimable treasure : I congratulate you both upon the possession of it. You wish me an Emily for wife! — you have, my thanks for that wish; but I fear Such an amiable and virtuous woman is
-a rarity Seldom to be met within an
-\
-%
-age devoted to pleasure, dissipation, and gallantry. Whem every class in Society vies each other in pride and luxury, an Emily is as Scarce a good, as disinterestedness
-4
-f. >7 j
-cdhess among the lawyers, or learning with the dignitaries of the church.
-A
-“Your prepossession against women, Rarnbler, is too obstinate not to be the fruit either of education or experience : justify to Emily your Satire of her Sex,
--- -- you adu too naturally the part of a
-fine gentleman, not to have been used
-to it before I Saw you -- -- -- -- long ago I
-have suspedted you to be born in a rank
-Superior to that in which you have appeared in my family -- -- -- -- if any misfortune
-obliged you to disguise your real Situation, you have now no reason to conceal it — tell us ingenuoufiy what you was, and why you think Emily Such a rarity,
-«
-«
-I
-U
-%
-t i8 3
-“I should be unworthy the favours
-you have bestowed upon me, my lord,
-\
-did I not instantly Satisfy your curiosity. I was brought up at Oxford, in queen’s college —
-“At Oxford! exclaimed Emily with furprise, and joy in every feature, and
-%
-your name is Rambler? — •
-It is, madam.'« i
-\
-“How propitious this day! — .what ' was your father?
-“An honest West-india merchant, whom the loss of two ships made a beggar, and obliged to leave England. — Whence your astonishment, madam, did you know my father? —
-• “Yes
-1
-/
-f '9 1
-Yes, Sir — The pleasure of Seeing lis Son, whom my parents believe to be lead, has 'thrown my Spirits into an inspeakable agitation — be pleased, my ord, to order the carriage to stop — * am almost faint — be not frightened, [ear W —, in a few minutes I shall )e well again -- -
-“What am I going to hear? Said I 0 myself.”
-■F*
-Fear and hope kept my Soul upoii
-he wing of mortal fu Spence -- -- -- -- my
-nxiety did not last long.
-“Would I had known you when I
-rote to London! I have been since So
-$
-ull of my own happiness, that, though have heard your name twenty times, ’
-it
-I
-i [ 20 ]
->-
-•> 4
-i
-J it never attracted my attention. — I ha
-i %
-V
-1 both and happy news to import
-C ' you. Sir, — you have a father to moui
-and a fortune to enjoy —
-F
-V
-My father is dead ?lad, I
-I indeed is the news!
-♦'
-'«•
-/
-. j
-< '■ i
-S And nature forced tears from r
-V eyes. Sorrow clouded immediately t
-LI
-brow of lord C -- -- -- --; he took me
-his arms, and shed a Sympathetic teai he did not attempt to reason me ir
-'VI
-calmness, but with me bewailed r
-»
-loss. My grief, Francis, was f cere: the virtues of lord C — h
-■ gradually pasfed into my heart -- -- -- -1 f
-C as he would have felt had he been
-f the situation I was — —; w0uld yot
-'A frequt
-'A -
-: T
-- ■
-[ ] I
-quent but virtuous men, they would |
-an honour to humanity I .I ■
-P''
-###### ^>1
-I
-Jkt
-M
-V. faster
-half an hour of real fadness, I V
-•. ^
-ired Emily to tell me the particulars, |
-V ’
-my father’s death. |
-v •
 
-The capture of his two ships by i
-1 ' *
-__ Sh
-: French, broke the heart of Mr. $
-^ • V kv
-mbler. He had not been a week at
-->**
-•tterdam, when a malignant fever b
-.* • \
-him to his bed. In one interval ^
-O'.
-his fits she wrote to'my father, with .A
-r
-I •
-om he had been intimate for more 11
-■* •
-, n twenty years, and implored his %
-mdship and protection for his Son. m
-I the reception of his letter, my father
-• mm
-pped into his wife’s apartment, where
-r then ^
-✓ •
-M .1.
-[ ]
-1 then was. Affliction reigned visib
-in his countenance -- -- twice he wou
-read that letter -- twice the words e
-V
-pired on his lips -- -- -- my mother ai
-I were motionless on the chairs we si fearful to ask for the cause of his a guilh — still more fearful to hear it. j last gathering Some strength, throu< the apprehension of making us parta’ too Sensibly of his grief, he announc( us the approaching end of Mr. Rar bier’s life.
-/
-Clara, he recommends his Son to m
-look upon him as your own -- -- -- Emil
-consider him as a brother — the last i
-quest of my old friend shall not be d nied -- -- it is but a debt I acquit, hi
-been in his circumstances, and he
-mir
-y
-[*3 3
-line, Clara, Emily, he would have roteded, and made you happy.
-We promised to love you; a ray S joy brightened the features of.^my enerable parent, and relieved his op reffed heart.
-“My father Sent a servant to ox ird — let me. Sir, draw a veil over the istress he felt, when he was told that Qur fate was absolutely unknown thought I should lose the best of
+“Long ago, charming Emily, I knew the inclination of my nephew for you - like a guardian angel I watched over his steps - was pleased he loved a woman of your beauty and merit - it was I who armed you against his seductions - do you remember a card you received -
 
-lers — it is enough to paint the situation
-%
-e was in — letters were Sent to all his
-irrespondents in the country -- -- enqui
-es made in all Sea ports -- -- every me
-lod, which real interest could Suggest) discover you, was made use of — -
-lany tears. Sir, have you made stow
-from
-[ 24 ]
-I
-from my eyes— — father________i must
-forget those minutes of horror and misery— — have found my brother; I will now but rejoice — — let me in this Salute confirm the Sentiments I vow to enter tain for you— —
+“It was you, my lord, who wrote that card! -
 
-‘‘ Tender, generous Emily! — dear Sister!”
-/
-m
-y
+“Yes, Emily.” - 
+
+She dropped on her knee, and carrying affectionately his hand to her lips, would talk her sense of his goodness, and could not express it -
+
+Lord C----- pressed her to his bosom. 
+
+“Emily, thank me not - my happiness being centered in yours,, self-interest bid me to put you on your guard - had you fallen a victim to the passion of lord W-----, I would have been miserable - never would I have forgiven him - never would
+I have embraced you as my niece - but once, you have told me, he has been guilty of an attempt against your honour -
+
+“I loved Emily with too much sincerity, not to respect her, cried lord W-----; till last night - forget that night, Emily - I never offended -
+
+“Your discretion, nephew, has a claim to my favour - I had interpreted the secret you made me of your passion in a way disgraceful to your character - I owe you a reparation for the injustice I did you, and a reward for deserving my esteem -
+
+“What a noble soul you poffess, my lord! stammered Emily, bedewing his hand with her tears.
+
+“Lord W-----, let it be the sole care of our life to make him happy -
+
+“Never cease to love one another - your constancy will bless me” -
+
+This new scene, Francis, increased my respect for lord C-----. I beheld him with an admiration, which he could not help observing. 
+
+“Next to my nephew, Rambler, you are the man I love best - I wish
+you such a wife as Emily - did you know the trials her virtue has gone through, you would have a decisive argument against the contempt the libertine have of her sex.
+
+“Lord W-----, my lord, has made me his confident. Miss Clinton is an inestimable treasure: I congratulate you both upon the possession of it. You wish me an Emily for wife! - you have, my thanks for that wish; but I fear such an amiable and virtuous woman is a rarity seldom to be met within an age devoted to pleasure, dissipation, and gallantry. Whem every class in society vies each other in pride and luxury, an Emily is as scarce a good, as disinterestedness among the lawyers, or learning with the dignitaries of the church.
+
+“Your prepossession against women, Rambler, is too obstinate not to be the fruit either of education or experience: justify to Emily your satire of her sex. - you act too naturally the part of a fine gentleman, not to have been used to it before I saw you - long ago I have suspedted you to be born in a rank superior to that in which you have appeared in my family - if any misfortune obliged you to disguise your real situation, you have now no reason to conceal it - tell us ingenuously what you was, and why you think Emily such a rarity.
+
+“I should be unworthy the favours you have bestowed upon me, my lord, did I not instantly satisfy your curiosity. I was brought up at Oxford, in Queen’s college - 
+
+“At Oxford! exclaimed Emily with furprise, and joy in every feature, and your name is Rambler? —-
+
+"It is, madam. -
+
+“How propitious this day! - what was your father?
+
+“An honest West India merchant, whom the loss of two ships made a beggar, and obliged to leave England. - Whence your astonishment, madam, did you know my father? -
+
+“Yes, Sir - The pleasure of seeing his son, whom my parents believe to bedlead, has thrown my Spirits into an inspeakable agitation - be pleased, my lord, to order the carriage to stop - I am almost faint - be not frightened, dear W-----, in a few minutes I shall be well again - 
+
+“What am I going to hear? Said I to myself." 
+
+Fear and hope kept my soul upon the wing of mortal suspence -my
+anxiety did not last long.
+
+“Would I had known you when I wrote to London! I have been since so full of my own happiness, that, though have heard your name twenty times, it never attracted my attention. - I have both sad and happy news to import to you. Sir, - you have a father to mourn and a fortune to enjoy -
+
+"My father is dead? - sad, sad indeed is the news!
+
+And nature forced tears from my eyes. Sorrow clouded immediately 
+brow of lord C-----; he took me his arms, and shed a sympathetic tear - he did not attempt to reason me into calmness, but with me bewailed loss. My grief, Francis, was sinere: the virtues of lord C----- had gradually pasfed into my heart - I felt as he would have felt had he been the situation I was - would youth frequent but virtuous men, they would be an honour to humanity!
+
+After half an hour of real sadness, I desired Emily to tell me the particulars of my father's death. 
+
+"The capture of his two ships by the French, broke the heart of Mr. Rambler. He had not been a week at Rotterdam, when a malignant fever him to his bed. In one interval of his fits she wrote to my father, with whom he had been intimate for more than twenty years, and implored his friendship and protection for his son. On the reception of his letter, my father stepped into his wife’s apartment, where I then was. Affliction reigned visible in his countenance - twice he would read that letter - twice the words expired on his lips - my mother and I were motionless on the chairs we sat, fearful to ask for the cause of his anguish - still more fearful to hear it. At last gathering some strength, throu< the apprehension of making us partake too snsibly of his grief, he announced us the approaching end of Mr. Rambler's life. 
+
+Clara, he recommends his son to me, look upon him as your own - Emily consider him as a brother - the last request of my old friend shall not be denied - it is but a debt I acquit, had been in his circumstances, and he in mine, Clara, Emily, he would have protected, and made you happy.
+
+"We promised to love you; a ray of joy brightened the features of my venerable parent, and relieved his oppressed heart.
+
+“My father sent a servant to Oxford - let me, Sir, draw a veil over the distress he felt, when he was told that your fate was absolutely unknown - I thought I should lose the best of fathers, it is enough to paint the situation he was in - letters were sent to all his correspondents in the country - enquiries made in all sea ports - every method, which real interest could suggest discover you, was made use of many tears. Sir, have you made flow from my eyes - my father - I must forget those minutes of horror and misery - I have found my brother; I will now but rejoice - let me in this salute confirm the sentiments I vow to enter tain for you -
+
+"Tender, generous Emily! - dear sister!”
+
 And I returned the friendly caress.
-t
-“Nephew, cried lord C -- -- -- -- in a
-rapture, by the pathetic action of Emily, thy folly has been productive of
-'much good -- -- -- -- -1 will rather praise than
-condemn thee for it -- -- -- thou angelic
-creature, addressing himself to Emily,
-1 will adore thee for thy Sensibility •
-are not worthy of thee — thou enoblest
-/
-r, 25 I
-blessed my house with thy ingenuity and
-virtues -- -- -- Rambler, thou has got a
-father and a Sister, who amply compensate for the loss thou hast Sustained -- -
-be that loss for ever obliterated from
-4
-thy mind -- -- Emily is thy Sister! -- -- no
-more of Sorrow — away with tea- -- -- -- -- -- -
-pleasure and happiness belfor the future
-the Sole attendants upon us -- -- --
-this day, I will mark as one of the happiest days I have lived — how many lucky events in a few hours! — 2: ood God! — -
-o
-I thank you for your favours — they are
-above my deserts, and most Sanguine
-• '. ^ ' expeoiations! — lovely Emily, if you
-have still Something to relate, go on —
-V
-A
-%
-“I Said, I had happy news to impart.
-%
-vol. II C “You
-%
-[ 26 ]
-” You have already, by adopting me for your brother —
-I *
-“This is but a Sentimental happi ness, answered Emily with a Smile — — to fortune you are indebted Sora more Substantial biiss — —
-#
-“My heart tells me, Emily, that I shall enjoy the former with a greater
-delight -- -- -- your friendship I prefer to
-riches —
-I
-%
-“Brother, you possess both. — Three
-*
-weeks after we had learn’d Mr. Rambler had ceased to live, the captain of one of his ships came to visit my father. Surprised at the sight of a man he thought a close prisoner in France, he ashed
-hirh
-«
-[ 27 ]
-him whether he had made his escape, or been exchanged?
-\
-“An English man of war, answered the captain, retook us from the privateer, within twenty miles of Bayone —
-“Heaven! what do I hear! — the ships are not lost?
-V
-“They are Safely arrived in the river. Hearing at gravesend of Mr. rambler’s death, and that he had left his Son to your care, I came immediately to receive your orders.
-\
-Had my father been certain you lived, he would have been overjoyed at this unexpedled turn of fortune in your favour; but conscious from the inessi
-C 2 cacy
-\
-[ 28 ]
-cacy of his research,, that despair had brought you to an untimely end, he was the more unhappy for it. However, as, he was not positive. of your death, he disposed of the goods, sold the ships, paid every creditor of your father, and placed the residue, which amounted to five and twenty thousand
-pounds in the bank, under your
-/
-name. -- -- His incessant prayer to the
-Almighty, brother, is to restore hini the Son of his unfortunate friend -- my
-■ and I have daily echoed his
-\
-prayer — God has at last heard us — — I
-have found my brother_____ my'parents
-will See their Son. -- -
-Thou art an angel, and not a
-woman, exclaimed lord C -- -- with tears
-in his eyes — thy father is the pride of
-nature —
-[ 29 ]
-nature — i’ll glory in his esteem. — Nephew, in favour of that adorable girl', and her honest parents. i’ll Settle upon thee five thousand a year on the day of
-thy marriage -- -- -- -- Rambler is lost in
-thoughts; I dare Say they are not fixed on the bank. — ^
-“You do me justice, ray lord. Mr. Clinton, his wife, and the lovely Emily, have heaped So many benefits upon me, that I know not how to repay therii. — —
-%
-/
-4
-^;
-* ♦
-Love them, love me, brother, and your obligations to us shall be acquitted — think of no other gratitude — that alone our hearts will welcome. — *-
-• ^ %
-“th.1l:
-.
-%
-[ 3° J
-That alone, dear Emily, would not be a proper return — the generosity of lord C — - has Satisfied my ambition
-— the money in the bank belongs to my
-sister
-»
-“fear I shall not love you long — the first ast of your gratitude is an in* justice to us! — Brother, never talk as you have done if you will have me esteem you, —
-Let him talk, Emily, Said lofd
-C -- -- --, that I may admire you the
-more. -- --
-\
-“If I have offended, it is only by offering what I have no need of — I made no Sacrifice, and a Sacrifice only, my Sister deserves from me“
-“do
-i
-[ SI ]
-«
-“I do not; I do not — when I com
-t
-plied with the desires of a father 1 loved,
-I pleased myself — it was my duty to obey. — Would you, brother, be praised for having performed your duty r —
-)
-“No, Emily: Such a praise would rather be a disgrace than an honour. —
-“Talk then no more of Sacrifice;
-I deserve none. -- --
-4
-“ril relpedt your delicacy — but it ^ ^ /
-IS a torment to be obliged, and not be able to return the favour. —
-I
-• «
-You are proud, brother. —
-\
-y I am only Sensible and grateful. —
-4
-“Prove
-w V
-\
-[ 32 ]
-<< Prove yourself So by paying your acknowledgment in the manner we value the shosh -- -- -- -
-t
-I will, generous Emily. — — *
-# # * # # '
-“I hope, Rambler, that Emily has made you a friend to the women, and changed your opinion of them. —
-✓
-“An honest man, my lord, appears Sometimes at court“
-“blasphemy, by all that
-is good, exclaimed lord W — -- -- -- -- --!
-Emily, if you do not make a convert of your brother, I doubt of his refor
-jt
-mation. -- -- - —
-The
-u -
-33 ]
-The countess of C -- -- -, and Emily
-have convinced me only, that virtue may be united to beauty, wit, and fens
 
-sibility. --
-Only! — how impious that only! —
-“From two Such uncommonly excellent women, must I judge the whole sex? Shall I believe that those who
-boast the Same charms, can boast the
-/ ^
-same love of their duties ^ Should we hear So often of saiihless wives, had they the heart of lady C -- and Emily? — •-
-“Why should it not be with women as it is with ministers, who are,, at one and the Same time, commendedl and reviled Unlucky lovers may be compared to an opposition; the. denial of
-C 5 the
-t 34 ]
-A
-the favours they eagerly Solicit, and pant aster, changes as naturally their affection into hatred, as disappointed ambition turns a friend to the minister into his implacable enemy. Hence So many virtuous women unjustlyi condemned— — So many able ministers maliciousiy abused.” — \
-I told lord W -- -- --, that his comparison
-was more ingenious than conclusive. Since I defied him to name a mar in the present administration, who, either in his public, or private site, wa: not deservedly despiled by the whol< nation. He owned frankly, that th present Set favoured my opinion, anc begged pardon of Emily for having thoughtlessly fortified my prejudices a gainst her Sex.
-Lort
-\ ^
-[ 35 J
-Lord C — — tapped me upon the shoulder. -- --
-“My friend, experience will conquer your credulity — in a few years you will think as I do. -- -
-\
-“Amen, my lord. I shall be glad to have been mistaken. rdear sister, you know the heart of lord C— —; six minutes you will see a lady worthy of it. -- -
-“No woman can be better praised — Worthy of his lordships heart! In a few words, brother, you have made the panegyric of her merit. — Dear W —,
-that your attachment to me may be
-%
-everlasting, of the countess Isti endeavour
-4
-C 3.6 ]
-vqur to adopt the virtues, and make them my own.” -- -- -- --
-Lord W -- -- -- Snatched emily’s hand,
-and kissed it — and kissed it again and
-9
-again. -- --
-9
-“Thou wast born, Emily, to make me virtuous and happy — thou hast disip played today Such charms as have rivets ted thee for ever in my heart— — need of example hast thou, Emily — be al ways thyself, and; not once in thy life ■ shalt thou complain of an abatement in.
-my passion for, thee.” —
-/
-emily’s bosom heaved with gratitude and delight — she abandoned her hand to the transports of her lover, and thanked.
-[ 37 I
-\ •
-ed him with the looks of love for the constancy he had, promised, and the:
-i
-tender emotions he felt..
-/
-.
-/
-r
-^ -
+“Nephew, cried lord C----- in a rapture, by the pathetic action of Emily, thy folly has been productive of much good - I will rather praise than condemn thee for it - thou angelic
+creature, addressing himself to Emily, I will adore thee for thy sensibility. We are not worthy of thee - thou enoblest my house with thy ingenuity and virtues - Rambler, thou has got a father and a sister, who amply compensate for the loss thou hast sustained - be that loss for ever obliterated from thy mind -  Emily is thy sister! - no more of Sorrow - away with tears - pleasure and happiness before the future the sole attendants upon us - this day, I will mark as one of the happiest days I have lived - how many lucky events in a few hours! - good God! - 
+I thank you for your favours - they are above my deserts, and most sanguine expectations! - lovely Emily, if you have still something to relate, go on -
 
-A
-i P
-0
-0
-#
-»
-%
-• •
-«
-«
-/
-\
-\ \
-\
-* s
-».
-LET
-• •• --
-1
-%
-^ *
-A
-I
-t
-t 38 ]
-* > »
-\ >
-LETTER IIL
-9
-HEN we arrived at the castle, the countess vas walking ia the garden with Mrs. Guery. Lord
-C — — - left Emily and his nephew in a
-;
-parlour, and took me with him.
-“You will keep company to Mrs. Guery, Rambler, whilst Till communicate to my lady the happy events of this day. --
-‘‘ I am little inclined to talk of love, my lord: a reverie would be more acceptable than a tete a tete with an amiable
+“I said, I had happy news to impart.
 
-[ 39 ]
-able woman — my heart is — ^emily’s friendship, and the favours of fortune,
-V
-have not erased from my mind the memory of a father — — his death I feel the more Sensibly, that, had he lived, he would have been happy. —
-“His days were marked, Rambler, he could not outlive them — be a man; Submit to Providence, and afflict not yourself for a loss, which neither tears nor ibrrow can repair. — Emily, her parents, the countcss and I must com
-i
-pensate for that loss -- -- -- rcsume your
-usual gaiety. -- -- -- -
-“I shall not be able to Support it — ^
-the wound is still too fresh, -- -- --
-✓
-Mrs.
-%
-%
-L 40 ]
-Mrs. Guery will heal it — a hand fomecwoman is the best physician for grief — with what grace she trips! plea shre is in her gait — - — look upon her,
-Rambler -- -- -- -- It Seems she knows the
-want you have of her — do not rob her of the honour of your cure. -- -- -- --
-“I doubt, her shill. -- -- -
-%
-“See it in her. eyes,, in her Snape So exquisitely made— — you now doubt it?” -- --
-I could not help Smiling at the vif
+"You have already, by adopting me for your brother -
 
-vaciry with which lord C -- -- expressed
-himselfi
-My lord, I. will be her patient. —
-y Then,
-✓
-< '
-E 4‘ J
-“Then, < I am certain of your re
-\
-very. -- -- -- --
-fi.
-/
-After his lordship had paid his de vsirs to Mrs. Guery, he unaffedtedly
-stole away with his lady.
-• •
-“How nimbly they walk, sir! They could be mistaken for lovers led by desire to the temple of hymen, * —
-i
-Would you not be tempted to follow them thither, madam
-4
-*
-“To the mani: should love, perhaps would I not say no. — —
-j
-« Would I were that man! —
-•• C —
-I
-» • *
-‘‘ You
-\
-%
-I 42 I
-“You do not perform So naturally as you did last night — you have failed in the expression of that wish — do I please
-/
-less at daylight than in the dark? .Consider me well — recolle(5t yourself
-conceal the man of gallantry under
-the mien of a lover — your eyes are too languid — your features too destitute of Sentiment — Enliven your phisiognomy
-'— and then talk to deceive. —
-/
-You shall not banter she out of my inclination for you. —
-j
-“Badly expressed again — what is become of your feelings? —
-And she darted at me a look, which meant — I am afraid I have mistaken flattery for truth, —!
-The
-N.
-I
-[ ]
-The fear of Mrs. Guery, Francis,
-was just : I had been a very bad aftor.
-The pensiveness, which Succeeded her mirth awoke my lensibility, and tuned
-my melancholic Soul to the notes of love.
-“Your incredulity, dear Mrs. Guery, has made me diffident — could I doubt your indifference, I would talk the language o real passion— — am at a loss ik)w to Say, I love you, to an ii scnsible woman — I am apprehensive of your raillery — it is a torment to love, and to be laughed at. —
-/
-The accent of my voice delighted Mrs. query’s ears. Fearing, however, to be led into an error, with the penetrating
-C 44- ]
-\
-trating eye of self-interest, she Sought
-for truth in my countenance.
-<
-“Who told vou I was insensible? —
-\
-f“
-“behaviour. —
-0
-“Believe it not — I Irave a heart — a
-*
-very tender heart. —
-m
-t
-I am the more miserable for knowing it — that heart is not mine — I do not
-create its impulse__^you are absent — you
-do not listen to me — would I had never Seen you!” —
-* t
+“This is but a sentimental happiness, answered Emily with a smile - to fortune you are indebted for more substantial bliss - 
+
+“My heart tells me, Emily, that I shall enjoy the former with a greater delight - your friendship I prefer to riches -
+
+“Brother, you possess both. - Three weeks after we had learn’d Mr. Rambler had ceased to live, the captain of one of his ships came to visit my father. Surprised at the sight of a man he thought a close prisoner in France, he asked him whether he had made his escape, or been exchanged?
+
+“An English man of war, answered the captain, retook us from the privateer, within twenty miles of Bayone -
+
+“Heaven! what do I hear! - the ships are not lost?
+
+“They are safely arrived in the river. Hearing at Gravesend of Mr. Rambler’s death, and that he had left his son to your care, I came immediately to receive your orders.
+
+"Had my father been certain you lived, he would have been overjoyed at this unexpected turn of fortune in your favour; but conscious from the inefficacy of his research, that despair had brought you to an untimely end, he was the more unhappy for it. However, as, he was not positive of your death, he disposed of the goods, sold the ships, paid every creditor of your father, and placed the residue, which amounted to five and twenty thousand pounds in the bank, under your name. - His incessant prayer to the Almighty, brother, is to restore him the son of his unfortunate friend - my mother and I have daily echoed his
+prayer - God has at last heard us - I have found my brother - my parents will see their son. -
+
+"Thou art an angel, and not a woman, exclaimed lord C----- with tears in his eyes - thy father is the pride of nature - I’ll glory in his esteem. - Nephew, in favour of that adorable girl', and her honest parents. I’ll settle upon thee five thousand a year on the day of thy marriage - Rambler is lost in thoughts; I dare say they are not fixed on the bank. -
+
+“You do me justice, my lord. Mr. Clinton, his wife, and the lovely Emily, have heaped so many benefits upon me, that I know not how to repay them. -
+
+"Love them, love me, brother, and your obligations to us shall be acquitted - think of no other gratitude - that alone our hearts will welcome. - 
+
+"That alone, dear Emily, would not be a proper return - the generosity of lord C----- has satisfied my ambition - the money in the bank belongs to my sister -
+
+“I fear I shall not love you long - the first act of your gratitude is an in justice to us! - Brother, never talk as you have done if you will have me esteem you. -
+
+"Let him talk, Emily, said lord C-----, that I may admire you the
+more. - 
+
+“If I have offended, it is only by offering what I have no need of - I made no sacrifice, and a sacrifice only, my sister deserves from me. -
+
+“I do not; I do not - when I complied with the desires of a father I loved, I pleased myself - it was my duty to obey. - Would you, brother, be praised for having performed your duty? -
+
+“No, Emily: such a praise would rather be a disgrace than an honour. - 
+
+“Talk then no more of sacrifice; I deserve none. -
+
+“I'll respect your delicacy - but it is a torment to be obliged, and not be able to return the favour. -
+
+"You are proud, brother. -
+
+"I am only sensible and grateful. -
+
+"Prove yourself so by paying your acknowledgment in the manner we value the most. -
+
+"I will, generous Emily. -
+
+“I hope, Rambler, that Emily has made you a friend to the women, and changed your opinion of them. -
+
+“An honest man, my lord, appears sometimes at court. -
+
+“ Downright blasphemy, by all that is good, exclaimed lord W-----! Emily, if you do not make a convert of your brother, I doubt of his reformation. - 
+
+"The countess of C-----, and Emily have convinced me only, that virtue may be united to beauty, wit, and sensibility. -
+
+"Only! - how impious that only! -
+
+“From two such uncommonly excellent women, must I judge the whole sex? Shall I believe that those who boast the same charms, can boast the same love of their duties? Should we hear so often of faithless wives, had they the heart of lady C----- and Emily? 
+
+“Why should it not be with women as it is with ministers, who are, at one and the same time, commended and reviled? Unlucky lovers may be compared to an opposition; the denial of
+the favours they eagerly solicit, and pant after, changes as naturally their affection into hatred, as disappointed ambition turns a friend to the minister into his implacable enemy. Hence so many virtuous women unjustly condemned - hence so many able ministers maliciousiy abused." - 
+
+I told lord W-----, that his comparison was more ingenious than conclusive. Since I defied him to name a man in the present administration, who, either in his public, or private site, was not deservedly despiled by the whole nation. He owned frankly, that the present set favoured my opinion, and begged pardon of Emily for having thoughtlessly fortified my prejudices against her sex.
+
+Lord C----- tapped me upon the shoulder. -
+
+“My friend, experience will conquer your credulity 0 in a few years you will think as I do. - 
+
+“Amen, my lord. I shall be glad to have been mistaken. - Dear sister, you know the heart of lord C-----; in six minutes you will see a lady worthy of it. -
+
+“No woman can be better praised - Worthy of his lordships heart! In a few words, brother, you have made the panegyric of her merit. - Dear W-----, that your attachment to me may be everlasting, of the countess I'll endeavour to adopt the virtues, and make them my own.” -
+
+Lord W----- snatched Emily’s hand, and kissed it - and kissed it again and again. - 
+
+“Thou wast born, Emily, to make me virtuous and happy - thou hast displayed today such charms as have riveted thee for ever in my heart - need of example hast thou, Emily - be always thyself, and not once in thy life shalt thou complain of an abatement in my passion for, thee.” -
+
+Emily’s bosom heaved with gratitude and delight - she abandoned her hand to the transports of her lover, and thanked him with the looks of love for the constancy he had, promised, and the tender emotions he felt. 
+
+---
+
+## LETTER III. 
+
+When we arrived at the castle, the countess was walking ia the garden with Mrs. Guery. Lord C----- left Emily and his nephew in a parlour, and took me with him.
+
+“You will keep company to Mrs. Guery, Rambler, whilst I'll communicate to my lady the happy events of this day. -
+
+"I am little inclined to talk of love, my lord: a reverie would be more acceptable than a tete a tete with an amiable woman - my heart is sad - Emily’s friendship, and the favours of fortune, have not erased from my mind the memory of a father - his death I feel the more sensibly, that, had he lived, he would have been happy. - 
+
+“His days were marked, Rambler, he could not outlive them - be a man; submit to Providence, and afflict not yourself for a loss, which neither tears nor nor borrow can repair. - Emily, her parents, the countess and I must compensate for that loss - resume your usual gaiety. -
+
+“I shall not be able to support it - the wound is still too fresh. -
+
+"Mrs. Guery will heal it - a handsome woman is the best physician for grief - with what grace she trips! pleasure is in her gait - look upon her, Rambler. - It seems she knows the
+want you have of her - do not rob her of the honour of your cure. 
+
+“I doubt her skill. - 
+
+“See it in her. eyes, in her shape so exquisitely made - can you now doubt it?” - 
+
+I could not helpsSmiling at the vivacity with which lord C----- expressed himself. 
+
+"My lord, I will be her patient. —
+
+“Then, I am certain of your recovery. -
+
+After his lordship had paid his devsirs to Mrs. Guery, he unaffectedly stole away with his lady.
+
+“How nimbly they walk, sir! They could be mistaken for lovers led by desire to the temple of hymen. -
+
+"Would you not be tempted to follow them thither, madam? -
+
+“To the man I should love, perhaps would I not say no. -
+
+"Would I were that man! -
+
+“You do not perform so naturally as you did last night - you have failed in the expression of that wish - do I please less at daylight than in the dark? - Consider me well - recollect yourself - conceal the man of gallantry under the mien of a lover - your eyes are too languid - your features too destitute of sentiment - Enliven your phisiognomy - and then talk to deceive. -
+
+"You shall not banter me out of my inclination for you. -
+
+“Badly expressed again - what is become of your feelings? -
+
+And she darted at me a look, which meant - I am afraid I have mistaken flattery for truth. -
+
+The fear of Mrs. Guery, Francis, was just: I had been a very bad actor. The pensiveness, which succeeded her mirth awoke my sensibility, and tuned my melancholic soul to the notes of love.
+
+“Your incredulity, dear Mrs. Guery, has made me diffident - could I doubt your indifference, I would talk the language of real passion - I am at a loss how to Say, I love you, to an insensible woman - I am apprehensive of your raillery - it is a torment to love, and to be laughed at. -
+
+The accent of my voice delighted Mrs. Guery’s ears. Fearing, however, to be led into an error, with the penetrating eye of self-interest, she sought for truth in my countenance.
+
+“Who told you I was insensible? -
+
+“Your behaviour. -
+
+“Believe it not - I have a heart — a very tender heart. -
+
+"I am the more miserable for knowing it - that heart is not mine - I do not create its impulse - you are absent - you do not listen to me - would I had never seen you!” -
+
 A sigh told me her want of believing me, and her dread of a disappointment.
-y Men
-/
-t 45 ]
-Men are So perfidious! — So wantonly false!
-“Had they my heart — had their mis tresses your beauty, they would be sincere and constant. —
-“Sincere and constant! —
-She shook her head, and walked a few steps before me. —
-let’s go to the castle, sir, -
-“Let me first hear from your own lips that you hate me. —
-A
-“I will not say it!
-!
-“then that you love me. —
-“No,
-t 4s I
-No, no, no. —.
-«
-Will you not' stay ?_
-Will you not come with me? —
-I
-t
-I marked my answcr in a respedffu
-bow, and entered a covered alley.
-%
-r
-%
-I
-V
-I
-/
-/
-LEI
-N /
-0
-I 47 ]
-\
-/
-LETTER IV
-/
-r step’d to a Solitary bower, and attentively inquired into the real state ss my feelings and situation. After : wenty minutes Scrutiny, I found my heart entirely changed : gratitude, ho lour, delicacy, and benevolence, guests [ once thought I should never welcome, had taken possession of it. The coun: ess began my metamorphosis, and Emily finished it. Neither fortune nor lord C — —, would have worked So effectually
-upon my soul, as to transform me from a knave into an honest man.
-Riches, which ought to be an encouragement
-I 48 3
-ment to virtue, are So often an incentiv to vice, that my passions might ha
-disputed the power of lord C— —
-but the perpetual Sacrifict the countess made to her modesty, an the uncommon generosity of Emily wer of an authority not to be resistec They forcibly sprung a new life in mi and made me the contrast of myself
-/
 
-“Were all women like them, ej claimed I, irreligion and libcrtinisr
-would be as obsolete as they are no
-/
-. fashionable! — If lord C -- -- -- ’s opinio
-of them is true, men must have bee ■ irrevocably fated to be vicious, sine the creators of the Sole delights the enjoy cannot correct the depravity C their nature. A handsome, virtuouj woman would necessarily operate that
-'alteratio
-[ 49 ]
-iteration in the heart of her lover. The want of pleasing her would engage him to grace himself with her virtues — like a flexible plant, he would be in her hands ready to receive the form [he should think proper to give him] Lord C -- -- - must be wrong — wonieii
-i -0' O
-are not what he fancies them to be — the immorality and profligacy of the age prove against him— — make Some experiments— — beauties, who, of all women, are the more tempted, withstand the Sedudtion of love, flattery or gold. i’ll conclude in favour of their
-Sex, -- -- But, what shall I then think
-of my ov/n? I mwst not pronounce the Sentence till I can do it with equity. —
-I
-After these reflections 1 marked Mrs. Guery for the object; of my Second trial; vojl. II D and
-t 50 1
-and then paying a tribute to nature
-\ shed a few tears over the memory 0 ^ my father.
-ow
-The rustling of silk roused my Spirits : I was carrying my handkerchie: up to my eyes to wipe the trembling tear, when Mrs. Query entered that bower.
-“Forgive, sir, my intrusion : I did not think of meeting you in this place ■^what do I See? Tears on your cheeki * -- Sorrow in every feature! -- -
-“Enjoy it........ it is your work.
-Feast your vanity with the Spectacle of my grief. — — —
-P Arc
-»
-t 51 J
-“Are you in earnest? — What have I done that may have made you im happy? -- -- --
-#
-“Add not insult to the pain you cause— — me — I love you too much not to wish you far from me — your presence encreases my trouble — would yom could Suddenly grow as ugly as you are beautiful! — —.
-“You do not expect my thanks for that wish — do you -
-“No — you are too proud of youf charms. *'
-“You are not a flatterer, sir. — ''
-I
-D a lii
-5^ J
-Is not beauty almost the Sole ac Cpmplishment, a woman glories in
-“And you think me Such a WG man ?■. -- -- -- -
-“Ask me not what I think ^ out o
-/
-4
-pity leave me. -- -- -- -
-Not before you have a better opi jiion of me.
-. ►
-■%
+"Men are so perfidious! - So wantonly false!
 
-To you what is the esteem of man you detest? -- -- -- -
-’ ^ *
-Do I detest you?
-You do. — —
-I do nost~ — 5
-« No
-k.
-\
-«»
-C s3 ]
-Not to love, is it hot to hate
-/
-me? -- -- -- --
-f
-Not to hate, is it not to — ^
-She paused, and the blush of mo dksty coloured her face. I understood
-what she did not dare to express,
-** Let me finish the phrase you be --
-gan.” -- -- -;
-She put her hand upon my lipss
-You will give it a sqnse it had not I know you will— —
-me not before you have heard me. Not to hate, is it not to
-4
-love
-[ 54 1
-love you? -- -- Is it not this you intended
-to Say. — -
-“I meant friendship — I was Sure yoi: would mistake it for love. —
-“Had it been friendship would you have hesitated? — «
-“Yes; friendship from me to you is an indiscreet word. —
-And she sighed, and coloured again.'
-/
-if
-“Happy — thrice happy this minute! Charming Guery! You love mei
-have not Said ist —
-^ m
-I
-N
-‘‘ No
-I
-t 55 ]
-No — but that blush — that sigh have Spoke it for you. -- -
-“Talk no more of love. —
-** cease then to inspire it, - —
-“The countess may wonder at our
-absence. — —
-«
-y Did you not go to the castle
-s
-/
-y I did not. —
-X
-And yet you. would not stay with
-she ^ -- -
-%
-I
-y I feared to sigh,, and to blush. —
-V
-Y^gll
-%.
-[ 56 ]
-J
-'You feared! — Was you not certain of my veracity? —
-“What assurance had I of it '
-. ^
-“Your charms, and my Sensibility, — —
-“They are poor guarantees, Ramh - ier.~
-They are the best a mortal car give. —
-“Convince me of their goodness, ahc I fiiali be happy. —
-“Thou delightest my heart — it beati with rapture — tejl me again that yoi shall be happy. —
-Tel:
-[ 57 1.
-Tell me again that you shall be true and constant. -- -
-“I Swear it by those fine eyes -- by
-that lily and rose So beautisully blended
-in thy face -- by those bloomy lips -- -- ^
-by that Snowy and panting bosom -- -- -- -
-by this excellent shape — r — by those feet which would have added a beauty to
-the legs of Venus — — by
->
-“Hold, hold; Swear no more; I believe you. -- -- -- -.
-“Will you not Swear in your
-turn -- -- -- -- -
-0
-0
-Mrs. Guery Smiled
-V
-, D r I will
-t -
-[ 58' ]
-t
-“I will — by this kiss I have freely
-given -- -- if you love me, I shall be
-happy -- -- -- -- -
-“Will you be at home for me tomorrow? -- -- -- --
-f.
-“I willi
+“Had they my heart - had their mistresses your beauty, they would be sincere and constant. -
 
-“No body with you? — — - “Love only. -- -- -- -- -
-/
-Francis! Art thou not pleased with
-(
-my new mistress ^ -- -- How she talks !• —
-I experienced that it is not Safe to feign a passion for a fine woman, and tell her of it. Her Smiles and caresses Set
-Soon our fenses on fire : whilst their fever
-last, ' the illusion turns into reality, and our hearts are as feelingly affected[
-[ J'
-as if in that woman were centred its • desires and our happiness..
-Young men, fond of their liberty, or
-enamoured of virtue, should not gaze
-/
-a beauty, still less hear her Speak,, far less See her Smile. — There is a poison in her form and on. her lips, the more dangerous, that it is the vork of.
-nature, and the favourite food of. our.
-Soul..
-I
-i
-i
-N
-I
-'L E -
-s
-V
-[ }
-• • ■ - 'I
-\
-»
-• I
-i:
-L E T T E R. V
-I
-*^^7 I T H me, Mrs,. Guery dis ’ ^ carded her borrowed character,
-and assumed her own : I Saw neither the prude, nor the coquette. Convinced of the Sincerity of my affection, she: frankly laid her heart open before me, that I might exult at the discovery of its feelings. Her noble behaviour made a deeper impression upon me than her beauty had done. I beheld her with respecl and admiration, and at last with' put disguise, personated the lover.
-r. -
-* X 4
-“This
-/
-[ 6i ]
-This woman! liaid I to niyself, is too real an enemy to dissimulation, not to be stridly virtuous. hypocrisy is the Spring of every vice in the female heart; it fills it up with deceit, 'and disarms it against the attack of the passions. When the habit of feigning has made falsehood familiar, religion and honour lose gradually their authority,, and virtue resigns her rights to prudence; The probity of a lover, or the Safety of a rende vous, are sufficient to corrupt the modesty of a woman of such
+“Sincere and constant! -
+
+She shook her head, and walked a few steps before me. -
+
+"Let’s go to the castle, sir. -
+
+“Let me first hear from your own lips that you hate me. - 
+
+“I will not say it. -
+
+“Then that you love me. -
+
+“No. - 
+
+"No, no, no. - 
+
+"Will you not stay? -
+
+"Will you not come with me? -
+
+I marked my answer in a respectful bow, and entered a covered alley.
+
+---
+
+## LETTER IV
+
+I step’d to a solitary bower, and attentively inquired into the real state of my feelings and situation. After twenty minutes scrutiny, I found my heart entirely changed: gratitude, honour, delicacy, and benevolence, guests once thought I should never welcome, had taken possession of it. The countess began my metamorphosis, and Emily finished it. Neither fortune nor lord C-----, would have worked so effectually upon my soul, as to transform me from a knave into an honest man.Riches, which ought to be an encouragement to virtue, are so often an incentive to vice, that my passions might have disputed the power of lord C----- but the perpetual sacrifice the countess made to her modesty, and the uncommon generosity of Emily were of an authority not to be resisted. They forcibly sprung a new life in me, and made me the contrast of myself.
+
+“Were all women like them, exclaimed I, irreligion and libertinism would be as obsolete as they are now fashionable! - If lord C-----’s opinio of them is true, men must have been irrevocably fated to be vicious, since the creators of the sole delights the enjoy cannot correct the depravity of their nature. A handsome, virtuous woman would necessarily operate that alteration in the heart of her lover. The want of pleasing her would engage him to grace himself with her virtues - like a flexible plant, he would be in her hands ready to receive the form she should think proper to give him. Lord C----- must be wrong - women are not what he fancies them to be - the immorality and profligacy of the age prove against him. I'll make some experiments - if beauties, who, of all women, are the more tempted, withstand the seduction of love, flattery or gold, I’ll conclude in favour of their sex, - But, what shall I then think of my own? I must not pronounce the sentence till I can do it with equity. -
+
+After these reflections I marked Mrs. Guery for the object of my second trial; and then paying a tribute to nature, shed a few tears over the memory of my father.
+
+The rustling of silk roused my spirits: I was carrying my hankerchief up to my eyes to wipe the trembling tear, when Mrs. Guery entered that bower.
+
+“Forgive, sir, my intrusion: I did not think of meeting you in this place - what do I see? Tears on your cheeks - sorrow in every feature! - 
+
+“Enjoy it - it is your work.- Feast your vanity with the spectacle of my grief. -
+
+“Are you in earnest? 0 What have I done that may have made you im happy? -
+
+“Add not insult to the pain you cause - leave me - I love you too much not to wish you far from me - your presence encreases my trouble - would you could suddenly grow as ugly as you are beautiful! -
+
+“You do not expect my thanks for that wish - do you? -
+
+“No - you are too proud of your charms. -
+
+“You are not a flatterer, sir. - 
+
+"Is not beauty almost the sole accomplishment a woman glories in? -
+
+“And you think me such a woman? -
+
+“Ask me not what I think - out of pity leave me. -
+
+"Not before you have a better opinion of me. -
+"
+To you what is the esteem of man you detest? -
+
+"Do I detest you? -
+
+"You do. -
+
+"I do not. -
+
+"Not to love, is it not to hate me? -
+
+"Not to hate, is it not to — 
+
+She paused, and the blush of modesty coloured her face. I understood what she did not dare to express.
+
+"Let me finish the phrase you began.” -
+
+She put her hand upon my lips. 
+
+"You will give it a sense it had not - I know you will. -
+
+"Condemn me not before you have heard me. Not to hate, is it not to love you? - Is it not this you intended to say? -
+
+“I meant friendship - I was sure you would mistake it for love. - 
+
+“Had it been friendship would you have hesitated? -
+
+“Yes; friendship from me to you is an indiscreet word. -
+
+And she sighed, and coloured again.
+
+“Happy - thrice happy this minute! - Charming Guery! You love me. -
+
+"I have not said it. -
+
+No - but that blush - that sigh have spoke it for you. - 
+
+“Talk no more of love. - 
+
+"Cease then to inspire it. - 
+
+“The countess may wonder at our absence. - 
+
+"Did you not go to the castle? -
+
+"I did not. -
+
+"And yet you would not stay with me? - 
+
+"I feared to sigh, and to blush. -
+
+"You feared! - Was you not certain of my veracity? -
+
+“What assurance had I of it? -
+
+“Your charms, and my sensibility. -
+
+“They are poor guarantees, Rambler. -
+
+"They are the best a mortal can give. -
+
+“Convince me of their goodness, and I shall be happy. -
+
+“Thou delightest my heart - it beats with rapture - tell me again that you shall be happy. -
+
+"Tell me again that you shall be true and constant. -
+
+“I swear it by those fine eyes - by that lily and rose so beautifully blended in thy face - by those bloomy lips -  by that snowy and panting bosom - by this excellent shape - by those feet which would have added a beauty to the legs of Venus - by
+
+“Hold, hold; swear no more; I believe you. -
+
+“Will you not swear in your turn? -
+
+Mrs. Guery smiled.
+
+“I will - by this kiss I have freely given - if you love me, I shall be happy -
+
+“Will you be at home for me tomorrow? -
+
+“I will. -
+
+“No body with you? - 
+
+“Love only. - 
+
+Francis! Art thou not pleased with my new mistress? - How she talks! I experienced that it is not safe to feign a passion for a fine woman, and tell her of it. Her smiles and caresses set
+soon our senses on fire: whilst their fever last the illusion turns into reality, and our hearts are as feelingly affected,
+as if in that woman were centred its desires and our happiness.
+
+Young men, fond of their liberty, or enamoured of virtue, should not gaze upon a beauty, still less hear her speak, far less see her Smile. - There is a poison in her form and on her lips, the more dangerous, that it is the work of nature, and the favourite food of our soul. 
+
+--- 
+
+## LETTER V. 
+
+With me, Mrs. Guery discarded her borrowed character, and assumed her own: I saw neither the prude, nor the coquette. Convinced of the sincerity of my affection, she frankly laid her heart open before me, that I might exult at the discovery of its feelings. Her noble behaviour made a deeper impression upon me than her beauty had done. I beheld her with respect and admiration, and at last with put disguise, personated the lover.
+
+"This woman, said I to myself, is too real an enemy to dissimulation, not to be strictly virtuous. Hypocrisy is the spring of every vice in the female heart; it fills it up with deceit, and disarms it against the attack of the passions. When the habit of feigning has made falsehood familiar, religion and honour lose gradually their authority,, and virtue resigns her rights to prudence; The probity of a lover, or the Safety of a rende vous, are sufficient to corrupt the modesty of a woman of such
 a contemptible charadler.____ingenuity
 is the mark of an honest heart — the virtue of Mrs. Guery will triumph over love.” -- -- -!
 This conclusion did not deter me from the resolution I had formed — *
@@ -6511,7 +4312,6 @@ y
 remely fond of piquet, played high,
 1
 i was commonly very successful. rtune having forsaken her the eveni
-
 ; before, she lost five hundred pounds on her word. Though the Sum was onsiderable, she might be glad to; p it — Gold, Francis, is a great auxi ry against the virtue of women — en their opulent husbands, Sell daily
 V:
 : integrity for it, why should they t adore the same deity, and Sacrifice
