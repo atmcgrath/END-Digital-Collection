@@ -115,339 +115,50 @@ But I shall tire my readers, as I have already done myself; so shall only add, t
 Their very humble Servant, 
 The EDITOR. 
 
+---
 
 ## LETTER I. 
-Dare I hope, my Amelia, that, even here in this solitude, I may have rest? No; it is impossible. Robbed, as I am, of the goods of fortune, by the treachery of those who called themselves my friends, and of what was still dearer to me than life, by the persidy of my lover. Ah! can I call a base betrayer by, that name! No; he was an assassin, who; under the semblance of honour and virtue; 
-deprived me of everything I held 
 
-# » " ♦ ' ' ' dear in this life and makes me look. 
-r,, ' 
-/ 
-forward to eternity with horror and; despair.. Shall we meet there? shall b again see the, lovely, the perjured, the unfeeling’phiiemon ?„ Will he then, call me from him? Will he infuit me with the pislure, of my rival? Drive 
-me first to madness, and then curse 
-/ 
-^? 
-I 
-'
-,. This, oh ye fair, yet undeluded, is 
-a true pidure of man; it. is' not the 
-/ 
-mere produd of fancy. She who draweit, feels but. too Severely; her 
-f 
-% 
-( 3) 
-A * 
-I 
-wounds are'yet green. Time may iio — time never can heal them; they ^ 
-are past cure. “A wounded Spirit' Says 
-* » 
-4 
-Solomon, “who can bear, ?” Hard, in ■ 
-'
-deed, is the burden. But, al, as! wheir ^ 
-the wound comes from an objed be 
-* / 
-one whom we could Sooner die 
-^ f 
-than acgufe, it augments the torment; 
-t 
-it makes grief turn to rage, to frenzy; 
-( 
-You, my friend, my lifter, know the heart of your Clara. Was not my bosom the seat of every gentle, every fccial guest?? his now all anarcliv 
-V 
-4 
-and, consufion; not one thought of 
-y 
-peace or joy to adminiher comfort; — but, as a poor, forlorn traveller, who 
-^ * i 
-is benighted in a desart, looks round 
-m vam for a finole finr or fbmp 
-. ’ \ 
-} 
-I 
-^. t' 
-( 4) 
-4 
-pitious Iigrit, to guide him on his journey; So do I look on every Side, 
-but no ray of hope appearsit is all 
-dark and dreary. I look back on the hours ofiove, — 1 recall the image, The conversation of my lover. Do I say I recall them? Alas! they obtrude themselvcs. Everything, every ob,, reminds me of him that has made me the moil wretched of womankind. Fatal necessity tore him from me. 
-S. ■ r 
-Perhaps I might have born what was 
-irremediable; but was there a necessity 
-to use me harslily, to accuse me of 
-% 
-crimes, of which, Heaven knows, I aiii 
-I 
-utterly incapable. 
-% 
-/ 
-t 
-\ 
-4 
-i 
-( 5) 
-t 
-/ 
-r S; 
-I will ’ehdeavour to colied my Scattered senses, and relate to my Amelia 'the history of my woes, and of my folly, for I will not disguise my frailty. 
-I 
-You'know I was addrelfed about the 
-• * 
-age of eighteen by Sir Charles Worthy. 
-He won a heart, which'm anv 
-{ 
-bad sought the posfesiion of in vain; 
-f 
-that heart, which is now rejected by a 
-i 
-villain; for though lovely, lie is a 
-i 
-perjured villain. But why will he intrude?? ' ah leave me for a 
-I 
-moment, thou btlse betrayer; give place to the Shade of my truly amiable • Worthy, my, would to God I could fav; my only, love. 
-f 
-t 
-( 6) 
-s 
-I 
-My heart vas, before worthy^s approaches to it, a Stranger to love, but 
-/ 
-: not to. fensibility. I melted with pity /, at every tale of woe, arid never heard 
-• * I, 
-, Sigh but I could answer it. Yet I was lively and volatile. You know, niy dear Amelia, I was even a proverb, for my gaiety of heart, with those of my acquaintance. Worthy loved me as much for my vivacity as for my 
-p 
-tenderness. He had the moil humane, as well as the mosi courageous heart, •that ever man poifefi’ed. Human nature never arrived at perfefliqn. 
-Worthy, incapabi® of deceit on every 
-1 
-other occasion, was too much addift 
-• t 
-ed to gallantry, and too fatally success 
-\ 
-« 
-{ ') 
-fill. Yet, to the, honour of the fair 
-Sex, let it be told, that he gained their 
-\ 
-hearts by dignity of manners, not glare ofdrefs;, for he' despifed all fuperfi 
-eials without being a Sloven., He was 
-\ 
-, elegant; but it was not^ever owing to 
-% 
-.the richness,,. the choice of his ' dress, which, though he did not Seem totally to negled, you might discover he did not Study. He was far from 
-'what our sex call a beauty; but his fi 
-% 
-• was perfeh Symmetry. He Showed ■hov7 beauty' is outdone by manly grace and wisdom, which alone are truly fair. 
-9 
-His voice, in speaking to women, 
-, was perfeh melody; and he coujd ex 
-% 
-*• * 
-♦ • 
-, • ■ 
-i 4, i 
-( 8) 
-t 
-5 
-press, with his eyes, every Sentiment he, 
-''T’* • 
-- Felt, or wished you to believe he felt: 
-^ 4 
-his fortune was just enough to enable him to live as a man of sense and taftc nvould wish, without either penury or 
-j 
-profusion. He had a taste for painting, 
-and loved music, but was not a virtuo 
-• \ 
-So; nor would he Sacrifice his rational powers to gratify his sense of hearing; and often would he Say, the most charming sounds in the world were those that proceeded from his dear clara’s mouth, when s[lie expresfed the 
-I 
-finest Sentiments in the most Soothing, and sweetest accents: “it is then, my 
-I 
-Clara, that angels may listen with pleasure to a mortal’s voice.” 
-r) 
-I '/ 
-% 
-\ 
-I 
-A. 
-I 
-A _ 
-Often has he told your Clara She was everything he could hope to find in woman. And when She has chid him 
-for his too early prepostesfion in her favour; and t|iat his esleem had not 
-time to be well grounded, as he was 
-% 
-not long enough acquainted to form a 
-proper judgement of her; “yes, I have 
-“known you Since I could form an idea 
-* 
-of a woman. Such as you are I have 
-“long sought for among your sex, but 
-(• 
-was still disappointed. I have, at “length, found, in Clara, the objeql “realised, that I began to think only 
-“exiftedinmy own imagination.” Too flattering were these praises from one 
-equally 
-IT 
-% 
-'■ lo)) 
-esfeemed by both Sexes. Won mernot that they won the heart of ypur 
-i^ver affeaionate friend and filler, 
-. » 
-CL 4, R A. 
-. 
-• • • 
-- .I • ^ ‘ 
-'' ' ' - '■; • > 
-; ^ X. 
-r 
-if 
+Dare I hope, my Amelia, that, even here in this solitude, I may have rest? No; it is impossible. Robbed, as I am, of the goods of fortune, by the treachery of those who called themselves my friends, and of what was still dearer to me than life, by the persidy of my lover. Ah! can I call a base betrayer by that name! No; he was an assassin, who, under the semblance of honour and virtue, deprived me of everything I held dear in this life, and makes me look forward to eternity with horror and despair. Shall we meet there? shall I again see the lovely, the perjured, the unfeeling Philemon? Will he then cast me from him? Will he insult me with the picture of my rival? Drive me first to madness, and then curse me? 
 
-1 N 
-^ • 
-f. 
-'
-e y ■ - «■ 
-A). ■ 
-• ♦ 
-• '. - • i 
-y 
-9 
-€ 
-* ' • « 
-» 
-X •. ♦ 
-* 
-■ r. ^,. D' '. _ ■, 
-'' c' 
-'• 
-s.. 
-'-4 ^ ^ ^ ■ f 
-■. 
-letter 
-✓ 
-- ♦ 
-/ • 
-i ', 
-- • 
-J 
-\ 
-() 
-- r ’.. •... ■ ■■, : ■ ' ■ I 
-s 
-■ A. ■■•' — ■■■■• C„ 
-i 
-', * 
-w 
-.. ' ■ s' C - N ' - - ' ■ • 
-4 
-LETTER II 
-. % 
-■ 'N ■- ■ 
-YOU bid me, my dear Amelia 
-write of Worthy only, and forget Philemon. Perhaps that talk might have been posiible, had I retain 
-N 
-V 
-ed that Innocence, hever indeed my pride, but once my glory. But I am 
-fallen — low as the vilell of my Sex — - 
-robbed of that honour, which only ex.. 
-'\ 
-us above the brutes. Why did I fly from Sir Charles on a bare fulpi ' 
-cion of his entertaining a sensual wish 
-/ 
-his too ardent joy to meet me after a separation, long indeed to Sincere 
-w 
-% 
-< 12) 
-t 
-; nd passionate lovers? I Slew from 
-\ * 
-» V ‘ 
-hini, and from every joy in this life; 
-N ' 
-for never, Since that day, has the fun jrose, but it rose to see the Sorrows, of Clara. Shall these eyes never cease to weep? No; they are now bound to 
-expiate my guilt by tears. Can tears 
-* 
-wash away dishonour? Can they re Ifore my spotless fame? Not in this 
-I ' 
-1 
-world, wretched vidim of lovel But 
-^ \ 
-trust, in the God of Nature. He.sliall 
-•. 
-behold with pity these agonising pains 
-» 
-can wash away dishonour. Pity dwells with him, though man is desli .tute of it. Though Philemon calls you from his bosom, though he denies his vows, they are registered in Heaven, 
-and there is rest for Clara in, the boson 
-\ 
-'
-* ■/ 
-•. ( ‘3) 
-of her father and her God. Sure, nif^ Amelia, Some good angel, perhaps the 
-J ♦ ’ ' 
-Spirit of my departed Worthy, whisper 
-J,.. \ 
-ed these lines to your almost dislraded friend. 
-V 
-9 
-\ 
-I will endeavour to compose my mind. Tomorrow I Shall write you? more of my melancholy narrative. It draws tears of blood from my heart j, 
-but I Shall be better, after having urnbo<' 
-Sbmed myself to So true So dear a 
-» 
-friend. I expesl not pardon for my frailty; but pity I am Sure df. Farewell, my truly beloved and esteemed 
-*• * * 
-May you never feel the pangs 
-% 
-that rend the heart of your 
-9 * • 
-r' T K rr n. 
-( 14) 
-» f 
-r.. \ 
-^ 
-\ ■ *»-*• r7 ■■■' ^ ■ • -- ■ 
-/ ■' ■ ♦ 
-LETTER nr. 
-t 
-'n 
-* ■ ^ J 
-For Seven months I had not a.\sh£h' 
-nngratified. My lover was tens 
-. 
-der, faithful and assiduous. Every rational, every elegant pleasure was pro 
-\ 
+This, oh ye fair, yet undeluded, is a true pidure of man; it is not the mere product of fancy. She who draws it, feels but too severely; wounds are yet green. Time may no - time never can heal them; they are past cure. “A wounded spirit," says Solomon, “who can bear?” Hard, indeed, is the burden. But, alas! when
+the wound comes from an object beloved, one whom we could sooner die than accuse, it augments the torment; it makes grief turn to rage, to frenzy. 
+ 
+You, my friend, my sister, know the heart of your Clara. Was not my bosom the seat of every gentle, every social guest? Yet 'tis now all anarchy and confusion; not one thought of peace or joy to administer comfort; - but, as a poor, forlorn traveller, who 
+is benighted in a desart, looks round in vain for a single star, or some propitious light, to guide him on his journey; so do I look on every side, but no ray of hope appears; - it is all 
+dark and dreary. I look back on the hours of love, - I recall the image, The conversation of my lover. Do I say I recall them? Alas! they obtrude themselves. Everything, every object, reminds me of him that has made me the most wretched of womankind. Fatal necessity tore him from me. Perhaps I might have born what was 
+irremediable; but was there a necessity  to use me harshly, to accuse me of srimes, of which, Heaven knows, I am utterly incapable. 
 
-cured, to win a heart already devoted toi 
+I will endeavour to collect my scattered senses, and relate to my Amelia the history of my woes, and of my folly, for I will not disguise my frailty. You know I was addressed about the age of eighteen by Sir Charles Worthy.  He won a heart, which many had sought the possession of in vain; that heart, which is now rejected by a villain; for though lovely, he is a perjured villain. But why will he intrude? Leave, ah leave me for a 
+moment, thou base betrayer; give place to the shade of my truly amiable  Worthy, my, would to God I could sat; my only, love. 
 
-him from Sentiment. In vain did Mrs. 
-■.; » FA: : ' ' 
-and Mrs. frugal advifetae to .prefer Mr. blandisir, on. account offiis .immense fortune. jbiandish was un 
-♦ - « • J. • ' 
-.doubtedly entitled to xny gratitude 
-and elleem; and he poiresfed both. 
-% 
-Ke was handsome, well-bred, .and had large possefbons. Fie offered a settle 
-* * .V 9 *> 
-^ • 
-vment more than equal to Sir charles's whole estate; but Sir Charles posfelfed ' 
-( 15 )■ 
-a soul of more value than all the ' wealth of India; and that he'bellowete 
-s 
-n Clara — too, too rich in the poiscf fioh, but vile and unworthy now even to refiedthat Site was once So blested.. 
-I 
-Often did he, with all the delicacy that our Situation required, urge a marriage. Men' of fortune, who want delicacy, are often * too precipitate on 
-Such occasions; A' woman of birth and education musl be wooed, and perhaps requires the more courtship, that; accident has deprived her of what sijie -- 
-Jihad 
-otherwise. a right to expesf. 
-t 
-/ 
-% 
-0 
-Sir Charles knew the delicacy of my 
-situation, and was the more cautious ^ lest he Siiould. wound it. He was, bowever 
+My heart was, before Worthy's approaches to it, a stranger to love, but not to sensibility. I melted with pity at every tale of woe, and never heard a sigh but I could answer it. Yet I was lively and volatile. You know, my dear Amelia, I was even a proverb, for my gaiety of heart, with those of my acquaintance. Worthy loved me as much for my vivacity as for my tenderness. He had the most humane, as well as the most courageous heart, that ever man possessed. Human nature never arrived at perfection. 
+Worthy, incapable of deceit on every other occasion, was too much addicted to gallantry, and too fatally successful. Yet, to the honour of the fair sex, let it be told, that he gained their 
+hearts by dignity of manners, not glare of dress; for he despised all superficials without being a sloven. He was elegant; but it was not ever owing to the richness, but the choice of his dress, which, though he did not seem totally to neglect, you might discover he did not study. He was far from 
+what our sex call a beauty; but his figure was perfect symmetry. He shewed how beauty is outdone by manly grace and wisdom, which alone are truly fair. 
 
-( i6) ' 
-ever, relieved from this dilemnia by 
-his rival blandish, who Game to -- -- -- -- - 
-on purpose to make an offer of himself to me; and, as he vainly 
-thought, to meet with no denial. He imputed all the little repulses I had given him to liveliness, and a little con 
+His voice, in speaking to women, was perfect melody; and he could express, with his eyes, every sentiment he felt, or wished you to believe he felt: his fortune was just enough to enable him to live as a man of sense and taste would wish, without either penury or profusion. He had a taste for painting, and loved music, but was not a virtuoso; nor would he sacrifice his rational powers to gratify his sense of hearing; and often would he say, the most charming sounds in the world were those that proceeded from his dear Clara’s mouth, when she expresfed the finest sentiments in the most soothing, and sweetest accents: “it is then, my Clara, that angels may listen with pleasure to a mortal’s voice.” 
+
+Often has he told your Clara she was everything he could hope to find in woman. And when she has chid him for his too early prepossession in her favour; and that his esleem had not time to be well grounded, as he was not long enough acquainted to form a 
+proper judgement of her; “yes, I have known you since I could form an idea of a woman. Such as you are I have long sought for among your sex, but was still disappointed. I have, at length, found, in Clara, the object realised, that I began to think only 
+existed in my own imagination.” Too flattering were these praises from one equally esteemed by both sexes. Wonder not that they won the heart of your ever affectionate friend and sister, CLARA.  
+
+---
+
+## LETTER II.
+
+You bid me, my dear Amelia write of Worthy only, and forget Philemon. Perhaps that talk might have been possible, had I retained that innocence, never indeed my pride, but once my glory. But I am fallen - low as the vilest of my sex - robbed of that honour, which only exalt us above the brutes. Why did I fly from Sir Charles on a bare suspicion of his entertaining a sensual wish his too ardent joy to meet me after a separation, long indeed to sincere and passionate lovers? I flew from him, and from every joy in this life; for never, since that day, has the sun rose, but it rose to see the sorrows of Clara. Shall these eyes never cease to weep? No; they are now bound to 
+expiate my guilt by tears. Can tears wash away dishonour? Can they restore my spotless fame? Not in this world, wretched victim of love! But trust, in the God of Nature. He shall behold with pity these agonising pains can wash away dishonour. Pity dwells with him, though man is destitute of it. Though Philemon casts you from his bosom, though he denies his vows, they are registered in Heaven, and there is rest for Clara in the bosom of her father and her God. Sure, my Amelia, some good angel, perhaps the spirit of my departed Worthy, whispered these lines to your almost distracted friend. 
+
+I will endeavour to compose my mind. Tomorrow I shall write you more of my melancholy narrative. It draws tears of blood from my heart; but I shall be better, after having unbosomed myself to so true, so dear a friend. I expect not pardon for my frailty; but pity I am sure of. Farewell, my truly beloved and esteemed sister. May you never feel the pangsthat rend the heart of your CLARA. 
+
+---
+
+## LETTER III. 
+
+For seven months I had not a wish ungratified. My lover was tender, faithful and assiduous. Every rational, every elegant pleasure was procured, to win a heart already devoted to him from sentiment. In vain did Mrs. Fane and Mrs. Frugal advise me to prefer Mr. Blandish, on account of his immense fortune. Blandish was undoubtedly entitled to my gratitude and esteem; and he possessed both. He was handsome, well-bred, and had large possessions. He offered a settlement more than equal to Sir Charles's whole estate; but Sir Charles possessed a soul of more value than all the wealth of India; and that he bestowed on Clara - too, too rich in the possession, but vile and unworthy now even to reflect that she was once so blessed. Often did he, with all the delicacy that our Situation required, urge a marriage. Men of fortune, who want delicacy, are often too precipitate on such occasions. A woman of birth and education must be wooed, and perhaps requires the more courtship, that accident has deprived her of what she had otherwise a right to expect. 
+
+Sir Charles knew the delicacy of my situation, and was the more cautious lest he should wound it. He was, however, relieved from this dilemnia by his rival Blandish, who came to - on purpose to make an offer of himself to me; and, as he vainly thought, to meet with no denial. He imputed all the little repulses I had given him to liveliness, and a little con 
 
 quetry, which I had undoubtedly toe 
 s 
@@ -686,23 +397,11 @@ at a more dreadful hour? Adieu!
 * 
 '9 
 While this heart vibrates, it Shall be faithful to Amelia. your’s, 
-C L A R A:. 
-* 
-> 
-V V 4 ' 
-4 
-\ 
-'/ ’ » ' r 
-rriioj jti VO ‘'20 '■')■ '"V“ “
-: ..riururr - •,. 
-I -- * # 
-t 
-/ 
-V A N ■ ':; ’ ^ - - ' 
-I / ' *. • -. -*• 
-I * ' ' ' ' 1 
-/ 
-'LET E R IV ‘ 
+
+---
+
+## LETTER IV. 
+
 WHATEVER pain I Suffered, 
 from having made Such a « of my affdsiion, — ra pain ari sing from modesly only, — was more, than compensated by the flattering attention of my lover, and his constant professions of regard and esteem. Yet he often accused me of coldness, and Said I railed unnecessary delays to his 
 f 
