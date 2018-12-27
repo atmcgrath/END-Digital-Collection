@@ -158,626 +158,79 @@ I will endeavour to compose my mind. Tomorrow I shall write you more of my melan
 
 For seven months I had not a wish ungratified. My lover was tender, faithful and assiduous. Every rational, every elegant pleasure was procured, to win a heart already devoted to him from sentiment. In vain did Mrs. Fane and Mrs. Frugal advise me to prefer Mr. Blandish, on account of his immense fortune. Blandish was undoubtedly entitled to my gratitude and esteem; and he possessed both. He was handsome, well-bred, and had large possessions. He offered a settlement more than equal to Sir Charles's whole estate; but Sir Charles possessed a soul of more value than all the wealth of India; and that he bestowed on Clara - too, too rich in the possession, but vile and unworthy now even to reflect that she was once so blessed. Often did he, with all the delicacy that our Situation required, urge a marriage. Men of fortune, who want delicacy, are often too precipitate on such occasions. A woman of birth and education must be wooed, and perhaps requires the more courtship, that accident has deprived her of what she had otherwise a right to expect. 
 
-Sir Charles knew the delicacy of my situation, and was the more cautious lest he should wound it. He was, however, relieved from this dilemnia by his rival Blandish, who came to - on purpose to make an offer of himself to me; and, as he vainly thought, to meet with no denial. He imputed all the little repulses I had given him to liveliness, and a little con 
+Sir Charles knew the delicacy of my situation, and was the more cautious lest he should wound it. He was, however, relieved from this dilemnia by his rival Blandish, who came to - on purpose to make an offer of himself to me; and, as he vainly thought, to meet with no denial. He imputed all the little repulses I had given him to liveliness, and a little coquetry, which I had undoubtedly too much the appearance of, though without the least reality; for it ever pained me when a worthy man seemed to feel a passion for me, which I could not return. But I had been too much used to attention and unmeaning gallantry, and thought it favoured of vanity to understand before I was asked. 
 
-quetry, which I had undoubtedly toe 
-s 
-much the appearance of, though without the least reality; for it ever pained me when a worthy man Seemed to feel a passion for me, which I could not return. But I had been too much used to attention and unmeaning gallantry, and thought it favoured of vanity to under 
-ftatid before I was asked. 
-Blan 
-. 
-I 
-( >7), ' i 
-'/ 
-"■ ' ” ifrip i V 
-» ® ® ^ - - V J. «,. < 1. ' * — - 
-- ' V t, : IT’., 
-V ' " A 
-V 
-\ 
-% 
-Blandish had been used to Success, 
-and, well astured my fortune was small, took it for granted I could not withstand a settlement of 2000i. a year, and 
-\ 
-a man of his appearance, when seriously 
-'Offered in fo honourable a manner. 
-/ 
-He made his first proposal in form to Mrs. Frugal, who did not at all difcou 
-» 
-■rage him., Mrs. Sane and She were, 
-$ 
-in a falhionable'manner, very intimate. ' 
-I 
-They pretended great affeblion when ' they met, but generally Spoke very ill 
-I 
-of each other when apart. They concurred, however, to wish me united to 
-I 
-Biarididi, and to disapprove of Sir ‘charles; the one through pique, the other through avarice and vanity : for 
-T r T TM 
-* \ 
-^ ■' i S) 
-i 
-.Diaridiflr had promised and made 'Mrs 
-C,. ■ •. ^ t 
-Frugal many handsome presents. Mrs. Frugal communicated Mr. Blan 
-* 
-dish's proposal to Mrs. Fane, who, 
-, : She thought, had more interell with me Than She could pretend to (though married to my relation.) Mrs. Fane ■ took the first opportunity of opening the affair to me, as we were walking in ■ one of the Oiady walks you have So of ten admired at -- -- -- -- -- -- -- --. 
-I 
-Mrs. Fane had every talent to render her agreeable, could she have divested herself of aileslation and cun 
-S 
-ning; I might add,, a turn for Scandal. 
-/ " I 
-Her principal pique againsl' Sir Charles Worthy was, that he frequently 
-9 
-{ »9) 
-Showed her the absurdity of giving 
-• ♦ f • • "n ** '. 
-'s. 
-way to these propensities, even when he pretended to fall in with her humour. 
-'/., ■ ABUT, 
-as She was not a fool, fly took the hints as dcligned; but instead of a tuending, hated the person who gave them. She had another reasori: She loved 
-r 
-admiration, and generally received it; for Ihc was handsomc in person, ele gant in her manners, and agreeable in 
-4 
-her conversation, when any other fub jesl occurred but the reputation of her 
-s 
-acquaintance. Yet Sir Charles did not 
-% 
-pay her the tribute She thought fo justly her due. He was ever polite to the whole Sex, but never particular to Mrs. 
-I 
-Sane till he got acquainted with me and as that .happened at her house, he 
-'I 
-/ 
-1 
-V 
-( 20) 
-; was forced to pay her a closer atteii • tion; but She had quickness enough to 
-See it was not for her own sake. 
-/ 
-Sir' Charles had, called at my lodg ings just after Mrs. Sane and I had Set out on our little walk; and was informed by my maid that we were gone 
-• •• 
-to -- -- -- -- -- -- -. ' He immediately fol 
-■; but, in the sweet intricacies of 
-/ 
-the place, he Struck into a different walk, only divided from us by a close hedge; fo that before he could join us, he over heard us in the midst of a very interesting conversation, in which his 
-i 
-own name was frequently mentioned, 
-1 
-well as Mr. blapdifh’s. 
-tv/r,.,, 
-{ 21 ).. 
-4 
-C 
-\ 
-\ / 
-Mrs. Fane began, with her usiial vi vacity, to laugh at me for having, at 
-f 
-% 
-once, two Such accomplished lovers; but said. Site thought I need have no 
-difficulty in choosing. I astured her, 
-/ 
-if the cafe was as She alleged, I Should not find the Icait; for, though, a Slrarr • 
-ger to love, I would undoubtedly give 
-*, - _ 
-the preference to Sir Charles Worthy ' 
-L j 
-before any man I had ever yet Seen; — 
-0 
-that I beheld Mr. blandish with an 
-»«• * 
-absolute 'indifference at present, ary further than having; a fense of urati 
-O O f 
-|udc to him for his polite attention 
-when in -- -- -- -- --; and that I thought 
-myself obliged to him for taking the trouble to come fo many miles to see ■. C 3, ' me. 
-( 22) 
-me, as he'was pleased to declare it was his foie motive; but if he came with 
-f 
-any view of love, he musl undoubtedly 
-i 
-meet with a disappointment. 
-i 
-Mrs. Fane Seemed greatly furprizedi 
-and even offended, at this declaration; 
-- — Said all the world mull condemn me, 
-as Mr. blandifh’s chara^er was unexceptionable, 
-his figure advantageous, 
-and his fortune a very capital one. I % 
-told her, all She alleged I was very ready to acknowledge, and esteemed, 
-, ’ 
-myself too much obliged to him, if he 
-I 
-entertained such Sentiments for me as She seemed to think he did, ever to make him So bad a return as to give 
-him 
-V 
-» •• 
-I ^ 
-( 23) 
-him my: hand when I could not entirely " 
-- ■ ' /■ 
-'(devote my heart to him. 
-« 
-/ 
-, ’ I. 
-I need not tell my dear Amelia thi^ 
-t 
-was all called romantic slufs, and that I 
-\ 
-. was heartily laughed at by my com pa nion. I expected it, and was not disappointed. She Said it could proceed from nothing but a prepofseflion in favour of Sir Charles, and spoke many, •. 
-ill natured things of him, which had the effesl file expesied. I resented them with warmth, and Said I had rather 
-m 
-beg with him than accept of Mr. Blan ■ dish with his immehfe fortune.. But,, 
-'J 
-ah, my God! v/iiat was my Surprise when I beheld Sir Chsrles on his knees at my feet, to thank me for this decla 
-C 4 ration !■'' 
-( 24) 
-ration I I was ready to fall do^il with’ Surprise and confusion. 
-« 
-He found it necesfary to quit that posture to Support me, and turning in the 
-I 
-mofi graceful manner to"1mrs. Fane, thanked her, and astured her he Should 
-'ever esteem her as the kindell of his friends, as to her he owed a blesiing he durft Scarcely have hoped to obtain, ■ after a long and painful state of doubt and probation. Mrs. Sane only laughed at his compliment; for though 
-• I 
-1 
-po fie fled of that air effroute fo common in high life. She was a little confounded, and but a little, at having Spoken fo freely. 
-/ ' / 
-'It 
-3 
-p 
-f ( 25) 
-^ ■ 
-j7 - X \ 
-=-■• * * »•-', • - 
-^ I ^ 
-»■, ‘ 
-( ' * ■ 
-* i 
-It was in vain for me, after this, to deny the preference I had acknowledged 
-for Sir Charles. I, upbraided 
-'*. ' 
-him with having listened to a private 
-/ 
-I 
-conversation not meant for his ear. He confelfed he had not withdrawn when he heard his own name uttered in the sweetest sounds. And was it posiible, my lovely Clara, I could withdraw when you deigned to make such a declaration? But I will not repeat it, lest 
-% 
-I Should take from! its grace. No, I will live upon if all my future days, 
-and, like a miser, keep it locked in 
-\ 
-my bosom, even from my Clara, if any 
-» 
-thing there can be kept from her. 
-Even 
-, ( 26) ■ 
-Even the Sentiments of esleem and gratitude, you profess for Mr. blandish, 
-f 
-enhance my love and your value. I 
-cannot, I will not doubt, after what 
-\ 
-you have Said — No, Madam, Show Mr. Blandish the diftinslion his merit deserves. He has Shown himself a man of tasle and worth, by wishing to unite himself to all that is amiable and worthy in woman. I Shall never count Mi. Blandifh a weak man.' He mull have sense and tasle who can disfinguish them., Your beauty, great as it is, is your smallest attraflion. The elegance 
-of your make, the brilliancy of your 
-/ 
-complexion, or even the soft, yet radi 
-f 
-ant, lustre of your eyes, ’which speak the sentiments of your gentle soul; 
-• ' N. these 
-/ 
-. () 
-t 
-$ 
-these, my Clara, and now let me hope only my Clara, these, nor the aethereal 
-beauties of your mouth, could never 
-* 
-captivate a fool, or mere sensualist: 
-t 
-The man who wishes to poffess you — frown not, my Clara — must wish to pofsefs your soul; — it Speaks the language of angels in your features. 
-This conversation, too flattering as it was, pasted as he attended me homei For Mrs. Fane, to get rid of her em barrassment, left us to make Some visits, 
-I 
-‘ where probably She turned into ridicule a young woman, who preferred the 
-i 
-most accomplished and fensible man 1 of his age, with more than a compe 
-I 
-tence, to a yery deserving and amiabje 
-man,,, 
-■ / ^ ^. r ■. 
-() 
-I 
-fnrn, but'not of equal fense or accom' piishments, with a dazzling fortune. Yeti was doomed even in this choice, which virtue must approve, to misery. 
-Ha! shall I say it was an overruling fate that doomed me to fufscr every, 
-Species of woe? Or was it the will of 
-i k 
-Heaven to try me, to bring me to a 
-: i * 
-fense of my weakness, and humble me lower than the dull? Reflefiion, how 
-T 
-p dreadful to a mind tortured by guilt F 
-V 
-yet who dare banish it? Will if not recur 
-at a more dreadful hour? Adieu! 
-* 
-'9 
-While this heart vibrates, it Shall be faithful to Amelia. your’s, 
+Blandish had been used to success, and, well assured my fortune was small, took it for granted I could not withstand a settlement of 2000l. a year, and a man of his appearance, when seriously offered in so honourable a manner. He made his first proposal in form to Mrs. Frugal, who did not at all discourage him. Mrs. Fane and she were, in a fashionable manner, very intimate. They pretended great affection when they met, but generally spoke very ill of each other when apart. They concurred, however, to wish me united to Blandish, and to disapprove of Sir Charles; the one through pique, the other through avarice and vanity: for Blandish had promised and made Mrs. Frugal many handsome presents. Mrs. Frugal communicated Mr. Blandish's proposal to Mrs. Fane, who, she thought, had more interestlwith me than She could pretend to (though married to my relation.) Mrs. Fane took the first opportunity of opening the affair to me, as we were walking in one of the shady walks you have so often admired at -----.
+
+Mrs. Fane had every talent to render her agreeable, could she have divested herself of affectation and cunning; I might add, a turn for scandal. Her principal pique against Sir Charles Worthy was, that he frequently shewed her the absurdity of giving way to these propensities, even when he pretended to fall in with her humour. But, as she was not a fool, she took the hints as designed; but instead of amending, hated the person who gave them. She had another reason: She loved admiration, and generally received it; for she was handsomc in person, elegant in her manners, and agreeable in her conversation, when any other subject occurred but the reputation of her acquaintance. Yet Sir Charles did not pay her the tribute she thought so justly her due. He was ever polite to the whole sex, but never particular to Mrs. Fane till he got acquainted with me and as that happened at her house, he was forced to pay her a closer attention; but she had quickness enough to see it was not for her own sake. 
+
+Sir Charles had, called at my lodgings just after Mrs. Fane and I had set out on our little walk; and was informed by my maid that we were gone to -----. He immediately followed; but, in the sweet intricacies of the place, he struck into a different walk, only divided from us by a close hedge; so that before he could join us, he over heard us in the midst of a very interesting conversation, in which his own name was frequently mentioned, as well as Mr. Blandish's. 
+
+Mrs. Fane began, with her usual vivacity, to laugh at me for having, at once, two such accomplished lovers; but said, she thought I need have no difficulty in choosing. I assured her, 
+if the cafe was as she alleged, I should not find the least; for, though, a stanger to love, I would undoubtedly give the preference to Sir Charles Worthy before any man I had ever yet seen; - that I beheld Mr. Blandish with an absolute indifference at present, any further than having; a sense of gratitude to him for his polite attention when in ------; and that I thought 
+myself obliged to him for taking the trouble to come so many miles to see me, as he was pleased to declare it was his sole motive; but if he came with any view of love, he must undoubtedly meet with a disappointment. 
+
+Mrs. Fane seemed greatly surprized, and even offended, at this declaration; - said all the world must condemn me, as Mr. Blandish’s character was unexceptionable, his figure advantageous, and his fortune a very capital one. I told her, all she alleged I was very ready to acknowledge, and esteemed, myself too much obliged to him, if he entertained such sentiments for me as she seemed to think he did, ever to make himsSo bad a return as to give him my hand when I could not entirely devote my heart to him. 
+
+I need not tell my dear Amelia this was all called romantic studd, and that I was heartily laughed at by my companion. I expected it, and was not disappointed. She said it could proceed from nothing but a prepossession in favour of Sir Charles, and spoke many ill-natured things of him, which had the effect she expected. I resented them with warmth, and said I had rather 
+beg with him than accept of Mr. Blandish with his immense fortune. But, ah, my God! was my surprie when I beheld Sir Chsrles on his knees at my feet, to thank me for this declaration! I was ready to fall down with surprize and confusion. 
+
+He found it necessary to quit that posture to support me, and turning in the most graceful manner to Mrs. Fane, thanked her, and astured her he should ever esteem her as the kindest of his friends, as to her he owed a blessing he durst scarcely have hoped to obtain, after a long and painful state of doubt and probation. Mrs. Fane only laughed at his compliment; for though 
+possessed of that air effronte so common in high life, she was a little confounded, and but a little, at having spoken so freely. 
+
+It was in vain for me, after this, to deny the preference I had acknowledged for Sir Charles. I upbraided him with having listened to a private conversation not meant for his ear. He confessed he had not withdrawn when he heard his own name uttered in the sweetest sounds. And was it possible, my lovely Clara, I could withdraw when you deigned to make such a declaration? But I will not repeat it, lest I should take from its grace. No, I will live upon if all my future days, and, like a miser, keep it locked in my bosom, even from my Clara, if any thing there can be kept from her. Even the sentiments of esteem and gratitude, you profess for Mr. Blandish, enhance my love and your value. I cannot, I will not doubt, after what you have said - No, Madam, shew Mr. Blandish the distinction his merit deserves. He has shewn himself a man of taste and worth, by wishing to unite himself to all that is amiable and worthy in woman. I shall never count Mr. Blandish a weak man. He must have sense and taste who can distinguish them. Your beauty, great as it is, is your smallest attraction. The elegance of your make, the brilliancy of your complexion, or even the soft, yet radiant, lustre of your eyes, which speak the sentiments of your gentle soul; these, my Clara, and now let me hope only my Clara, these, nor the etherial beauties of your mouth, could never 
+captivate a fool, or mere sensualist: The man who wishes to possess you - frown not, my Clara - must wish to possess your soul; - it speaks the language of angels in your features. 
+
+This conversation, too flattering as it was, passed as he attended me home. For Mrs. Fane, to get rid of her embarrassment, left us to make some visits, where probably she turned into ridicule a young woman, who preferred the most accomplished and sensible man of his age, with more than a competence, to a very deserving and amiable man, but not of equal sense or accomplishments, with a dazzling fortune. Yet I was doomed even in this choice, which virtue must approve, to misery. Ha! shall I say it was an overruling fate that doomed me to suffer every, species of woe? Or was it the will of Heaven to try me, to bring me to a sense of my weakness, and humble me lower than the dull? Reflection, how dreadful to a mind tortured by guilt! Yet who dare banish it? Will if not recur at a more dreadful hour? Adieu! While this heart vibrates, it shall be faithful to Amelia. Your's, CLARA. 
 
 ---
 
 ## LETTER IV. 
 
-WHATEVER pain I Suffered, 
-from having made Such a « of my affdsiion, — ra pain ari sing from modesly only, — was more, than compensated by the flattering attention of my lover, and his constant professions of regard and esteem. Yet he often accused me of coldness, and Said I railed unnecessary delays to his 
-f 
-. happiness; Fatal delays indeed! for 
-them I may look as to the Source from 
-\ 
-whence Sprung all my future woes. 
-) 
-S 
-% 
-Eut I will proceed as well as I am 
-'in ttv\r » ttriw rriipl 
-% 
-( « 
-Vs) 
-talk you have assigned me I I was Some time teased by the addressie; Mr. Blandifli, and the'persuasion of two Semale friends:, I ssiould not 1 regarded this little persecution, but L embittered it by every reflection t 
-could possibly throw on the chara •of Sir Charles, to whom I found m) 
-I 
-* 
-% 
-K now So entirely attached, that it 1 
-sbih" 
-I me Senfibly. Yet delicacy Sorbade I to resent it; His character lay open I their malice on one Side only; bi I was a dreadful one to me, now becc 
-A. 
-my own guardian, and he acquair 
-with mv Sentiments in his favour: 
-< 
-( 3t) 
-. ^ 
-r 
-»’ohly to deceive, and that even though' 
-t • 
-he talked of marriage, he was insma 
-What could L do? Is there a wor ' living who could press a man on Su( Subject? If there is, it was not CL Indeed I could not even wish it. I 
-4 
-happy in his conversation, and the t. dereft attention and assiduity; talkedosan union as the ultimate en( 
-t 
-his wissies, but Seemed Searful of offe 
-/ 
-% 
-ing, as I always really felt a confuf 
-and uneasinefs on the subjesf; Th ' is something awful in changing or 
-name and Slate of life, and put 
-/ 
-I “.., r ^ 
-', • - sb' 
-»? * • '( 32) 
-y, it ' h. ._.- k,, 
-But I had a SHU greater objeshon; I 
-• » 
-I, ' * ' ' 
-know not whether to impute it to pride 
-- I » 
-■, or delicacy. I was, you know, entirely destitute of fortune; and though I esteemed Sir Charles, and knew his gene 
-I 
-rous feiitiments, yet I feared his friends might contemn me, tho’ upon an equality 
-with them in point of birth and education. Indeed I wastoo well convinced 
-• * J 
-Some of them did fo, though his beha 
-« 
-viour was ever tender and highly ref 
-I •• ’ 
-peslful. And when I urged these oh 
-$ 
-he constantly endeavoured to Silence me, ^ by saying, he Should have no friends that were not his clara’s, and that he Should look upon himself as polfelfed of the greatest treasure of 
-.ny man in England. Fortune only 
-$ 
-( 33) 
-» 
-V 
-made us happy, as it enabled us to enjoy the goods of this life; and if his was Siifficient to gratify his Clara's wishes,, he was rich enough; nor would he allow me to say I thought myself under 
-V ^ 
-any obligation, but would laughingly say he did it to oblige himself. Sometimes he would allege, I betrayed a narrownels of mind in attributing fo much to fortune, and ask me how 1 Should acl were he in my place. He had 
-t 
-too many powers of perfaalion to leave me long in doubt of his sincerity; and I was too much interefledin the belief 
-t 
-to remain long in doubt. Indeed had it been a deception, it was too flattering to wish to be undeceived. 
-0 
-r 
-I 
-, 1 
-s 
-\ r T. 
-'^ 
-. ( 34 X 
-But Sir Charles was above deceit, lie was everything that I'could have wisiied to find in mortal. He Saw my 
-V 
-. delicacy Struggled with my passion: He wished to obviate every uneasiness, and for that purpose proposed I Should ac -- company him and Mrs. Fane, on a 
-jaunt to S -- -- -- -. Though he did not 
-. absolutely express his hopes from this little excursion, yet it was too plain he flattered himself I would not refule to comply with his ardent wishes, when out of the hurry and buslle of as he knew there was not a little pain in the idea of being talked of and flared at hough I could 
-not be ignorant of his wishes and hopes from the proposed jaunt, and though 
-f 
-V ^ 'a 
-} 
-• .a 
-( 3'5 1 ' 
-• * > 
-?nc)t quite determined to give him my V hand, yet I was in that state of irrelblii aion never unpropitious to a lover, 
-t 
-and consented to go to S -- -- -- -- -- --. In' 
-'. / ' 
-it was then impossible for me, long to hesitate on any request he made me; and if I refused immediately giving him my hand, modesly 
-I « 
-\ 
-and irresolution only withheld it. 
-% 
-f 
-• > 
-Yet I regretted not the delay. I 
-was happy. I had not a wish beyond ■ 
-ahe possession of his heart. My passion 
-f 
-was pure as that of angels. I do not disguise my feelings. With the same 
-candour I now commend, I' mud pre sentiy accuse myseif* We are not 
-I ... 
-virtuous, my dear Amelia, becausc wc 
-( 3^.) 
-I. 
-. _ 
-not feel — Sans Ics pajfions cm ■feroif 
-\ 
-la virtue? — ov^ as Mr. Prior says, Who has elfay'd no danger, gains “no praise.” 
-— No, it is only the amiable, the virtuous maid, who has a heart .to 
-/ 
-feel,, and: Strength of mind to, conquer her passions, that shall wear the palm of victory. The woman incapable of love, is a monster. She who is its 
-victim, must at least have susceptibility. But file only is truly .virtuous, 
-who has been tried, and comes off 
-victorious — yet let her glory not in the 
-V 
-victory. Jt wounds both the heart and the honour in the opinion of the world, — an opinion not to be disregarded— — 
+Whatever pain I suffered, from having made such a discovery of my affection, - a pain arising from modesty only, - was more, than compensated by the flattering attention of my lover, and his constant professions of regard and esteem. Yet he often accused me of coldness, and said I railed unnecessary delays to his happiness. Fatal delays indeed! for them I may look as to the source from whence sprung all my future woes. 
 
-’tis safer, however, and wdfer not t( 
-( ’ )■ 
-V 
-'1 ■ • 
-tiy our 'ftrfcbgth. We are even bid to pray against temptation; to run into ' it is the height of presumption. But' let not thosewho have happily escaped, 
-t 
-or have proved vidorious, boast too much, and defpise the fallen, the unhappy fair, who, from stronger temp .tation, or weaker reliftance, has bei 
+But I will proceed as well as I am in my narrative. How cruel the talk you have assigned me I was for some time teased by the addresses; Mr. Blandish, and the persuasion of two female friends. I should not have regarded this little persecution, but they embittered it by every reflection they could possibly throw on the character Sir Charles, to whom I found myself now so entirely attached, that it hurt me sensibly. Yet delicacy forbade I to resent it. His character lay open to their malice on one side only; but I was a dreadful one to me, now become my own guardian, and he acquainted with my sentiments in his favour. In short, they alledged he addressed me only to deceive, and that even though he talked of marriage, he was insincere. 
 
-come a prey to the arts of vile, ungrateful, seducing man. — She must, indeed, like a bruised reed, or Some lair rose.plucked from its genial bed by some rude hand, and then thrown by to wither — She mult never hope. again to flourish in the fun beam; but pine and die in folitudej happy only in being unnoticed. Never in this 
-f 
-world will her guilt be remitted, tho’ 
-* 
-f 38 r 
-I 
-her undoer may laugh, and" be gay:. 
-She must eat the bread of tears, and" 
-* 
-« 
-drink the waters of afflidion, till the * day when all hearts Shall appear, and be tried by him that made them. Pardon, my dear Amelia, these digressions. They give ease to my heartj 
-'if anything can: indeed it mull never / 
-/ 
-hope for ease in this life. Adieu. 
-'V. 
-C la Riv Ai 
-i • 
-♦ 
+What could I do? Is there a woman living who could press a man on such a subject? If there is, it was not Clara. Indeed I could not even wish it. I was happy in his conversation, and the tenderest attention and assiduity. He talked of an union as the ultimate end of his wishes, but seemed fearful of offending, as I always really felt a confusion and uneasiness on the subject. There is something awful in changing or name and state of life, and putting one's self entirely in the power of a man, however, highly you may esteem him. 
 
-n 
-I 
-^ » s 
-^ ^ 
-^' f 
-i.etter 
-/ • 
-t 
-( 39) 
-J •. ‘ 
-,. pc / _ 
-ft 
-• I 
-% • 
-> 
-J 
-t 
-LETTER V 
-tm 
-/ 
-T L N I consented, my dear ^ Amelia, to accompany Sir 
-Charles to S -- -- -- -, it was in other 
-words conleliting to give him my hand. He had often Said he Should ehoose to 
-4 
-be married there (if agreeable to tyre woman of his choice] as he had a great edeem for doqor nr— — person, of ail others, he would whili to perform the sacred ceremony. You may wonder Mrs. Fane Should be the per 
-Ibn we chose to accompany us; but Sir Charles never rcfcnted the part She 
-t' 
-had acted, and Said he owed her too 
-% 
-( 4-0 } 
-•N 1 
-'/, 
-much to be angry at her. besides he 
-A ^ ‘ ' y 1- ‘ 
-allowed Mr. blandish merifr, nor was 
-C ' • ’ 
-he Surprised, that persons who wished me well, Should advise me to accept of So advantageous a Settlement, with a 
-i 
-man of his character 
-# 
-Fane was the only person ac 
-\ 
-with the true Slate of my heart. Though I had never told her the extent of my asfeslion for Sir ’ 
-I 
-Charles, yet She saw I preferred him' to every other person, and that he devoted his whole time tind attention to me. Even Mrs. Frugal confelfed we Should be too happy for mortals. But, 
-I 
-alas! what is. human happiness? If 
-t ^ • 
-real, how Short its duration? Mine 
-.D '' V - • • ■ 
-I 
-# 
-( 41) 
-i • 
-I 
-Was, indeed, fd perfed, I thought it incapable of increase. Sir Charles 
-i 
-used to chide me for saying folie 
-'>-, 
-faidwe Should, he flattered himself, be 
-much happier, though he never was before half fo much fo. Yet he, as 
-I 
-well as your Clara, had a foreboding # 
-of our fate; for though we now spent our time almost entirely together, except at the few hours allotted for rest — and 'very few would he allow himself— — 
-I 
-we never parted at twelve, or perhaps 
-f 
-one in the morning, though to meet again at nine, but we were both dissolved in tears. 
-My health was impaired by too 
-!• 
-much tenderness, and Sir charles’s 
-^ I 
-> 
-(■ 4*^ 5 ' 
-anxiety totally deprived hill N appetite. We were both asured of cacti other’s constancy, and though we feac ed (bine accident to prevent our union, we looked upon our Situation as out of 
-•!W N 
-the power of chance or fortune, un' les death Should separate us. If I ‘ looked pale at anytime, Sir Charles■ vas alarmed alraost to diilraoion. His 
-t 
-, passion made him unhappy, it was to Such excess. He felt all the anxiety of 
-V 
-love, though undisturbed by doubts;,, for I distembled not my affedion, which' was Sincere and ardent, though pure 
-/ 
-often, indeed accused me of cold ness, and Said if I did not love hira^ better he Should be wretched. He was | 
-not content I felt all the esicem in the 
-w ' ... 
-f 43') 
-% 
-world for him, and preferred him to 
-the rest of his Sex. He. wished me to 
-■» 
-feel an ardour equal to ^ his own, and 
-to confess it; If I felt it, I was un gonfcious of in Yet I was never fo 
-% 
-happy as in his company. In that I was not Singular. It was coveted by all that knevr him, both men and: women. 
-I 
-^ \ 
-t 
-S 
-* My judgement, even my vanity, was gratified by. Such a lover. To be the choice of a man approved by all, was too great a blefiing, had fortune allowed of our union; But why do I say fortune? Heaven saw my unworthiness and punished mypresump 
-k • 
-don, i was doomed to pafs many 
-r 4'4 y .' 
-i, f 
-yeats in miseiy and unavailing tears -- ' years, which I had'.promifed myself 
-were to pafs away in uninterrupted 
-», 
-felicity. And is, felicity the lot of mor 
-% 
-? I think not. But we are not all 
-f 
-doomed to equal misery. It is not' what is inflisled, but what we feel, that renders our lot wretched here. Many Suffer evils as great as mine, I suppose; but are not So truly miserable. My heart could bleed for others. I never could hurt even an infeftt What 
-I 
-1 feel is riot to be described. Few, 
-0 
-very few, can imagine it. The whole world seems an utter blank to me. 
-I lock on every fide for comfort; but | in vain. The object, whose idea formerly gave me So much pleasure, ii 
+But I had a still greater objection; I know not whether to impute it to pride or delicacy. I was, you know, entirely destitute of fortune; and though I esteemed Sir Charles, and knew his generous sentiments, yet I feared his friends might contemn me, tho’ upon an equality with them in point of birth and education. Indeed I was too well convinced some of them did so, though his behaviour was ever tender and highly respectful. And when I urged these objections, he constantly endeavoured to silence me, by saying, he should have no friends that were not his Clara’s, and that he should look upon himself as possessed of the greatest treasure of my man in England. Fortune only 
+made us happy, as it enabled us to enjoy the goods of this life; and if his was sufficient to gratify his Clara's wishes, he was rich enough; nor would he allow me to say I thought myself under 
+any obligation, but would laughingly say he did it to oblige himself. Sometimes he would allege, I betrayed a narrowness of mind in attributing so much to fortune, and ask me how I should act were he in my place. He had too many powers of persuasion to leave me long in doubt of his sincerity; and I was too much interested the belief to remain long in doubt. Indeed had it been a deception, it was too flattering to wish to be undeceived. 
 
-t f5) ' 
-now turned to a Scorpion, or a fuiy, 
-» 
-and drives me to despair. I dread the thoughts of death, in all other afflislions my resource, and consolation. Yeti cannot live. I fear not 
-what I Shall fuifer; but I fear to be 
-1 
-the accuser of my lover. No, he is not my lover. He disclaims me; he calls me from him. — He accuses me, of what? Even he can’t impute a crime to me, but one of which he was the author. But I loved him too 
-I 
-well; despised, all the world for his, sake; despised for him even fame and honour. Thy ways, O my God, are just, but thy judgments are severe— — me to Submit, or remove this 
-hitter cup., 
-i 
-( 4 6 ') 
-\ 
-. 'Muff I fill write, my Amelia? IF 
-I mull I will, but, alas! it cannot amuse you. fareveli: I am ever ' 
-with affeslion,, 
-'■ Yours 
-f 
-vc LA Ao 
-I 
-> 
-♦ 
-✓ 
-t 
-# 
-1 
-4 
-r ^ 
-9 
-t 
-t. ' 
-. 
-'' '. 
-I 
->. * 
-» 
-■» 
-I 
-II - 
-• _ t 
-I 
-I 
-* I' 
-> ■ ' fi 
-giyjegsi 
-^ C 
-t 
-^ V 
-LET E R 
-9 
-y 
-« ' 
-^ ■( 47) 
-t 
-• ^ s r • - - 
-.•. ■ ^. ^. .V' ' 
-■ * 
-/ * 
-t 
-w ' • 
-frif ' ' " - '■ 
-L E T TER VI 
-/ 
-4 
-'N 
-My dear Sister, friend of my heart,, 
-fwt* I MM ^ 
-T ^ 71t H how much pleasure would ^, i accompany you in your Solitude? But, alas! I am not my own. 
-/miftress, I wish you could prevail on 
-< 
-^ yourself to come here. ‘ Indeed, my 
-/ 
-dove, we Should all he glad to see you. accuse not yourself irsthe cruel man 
-* ♦. A / 
-ner you do. I am sure your dieart is 
-4 
-islill as pure as that of an angel. Think 
-mot of that vile Philemon: I could find 
-\ - 
-in my heart to poifoii him. Indeed 
-you are too good and gentle for this 
-world: I always told you fo,; I always 
-1 1. 
-% 
-I 
-( 4«) 
-.thought So. If I could have taught 
-* o o 
-you to be a little of the vixen, like my 
-# 
-you would have been much hap pier. I would fain make you laiigh, 
-but dare not attempt it. Indeed I have 
-cried more than ever I did in my life, 
-•, or than I thought myself capable of 
-doing, Since I received your Sirft letter 
-from N -- -- -- -. But, indeed, you mud 
-come to us, and mult forget that vile 
-I 
-. man, and not think fo badly of your self. I am hire nobody elfe in the world does think ill of you, and you mult 
-. • i 
-not talk nor think of dying. Indeed it will break my heart if you do. 
+But Sir Charles was above deceit. He was everything that I could have wished to find in mortal. He saw my delicacy struggled with my passion: He wished to obviate every uneasiness, and for that purpose proposed I should accompany him and Mrs. Fane, on a 
+jaunt to S-----. Though he did not absolutely express his hopes from this little excursion, yet it was too plain he flattered himself I would not refuse to comply with his ardent wishes, when out of the hurry and bustle of ----- as he knew there was not a little pain in the idea of being talked of and flared at in -----. Though I could not be ignorant of his wishes and hopes from the proposed jaunt, and though not quite determined to give him my hand, yet I was in that state of irresolution never unpropitious to a lover, and consented to go to S------. Indeed it was then impossible for me, long to hesitate on any request he made me; and if I refused immediately giving him my hand, modesly and irresolution only withheld it. 
+
+Yet I regretted not the delay. I was happy. I had not a wish beyond and possession of his heart. My passion was pure as that of angels. I do not disguise my feelings. With the same 
+candour I now commend, I must presently accuse myseif. We are not virtuous, my dear Amelia, because we do not feel - Sans les passions ou feroit la vertu? - or as Mr. Prior says, "Who has essay'd no danger, gains no praise." 
+
+No, it is only the amiable, the virtuous maid, who has a heart to feel, and strength of mind to conquer her passions, that shall wear the palm of victory. The woman incapable of love, is a monster. She who is its victim, must at least have susceptibility. But she only is truly virtuous, who has been tried, and comes off victorious - Yet let her glory not in the 
+victory. It wounds both the heart and the honour in the opinion of the world, - an opinion not to be disregarded - ’Tis safer, however, and wiser not to try our strength. We are even bid to pray against temptation; to run into it is the height of presumption. But let not those who have happily escaped, or have proved victorious, boast too much, and despise the fallen, the unhappy fair, who, from stronger temptation, or weaker resistance, has become a prey to the arts of vile, ungrateful, seducing man. - She must, indeed, like a bruised reed, or some fair rose plucked from its genial bed by some rude hand, and then thrown by to wither - She must never hope again to flourish in the fun beam; but pine and die in solitude happy only in being unnoticed. Never in this world will her guilt be remitted, tho’ her undoer may laugh, and be gay. She must eat the bread of tears, and drink the waters of affliction, till the day when all hearts shall appear, and be tried by him that made them. Pardon, my dear Amelia, these digressions. They give ease to my heart, if
+anything can: indeed it must never hope for ease in this life. Adieu. CLARA.
+
+---
+
+## LETTER V.
+
+When I consented, my dear Amelia, to accompany Sir Charles to S-----, it was in other words consenting to give him my hand. He had often said he should choose to be married there (if agreeable to the woman of his choice) as he had a great esteem for Doctor N-----, the person, of all others, he would wish to perform the sacred ceremony. You may wonder Mrs. Fane should be the person we chose to accompany us; but Sir Charles never resented the part she had acted, and said he owed her too much to be angry at her. Besides he allowed Mr. Blandish merit, nor was he Surprised, that persons who wished me well, should advise me to accept of so advantageous a settlement, with a man of his character. 
+
+Mrs. Fane was the only person acquainted with the true slate of my heart. Though I had never told her the extent of my affections for Sir Charles, yet she saw I preferred him to every other person, and that he devoted his whole time and attention to me. Even Mrs. Frugal confessed we should be too happy for mortals. But, alas! what is human happiness? If real, how short its duration? Mine was, indeed, so perfect, I thought it incapable of increase. Sir Charles used to chide me for saying so. He said we should, he flattered himself, be much happier, though he never was before half so much so. Yet he, as well as your Clara, had a foreboding of our fate; for though we now spent our time almost entirely together, except at the few hours allotted for rest - and very few would he allow himself - yet we never parted at twelve, or perhaps one in the morning, though to meet again at nine, but we were both dissolved in tears.
+
+My health was impaired by too much tenderness, and Sir Charles’s 
+anxiety totally deprived him of appetite. We were both assured of each other’s constancy, and though we feared some accident to prevent our union, we looked upon our situation as out of the power of chance or fortune, unless death should separate us. If I looked pale at anytime, Sir Charles was alarmed almost to distractions. His passion made him unhappy, it was to such excess. He felt all the anxiety of love, though undisturbed by doubts; for I dissembled not my affection, which was sincere and ardent, though pure. He often, indeed accused me of coldness, and said if I did not love him better he should be wretched. He was not content I felt all the esicem in the world for him, and preferred him to the rest of his sex. He wished me to feel an ardour equal to his own, and to confess it. If I felt it, I was unconscious of it. Yet I was never so happy as in his company. In that I was not singular. It was coveted by all that knew him, both men and women. 
+
+My judgement, even my vanity, was gratified by such a lover. To be the choice of a man approved by all, was too great a blessing, had fortune allowed of our union. But why do I say fortune? Heaven saw my unworthiness and punished my presumption. I was doomed to pass many years in misery and unavailing tears - years, which I had promised myself were to pass away in uninterrupted felicity. And is, felicity the lot of mortals? I think not. But we are not all doomed to equal misery. It is not what is inflicted, but what we feel, that renders our lot wretched here. Many suffer evils as great as mine, I suppose; but are not so truly miserable. My heart could bleed for others. I never could hurt even an infect. What I feel is riot to be described. Few, very few, can imagine it. The whole world seems an utter blank to me. I look on every side for comfort; but in vain. The object, whose idea formerly gave me so much pleasure, is now turned to a scorpion, or a fury, and drives me to despair. I dread the thoughts of death, in all other afflictions my resource, and consolation. Yet I cannot live. I fear not 
+what I shall suffer; but I fear to be the accuser of my lover. No, he is not my lover. He disclaims me; he calls me from him. - He accuses me, of what? Even he can’t impute a crime to me, but one of which he was the author. But I loved him too well; despised, all the world for his, sake; despised for him even fame and honour. Thy ways, O my God, are just, but thy judgments are severe - me to submit, or remove this bitter cup. 
+
+Must I still write, my Amelia? If I must I will, but, alas! it cannot amuse you. Farawell: I am ever with affection, Your's CLARA. 
+
+---
+
+## LETTER VI. 
+
+My dear sister, friend of my heart, with how much pleasure would I accompany you in your solitude? But, alas! I am not my own mistress, I wish you could prevail on yourself to come here. Indeed, my love, we should all he glad to see you. Accuse not yourself in the cruel manner you do. I am sure your heart is still as pure as that of an angel. Think not of that vile Philemon: I could find in my heart to poison him. Indeed you are too good and gentle for this world: I always told you so; I always thought so. If I could have taught you to be a little of the vixen, like myself, you would have been much happier. I would fain make you laught, but dare not attempt it. Indeed I have cried more than ever I did in my life, or than I thought myself capable of doing, since I received your first letter 
+from N-----. But, indeed, you must come to us, and must forget that vile man, and not think so badly of yourself. I am sure nobody else in the world does think ill of you, and you must not talk nor think of dying. Indeed it will break my heart if you do. 
+
+
 I 
 Oh, mv dear, how I do hate men! 
 'I 
@@ -820,25 +273,11 @@ O
 place, though I never found it So when you were here. But I will cry 
 # 
 with you, if I cannot make you laugh. 
-I ' 
-/ 
-% 
-\ 
-■ 
-I 
-J ■ 
-j t 3 
-V 
-I 
-*» 
-1 
-- '■■ - : ■ A Af; AA ^. 
-- ■, cv .^'a te ^ ^ ^ 
-.* 
-• L E T T E R Vir. 
-'
-« 
-I 
+
+---
+
+## LETTER VII.  
+
 T T is imposiible, my dear Amelia ^ can ever meet in this world. You must not think of coming to me, 
 and I cannot go to you. It would not 
 /. ' 
