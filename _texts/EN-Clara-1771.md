@@ -27,33 +27,9 @@ toc:
 - Letter XVI
 - Letter XVII
 - Letter XVIII
-- Letter XIX
-- Letter XX
-- Letter XXI
-- Letter XXII
-- Letter XXIII
 - Volume II 
-- Volume II Letter I
-- Volume II Letter II
-- Volume II Letter III
-- Volume II Letter IV
-- Volume II Letter V
-- Volume II Letter VI
-- Volume II Letter VII
-- Volume II Letter VIII
-- Volume II Letter IX
-- Volume II Letter X
-- Volume II Letter XI
-- Volume II Letter XII
-- Volume II Letter XIII
-- Volume II Letter XIV
-- Volume II Letter XV
-- Volume II Letter XVI
-- Volume II Letter XVII
-- Volume II Letter XVIII
-- Volume II Letter XIX
-- Volume II Letter XX
-- Volume II Letter XXI
+- Letter XIX
+
 ---
 
 ---
@@ -254,631 +230,92 @@ My indisposition, my dear Amelia, prevented my continuing the talk you have allo
  
 Sir Charles begged I would name some day in the next week for our little excursion, nor did he seem displeased when I started, and said, ah, my God! next week! I perceived a glow onhis cheek, and a suppressed smile, which I resented. He threw himself at my feet, and embraced my knees, - “Indeed, my beloved Clara, it must be very soon, or your lover cannot support an existence, which your coldness renders too painful. Could you feel as I do the pain, which every separation, though but for an hour, inflicts, you would not deny me the small request of hastening
 our little journey to S-----. During the few day we shall remain
-there, you will never be a mdment 
-“out of my light. From that day, ** I hope vou will permit me to devote “a whole life of gratitude to my, only not adoted, Clara. Let your gene *' rohty fet you above trilling delays “and obfervaiice.s., Be ashired the “passion of your lover is above what “is commonly called love, as much 
-V 
-“as your merit and beauty transcends“ “of every other woman I know. You will always, my dear Clara, X meet with lovers. Your beauty and “eikiamn^ manners will attrad thou 
-o o o 
-“farids; but very few are capable of “loving you as^you deserve. I think, 
-V“ 
-“possible, I do. I know your, “heart. I see its inmosf recelfes. 
-tie ^ 1-1 A 
-'( '-57 ":) 
-/ ^iilb ‘.'VC/ 
-vcx»is3sff^ka^, ' 
-: • * There is not a Sentiment in it i could ' A wilh changed. ' What a person, \vho judged Superfieially5 would call weakness, 
-I admire, I adore. I See their 
-% 
-“Source; they all grow out of virtue. Let me call all these excelleheies mine. Let me learn to grow as “good and gentle as your heart, by 
-\ 
-eondantly Studying it.” 
-x 
-1 
-% 
-9 
-It would have been a degree of disfi mulation I was ever incapable of, to 
-4 
-pretend not to see the intent of our 
-journey to S -- -- -- -- -- -- --; but he put me 
-« 
-not to the pain of fettling little matters relative to it, or listening to a conver 
-V 
-fation about Settlements, eloaths, or other esfentials to ordinary weddings. 
-'( S?) ■ 
-/*. » 
-\ 
-He had by a Slratagem, the "raoll id ^ nocent in the world, got me to ehoose ' the colour of the coach, and the street in which I Should like a house. There were ten or twelve ladies in company, when he introduced'a conversation on 
-* 
-/ 
-these matters, as if by accident.' Every 
-• / 
-one gave their opinion. To have withheld mine would have appeared par 
-ticijlar and affesled. But I had no 
-\ 
-Sooner given it, than a gentleman present laughed, and Said, his friend Charles was both artful and polite, in his manner of afldng a lady to Six on 
-these minutiae. ■ I Should have been rallied, but Sir Charles relieved me by giving the conversation another turn, 
-I 
-’ and pretending to laugh at my extreme 
-\ 
-■ t 59) 
-fondness for dogs, as I was jusl then earesiing a large Spaniel of General -- -- -- ds. 
-\ 
-How gladly would I forget my woes, and for that purpose Strive to “raise the dead, arresl the nimble foot “of time, and bring back again the hours, the days, the months, the years, 
-“that Saw me happy!” — But now they are gone, I Sigh and grieve that I prized them no more. You bid me dwell on these fond ideas. I could for ever dwell on them, would no others obtrude. But, alas! grief aicd guilt, are Spectres, that will haunt the mind; 
-i 
-and I will confess to you, what I would 
-I 
-- ■ bide ' 
-i * ' 
-m A. • _ 
-( 6o' )• 
-'h ■ ' 
-/ from myself, that I Still love; 
-0' 
-though I cannot esteem, the ungrate 
-, > 
-Sul, the perjured Philemon. Perhaps; to a delicate mind, this is of all others' the' most acute, the moil exquisite, paid; and however hrangeit may ap pear, I cannot even wilh to part with' it. I embrace the idea, that. Scorpion 
-like, Ilinsys me to death. Whenever 
-• * 
-he appears, (alas! he is ever present to' 
-. 'i' - 
-my imagination) he banihies every 
-aether objed. Sometimes I see hinii at my feet, diltolved in tenderness 
-* ». 
-4 
-Sometimes I listen to his words, die 
-V.. ■ 
-tated by reafon’s pure light. some times I see him — hal vrould my eye 
-had been blasted first by lightning' — 
-"■ i'sec" 
-* 
-•: ■/ 
-'a 
-I 
-* » 
-• f - 
-. ' ' 
-i di ^ S:, 
-• ' ♦ I 
-'
-I see him pale and trembling, frantic with Ills pasiion, ad the rhadman, throw 
-himself on the floor, and beat that 
-« 
-0 
-bosom, which I thought the seat qf every virtue, but found harboured nought but cruelty and perfidy. 
-/ 
-These, my Amelia, are the images, the visions, that haunt my solitude. With these is your Clara doomed to 
-pass her future life. Is she now the 
-* 
-'envied fair one? Toujours tranquilk? No; the criminal, extended on the rack, feels less pain than I. — It is 
-i 
-impossible for me to proceed. Philemon has disturbed my peace. May 
-f 
-ibis be undihurbed. Cannot it be So, 
-i ‘V ■ t • 
-• I ./ 
-while 
-« 
-I, 
-( &2 y, 
-t 
-while Clara lives? Die, wretched maid, ' if it will contribute to his 
-I. 
-peace— — my friend, thou sweet 
-‘ N ' 
-(bother of my woes. 
-i 
-"t, - 
-I 
-•. ■ - y 
-. 
-. « ' (4, 
-I 
-\ ’ : 
-■ - - ■ • 'J 
-F \ 
-A 
-* - 
-- ..... -. ... V, •,, 
-'...., ‘ ^ h’ 
-\ 
-• • 
-. ' C ' ■ 
-\ 
-- ' ■ ■■■ ■■ C' 
-■' '■•; ■'■■ '■ t^v '^ 'V ■ 
-. « 
-• • ' 
-t 
-4 • ■ \ 
-'- - - ■ ' - i ' '~- 
-i, » n •; - ■, 
-V ’ N * ' ' 
-V 
-»' 
-f ' • 
--■ V f 'v vsf b ■-; ■ ■ *■ 
-if'. ’ • ' '.. ^ 
-\ 
-• i •* ' 
-■ * ■ ■ ^ 
-. V V - ' ' -3 
-. > - J • : .• 
-% 
-ft 
-VE ’V A i’ : C 'b -■ =, '. V 
-I 
-% 
-• ' I ‘ • 
-b b 5* p 4 rb. -, > V ‘ 
-. / LETTER 
-’ i -4 ^2jt. tr “'■ r - — ^ ’ ‘ ■ ■ • ' t * 
-■ ■ r' ' • ■; .j..., ..., ■ a »., r. j. .1 
-, ■ .•< es ■); 
+there, you will never be a moment out of my sight. From that day, I hope vou will permit me to devote a whole life of gratitude to my, only not adored, Clara. Let your generosity set you above trifling delays and observances. Be assured the passion of your lover is above what is commonly called love, as much as your merit and beauty transcends that of every other woman I know. You will always, my dear Clara, meet with lovers. Your beauty and engaging manners will attract thousands; but very few are capable of loving you as you deserve. I think, if possible, I do. I know your heart. I see its inmost recesses. There is not a sentiment in it I could wish changed. What a person, who judged superficially, would call weakness, 
+I admire, I adore. I see their source; they all grow out of virtue. Let me call all these excellencies mine. Let me learn to grow as good and gentle as your heart, by constantly studying it.” 
 
-^ "I ^. •. ■. ^ A, ' '■■ ^ 0 io 
-- •■ :.. s., I.... • - - 
-• - ' • 
--' _■; ^. -. *.; * N. ■■ •; ^ ‘ • V, - - 
-'' '■- - •,. ■. : ' ■ ^ A'' 
-X 
-', ■, 
-; L E T T E R IX ’ 
-• *. i 
-0 
-% 
-.Dear good Amelia, 
-9 
-A Week has elapsed Since I Sent 
-you a letter. I wrote manyj but So incoherent, So full of a name 
-you will not hear with < patience, that 
-/ 
-9 
-. I burned them, after having Steeped 
-L 
-them in my tears. Fidelia is gone to 
-« 
-L — — for a few days. Indeed She. 
-wants amusement; but she is gone on 
-\ 
-I 
-businefs. Do you know I am glad of her absence; sensible and polite as She is, her company is now tedious 
-■'r' S ‘ 
-ahrl irtohfinc* fnr fhp pnrlpavmirji, tr» 
-\ 
-€ 64 S 
-.... %, y ^ - .} 
-amure, anddifpell Sorrows, which will 
-'. **’ ' j4 
-• ■ ^ 'J, r ' ', 
-not admit even alleviation. 
-I 
-I '. I ■ 
-/ 
-»• 
-* ' ^ «• * 
-V ■ - ■ ■ ■ " ■ i' • ^ ■ 
-You, as well as Fidelia, think the 
-% 
-mi •. ' ^ * 
-'\ 
-recital of Sir Charles worthy’s' pas fioii for me mitigates my remorse 
-• how little do vote know of the 
-t • • • 
-heart! It enhances my grief. It Shows me how unworthy I ever was of the 
-f 
-opinion my partial friends entertained of me. It plainly convinces me heg ven had doomed me to suffer; else 
-I 
-why Such a, train of concurring cir 
-‘.t 
-cumftanc.es to involve one poor wretch 
-^! 
-'in misery? — Yet the fun Shines as 
-'bright to every eye but mine, as when 
-\ 
-it seemed to rise but to light me to joy. 
-( 65) 
-Such was my Situation, Such appeared every objed in nature, after I had consented to accompany Sir Charles 
-to S -- -- -. Everything told me I was 
-happy. Did all nature enter into a combination to deceive one wretched liaaid? The attention of my lover is " not to be described. It can only be imagined by her, who, like Clara, was 
-once the objed of love and attention 
-. # • 
-) 
-to the moll amiable, fensible and re sined of mankind; postessed of every, art to please, and employing all those arts to render happy, the moll lost and wretched now, but then the mosl supremely bleh of woman kind. 
-I 
-« 
-I 
-vol. I. F The 
-(T 66' )• 
-othe day for our journey was fixeu for the Monday fortnight, after the 
-s 
-conversation repeated in my last. It 
-. was then Wednesday. The hours Seemed to roll away in bliss. Sir Charles upbraided them with ilowness, 
-but endeavoured to make them pas? 
-/ * 
-cheerfully and ratidnally by every agreeable amusement. We had players 
-at — -- -- --. He madp me frequent 
-/ 
-the theatre, accompanied by the beauti 
-0 
-full Cleora, and Aspasia, and Mrs. Fane, who was my inseparable companion on all occasions. 
-% 
-We had a very fine concert, to which ray love of music had induced 
-I 
-me to subscribe, just before. Sir 
-I 
-{ 67) 
-'‘ 'C 
-Charles's arrival. Though we partook 
-\ 
-of all these pleasures, and relished( 
-( 
-yet there was none of them any 
-/ 
-way equal to that I received from the conversation of my lover, ever Sensible, ever Soothing and agreeable. — He too confelfed he was most happy, when, uninterrupted, he enjoyed "the company of his millrefs, and his friend, .and often prevailed on me to be denied to all others. Good God! with what manly, sensible, yet Soft and tender expressions of fondness did he entertain his Clara! What warm senti 
-% 
-of esteem and gratitude did he ■ express'for her, and how highly, as lie said, was he obliged to her for preferring him .to all • her other lovers. 
-4 
-i } 
-'* *• ST ' '' ' 
-“'Mevef, would he say, 1lidtrahy con: 
->:; :.. ■■ ■; 1; i ■■ 
-dud of mine designedly give ybii 
-^ j ^.; ■; 
-“to repent, or regret the pre ^vference; it Shall be my whole Study “to deserve it.” Too well did he, deserve every preference, every diff 
+It would have been a degree of dissimulation I was ever incapable of, to pretend not to see the intent of our 
+journey to S-----; but he put me not to the pain of settling little matters relative to it, or listening to a conversation about settlements, eloaths, or other essentials to ordinary weddings. 
+ 
+He had by a stratagem, the most innnocent in the world, got me to choose the colour of the coach, and the street in which I should like a house. There were ten or twelve ladies in company, when he introduced a conversation on these matters, as if by accident. Everyone gave their opinion. To have withheld mine would have appeared particular and affected. But I had no sooner given it, than a gentleman present laughed, and said, his friend Charles was both artful and polite, in his manner of asking a lady to fix on these minutiae. I should have been rallied, but Sir Charles relieved me by giving the conversation another turn, 
+and pretending to laugh at my extreme fondness for dogs, as I was just then carassing a large spaniel of General D-----'s. 
 
-tinslionbut I was doomed to ever lading regret. 
-The Saturday before our intended 
-s % 
-journey, Mrs. Fane came to me, and made many apologies that She could not accompany us on Monday, as the Earl and Countess of E -- -- -- -- -- - were 
-7 ' 
-to dine with her. They had engaged them Selves to Mr. Fane, and She could 
-^ • y 
-not postibly now deny them. As She 
-* ' * .... 
-_)aiew not the design of our going to 
-p _ 
-/ 't - 
-( 69) 
-S “—, there was nothing in this which could give offence, nor was it meant to offend. — Yet, my dear Sir Charles Seemed more chagrined than I had 
-O V 
-ever before Seen him. He was met 
+How gladly would I forget my woes, and for that purpose strive to raise the dead, arrest the nimble foot of time, and bring back again the hours, the days, the months, the years, that saw me happy!” - But now they are gone, I sigh and grieve that I prized them no more. You bid me dwell on these fond ideas. I could for ever dwell on them, would no others obtrude. But, alas! grief and guilt are spectres, that will haunt the mind; and I will confess to you, what I would hide from myself, that I still love, though I cannot esteem, the ungrateful, the perjured Philemon. Perhaps, to a delicate mind, this is of all others the most acute, the most exquisite pain; and however strange it may appear, I cannot even wilh to part with it. I embrace the idea, that, scorpion like, stings me to death. Whenever he appears, (alas! he is ever present to my imagination) he banishes every 
+aether object. Sometimes I see him at my feet, dissolved in tenderness. Sometimes I listen to his words, dictated by reason’s pure light. Sometimes I see him - ha! would my eye 
+had been blasted first by lightning - I see him pale and trembling, frantic with his passion, act the madman, throw 
+himself on the floor, and beat that bosom, which I thought the seat of every virtue, but found harboured nought but cruelty and persidy. 
 
-lancholy for the whole day. He begged me to let off on Sunday evening, 
-attended by my maid, or on Monday morning; forhe dreaded Something from this delay., “I am not Superfiitioiis, 
-ft 
-“Clara, but indeed I have the mod “melancholy forebodings.” As the delay was but for a day, I thought his uneasmefs then unreasonable; I taxed 
-f b ■ ' 
-, him with impatience on Such a trifling 
-» V '' 'b ^. • 
-.matter: but he was not to be recon 
-I.. \ ' '.., -. 
-‘ o ■ ■ ■ - - ■ ‘ 
-died to the delay on any account. He 
-V'ste CV.. '■ ■'... vy; : ■>, 
-was even vexed at me for beahng it 
-'i • A ‘ ^ '■ ". '■ ■ '■ 
-..... - --.. ..... 
-• - V 
-# 
-( 70) ’ 
-• »• _ 
-\ 
-with more patience, and often Said I. did not love, I did not even pity him I Should have resented this impatience 
-more, but that I must see it proceed 
-/ 
-from a passion too ardent, which it was impossible for me to blame. 
-f 
-I at length prevailed on him to be, or at lead appear to be content with the delay, which was only till tuesday; and we passed Sunday and Monday in the tenderest and most .endearing manner, 
-only to be imagined by those who have felt the force of a virtuous 
-and ardent love. He said no time 
-/ 
-could ever change or lesten his fenti rnents of love and esteem, as he every 
-f 
-day difeovered some new cause to in 
-r ‘ 
-9.. 
-f 7 *- d 
-crease them, and that his reason was even more my Slave than his pasiion. 
-Too true and too flattering I ever found his assurances. He never ceased to love me. But I mull defer the event to another letter. Adieu. 
-■ A 
-■ CL A, ra - 
-'' ' ' ' ■ 
-'
-f 
-. D ^ I i " ■.. / " ‘ 
-i ^ ‘. ■ I 
-« • 
-♦ ' 
-^ - * t * ’ 
-• I 
-\ 
-'V" " ' ■ I ■ 
-f 
-‘ V C 
-» •. • " 
-V 
-r ■ * ^ 
-• \ 
-* - • ' ^ 
-V ■ ^... ' ■ • ^ ^ 
-^ • * 
-* • 
-f4 : LETI 
+These, my Amelia, are the images, the visions, that haunt my solitude. With these is your Clara doomed to pass her future life. Is she now the envied fair one? Toujours tranquille? No; the criminal, extended on the rack, feels less pain than I. - It is impossible for me to proceed. Philemon has disturbed my peace. May this be undisturbed. Cannot it be so, while Clara lives? Die, wretched maid, if it will contribute to his peace. - Adiue! my friend, thou sweet bother of my woes. 
 
-i 7* D 
-Arithr ■ •.., Offt ^£3 woh 
-■ - ■ N ybilh' 
-■>N 
-LETTER X 
-•, .... '• 
-C ■ i ■■ '' ■ ■ -■'. ■ -. 
-0 
-< 
-f '• ■ — ... !<' 
-'A T length, my friend, the day d. X arrived, which Sir Charles Said. / would malce him the happiesl of hui 
+---
 
-man race. Vain words! Is it for ' mortals to exped happiness here? I too flattered myself I Should have tailed of the cup of pure and unmixed felicity, by rendering the worthiest of his Sex happy, as I was bound to do 
-, t 
-both by Sentiment and gratitude. I 
-I 
-^. % thought I Should have known no other 
-o ^ 
-'care, but that of pleasing a person willing to be pleased, because he loved 
-her who endeavoured to please him. 
-/ 
-/ 
-f( 73) 
-/ 
-How easy the talk! how delightftil that 
-Study 1 
-I 
-* % 
-( 
-Sir Charles had, in imagination; lived over ages of refined delight with his Clara. He had given up the gay, licentious world, to which he was for merly but too much attached, for a Scheme of pure and rational pleasure, 
-V 
-not secluded from the world, but 
-M 
-mingling with it in every innocent 
-/ 
-amusement; but not, like the gener' 
+## LETTER IX.
 
-rality of the gay and fashionable, seek 
-/ 
-; foreign joys and foreign pleasures, and Shunning the only place where, true joy is to be found. He Seemed, 
-f 
-indeed, to think he Should be So at 
-4 
-tached to his Clara, as to wish to give 
-r 74) 
-tfp ail the world for her alone, and 
-'\ 
-only feared I would not make the? Same Sacrifice for him, With Such 
-flattering profpesis was I deluded to 
-\ 
-the brink of a precipice, from which I fell, and dashed my hopes to pieces. 
-j 
-My dear, and ever dear Sir Charles' Game early on tuesday morning to attend, to condud his Clara to S -- -- -- -- -- -, 
-% 
-and, he hoped, to happiness. We had ■ dined and spent the evening with Mrs. Fane. She promised to be punsiual to her hour on Tuesday, and Said Sir Charles resented her late disappoint = fo much, She believed he was ’ 
-V 
-going to S’ — — to be married., The 
-( n) 
-colour on my cheeks told her too plainly She was not mistaken. She whispered Sir Charles, She could now, ^ indeed, forgive his petulance, and would, for Mr. fane’s sake be exast * tomorrow, as she did not doubt but he would revenge it on him, as he could not well challenge her. Sir 
-Charles fussered her to rally him as 
-* • 
-much as She pleased, and only prayed her not again to put his patience to So < Severe a trial. But, alas! his trial was' not to come from that quarter:. 
-I 
-'I'he good Lady Worthy, his mother,, had been long ill, and though the Doctors gave him hopes, he feared 
-much She would not recover. Hi( 
-() 
-■. / 
-lears wcre'itoo well grounded, and they; 
-proved to be So at a time, ieasl dreads 
-ed, but mosl dreadful. For we were 
-, 1 ■ ' ' ■ ■ ' 
-jiill ready to Step into his coach, which waited for us, when a servant arrived 
-with the news that she was fpeechlessj 
-% 
-and would probably be dead before 
-he could reach D -- -- -- --, though but a 
-Short mile distant. 
-I 
-Never was Son more warmly attached, or with more reason, to a mother. Lady Worthy had pasfed 
-through life with universal approba,, 
-/ 
+Dear good Amelia, 
 
-tion, from all the fensible and difeern ing part of her acquaintance. She 
-had performed all the Social and rela 
-^ * \ 
-live duties of friend, wise, and mother, 
-to 
-I 
-/ • / 
-. ( 77) 
-to fiy all in ail, like a chrilliari; and 
-had been So happy as to perform them 
-*) 
-for persons deserving of her esteem, and who returned the favour with an equal portion of that refped and reverence So juslly due to her. — Her,, 
+A Week has elapsed since I sent you a letter. I wrote many but so incoherent, so full of a name you will not hear with patience, that I burned them, after having steeped them in my tears. Fidelia is gone to L----- for a few days. Indeed she 
+wants amusement; but she is gone on business. Do you know I am glad of her absence; sensible and polite as she is, her company is now tedious and irksome; for she endeavours to amuse, and dispell sorrows, which will not admit even alleviation. 
 
-health would not allow her to think of being present at Sir charles’s nuptials; 
-i 
-but they had the sanction of her approbation. 
-/, II 
+You, as well as Fidelia, think the recital of Sir Charles Worthy’s passion for me mitigates my remorse. Ah, how little do you know of the heart! It enhances my grief. It shows me how unworthy I ever was of the opinion my partial friends entertained of me. It plainly convinces me Heaven had doomed me to suffer; else why such a train of concurring circumstances to involve one poor wretch in misery? - Yet the sun shines as 
+bright to every eye but mine, as when it seemed to rise but to light me to joy. 
 
-It is imposiible for me to give any 
-'/ 
-adequate defeription of the grief an’d despair of Sir Charles on this occasion. The loss of an amiable and worthy friend and mother, though long cx; 
-i ' ■ 
-pecled, mufl; prove a severe shock to a 
-i 
-delicate and susceptible mild But to 
-/ 
-( 78) 
-have the completion of his hopes delay ed, as it necestarily must'be from every 
-tfi 
-regard to decency and punstilio, fora confidetable time, was a dreadful stroke to a man who could not brook the 
-I 
-I 
-delay pf a single day with tolerable pa tience. He must now even be deprived of the company and conversation ..of his Clara for some days, appropriated to mourning. 
-'• \ 
-It would be a ridiculous afsesiatioii. to say, I was not fensibly touched with the disappointment. I had none 
-f 
-of those eager wishes Sir Charles ex 
-prelfed for our union; but it was im* 
-¥ 
-posiible, loving and esteeming him as 
-■ I did, but I muh feel feverejy for his 
-♦ 
-# 
-\ '. 
-f 79). 
-\ 
-/ 
-apparentdislrefs on this occasioiiis But 
-why do'i say apparent? It vras real.' 
-# 
-He felt more than he was able to ext 
+Such was my situation, such appeared every object in nature, after I had consented to accompany Sir Charles to S-----. Everything told me I was happy. Did all nature enter into a combination to deceive one wretched maid? The attention of my lover is not to be described. It can only be imagined by her, who, like Clara, was once the object of love and attention to the most amiable, sensible and resined of mankind; possessed of every art to please, and employing all those arts to render happy, the most lost and wretched now, but then the most supremely blest of woman kind. 
 
-press. He Saw I was touched with his 
-^ \ 
-iinaffesled Sorrow, and begged of Mrs. Fane to amuse me during his absence. 
-He iritreated me to go to Springvalc, to Mrs. Frugal, as the air, and absence from the place we conversed in together, 
-would probably mitigate the grief I 
-'V 
-could not, nor did not attempt to conceal for his afflihioh. He only Sfaid to give diis advice, and to entreat me (on 
-« 
-his knees) to admit no, change of sentiment, 
-and to beg my.promife never » 
-to be any other man’s, which I readily 
-\ ' > 
-• gave, and received his in the tendered 
-and folemneft manner. 
-% 
-"■ ivyf re 
-( 8o) 
-Mrs. Fane was affected even to thg, 
-^ 0 
-Shedding of tears, and confested we 
-/ 
-were formed for each other; and Should any accident disunite us, it 
-would destroy the fairest prospesl of 
-* 
-happiness to which two persons ever looked forward. It was only in prospect we were to enjoy it. Gay Scenes were 
-Shown to our Sight, but we were not to call them our own. They were, indeed, Shown clearly; nay I was made to believe I was in posteffion of every good. But what is Sublunary bliss? 
-less real than a dream. His a Shadow, 
-/ 
-which we follow, till it leads us to de fouslion. Ye who look upon yourselves as arrived at the Summit of hu *nan felicity, who think the founda - 
-I ♦ 
-% 
-'* it 
-f ^ ' 
-t V ' 
-hi ^ / 
-() 
-• ♦ 
-/■. ' ' r r y 
-tihn of your happiness cannot be Shaken 
-• ‘ -. ' • I 
-* ' r i • 
-or removed, beware of that fatal fecu 
-%. - _ ■ ■ A rity, which only Serves to embitter 
-C ' i, V • 
-misery. Know, vain mortal, that the Summit of earthly bliss is situated on the brink of the precipice of despair. 
-If we fall in the humble vale, we"scarce 
-perceive it; but if from the lofty tower 
-. * 
-we are dashed to atoms. 
-% 
-* 
-» 
-%. 
-But Clara was not. yet fallen into 
-/ • * 
-the abyss of despair. No, Ihe had 
-IA * * 
-tailed of the bitter draught, which was to be her future sullen ance. 
-t 
-'C... 
-... ^ 
-grieved for Lady Woriliy. 1 regretted the absence of mv lover, though 
-O • I J ^ 
-\ 
-( 32) 
-i ^ ^ ^ t. 
-) 
-but for a week. I now began to find 
-t 
-how necestary he was to my happiness. Could i then have foreseen an eternal Separation! But can mortals see the 
-dark records of fate? No; it is a page 
-\ ' 
-never yet opened to human eyes. Heaven, in pity to our misery and 
-i 
-weakness, conceals that from us, which 
-s 
-we can neither avoid nor remedy. Or 
-I 
-perhaps — but Shall I, the moil fallen and frail of mortals, attempt to scrutinise or explain the inexplicable ways of Providence? Let me rather submit, and say 
-1 
-“Whatever is, is right.” — 
-Yet I have sometimes dared to think, that what we call fate or desliny depends more on ourselves than we 
-( 83) 
-I 
-. i' (.. 
-■ ■ K... t 
-at first perceives that, in the re 
-- of Heaven, it is decreed, ' if we 
-ashn Such a manner, we Shall incur 
-/ 
-Such consequences. If this is not fate, 
-N \ 
-where is our freewill So much boasted 
-I 
-of? Yet I Seemed to be doomed and destined to misery. — Could evil have been the consequence of Lady worthy’s life, of her surviving our union? 
-% 
-1 
-i 
-The ways of Heaven are dark and “intricate: 
-^ X 
-“Puzzled in mazes and perplex’d • “with errors: 
-“Our underftandintj traces ’em in' 
-A O 
-“vain; 
-“Lost and bewilder’d in the fruitless “Search: 
-• *. 
-I 
-w 
-( 84 
-\ 
-“Nor Sees with how much art the 
-windings run, 
-( 
-“Nor where the regular confusion. “ends.” — ’ V A 
-/ 
-I have lengthened this letter beyond what niy own strength, or your patience, will, I fear, bear with. It is painful to obey you, in endeavouring to fupprels an idea ever presenting itself to my imagination. Why Should I banish it? But I will not express my feelings. They hurt my Amelia. Let my own heart be a prey to its sufferings. Farewell. 
-% * 
-your’s 
-C L A R A. 
-X 
-V 
-f 
-( %) 
-/ 
--, ' • N 
-'' te" y • 
-1 
-f 
-I 
-) 
-I ' 
-■ L E T T E R XI 
-t 
-\ 
-/ 
-. 
+The day for our journey was fixed for the Monday fortnight, after the conversation repeated in my last. It was then Wednesday. The hours seemed to roll away in bliss. Sir Charles upbraided them with slowness, but endeavoured to make them pass cheerfully and rationally by every agreeable amusement. We had players at -----. He made me frequent the theatre, accompanied by the beautiful Cleora, and Aspasia, and Mrs. Fane, who was my inseparable companion on all occasions. 
+
+We had a very fine concert, to which my love of music had induced me to subscribe, just before Sir Charles's arrival. Though we partook of all these pleasures, and relished them, yet there was none of them any way equal to that I received from the conversation of my lover, ever sensible, ever soothing and agreeable. - He too confessed he was most happy, when, uninterrupted, he enjoyed the company of his mistress, and his friend, and often prevailed on me to be denied to all others. Good God! with what manly, sensible, yet soft and tender expressions of fondness did he entertain his Clara! What warm sentiments of esteem and gratitude did he express for her, and how highly, as he said, was he obliged to her for preferring him to all her other lovers. 
+
+"Never would he say, shall any conduct of mine designedly give you cause to repent, or regret the preference; it shall be my whole study to deserve it.” Too well did he, deserve every preference, every distinction; but I was doomed to everlasting regret. 
+
+The Saturday before our intended journey, Mrs. Fane came to me, and made many apologies that she could not accompany us on Monday, as the Earl and Countess of E----- were to dine with her. They had engaged themselves to Mr. Fane, and she could 
+not postibly now deny them. As she knew not the design of our going to S-----, there was nothing in this which could give offence, nor was it meant to offend. - Yet, my dear Sir Charles seemed more chagrined than I had ever before seen him. He was melancholy for the whole day. He begged me to let off on Sunday evening, attended by my maid, or on Monday morning; for he dreaded something from this delay. “I am not superstitious, Clara, but indeed I have the melancholy forebodings.” As the delay was but for a day, I thought his uneasiness then unreasonable; I taxed him with impatience on such a trifling 
+matter: but he was not to be reconciled to the delay on any account. He was even vexed at me for bearing it with more patience, and often said I did not love, I did not even pity him I should have resented this impatience more, but that I must see it proceed from a passion too ardent, which it was impossible for me to blame. 
+
+I at length prevailed on him to be, or at lead appear to be content with the delay, which was only till Tuesday; and we passed Sunday and Monday in the tenderest and most endearing manner, only to be imagined by those who have felt the force of a virtuous and ardent love. He said no time could ever change or lessen his sentiments of love and esteem, as he everyday discovered some new cause to increase them, and that his reason was even more my slave than his passion. Too true and too flattering I ever found his assurances. He never ceased to love me. But I must defer the event to another letter. Adieu. CLARA.
+
+---
+
+## LETTER X. 
+
+At length, my friend, the day arrived, which Sir Charles said would make him the happiest of human race. Vain words! Is it for mortals to expect happiness here? I too flattered myself I should have tasted of the cup of pure and unmixed felicity, by rendering the worthiest of his sex happy, as I was bound to do 
+both by sentiment and gratitude. I thought I should have known no other care, but that of pleasing a person willing to be pleased, because he loved her who endeavoured to please him. How easy the talk! how delightful the study! 
+
+Sir Charles had, in imagination, lived over ages of refined delight with his Clara. He had given up the gay, licentious world, to which he was formerly but too much attached, for a scheme of pure and rational pleasure, not secluded from the world, but mingling with it in every innocent amusement; but not, like the generality of the gay and fashionable, seeking foreign joys and foreign pleasures, and shunning the only place where, true joy is to be found. He seemed, indeed, to think he should be so attached to his Clara, as to wish to give up all the world for her alone, and only feared I would not make the same sacrifice for him, With such flattering prospects was I deluded to the brink of a precipice, from which I fell, and dashed my hopes to pieces. 
+
+My dear, and ever dear Sir Charles came early on Tuesday morning to attend, to condud his Clara to S-----, and, he hoped, to happiness. We had dined and spent the evening with Mrs. Fane. She promised to be punctual to her hour on Tuesday, and said Sir Charles resented her late disappointment so much, she believed he was going to S----- to be married. The colour on my cheeks told her too plainly she was not mistaken. She whispered Sir Charles, she could now, indeed, forgive his petulance, and would, for Mr. Fane’s sake be exact tomorrow, as she did not doubt but he would revenge it on him, as he could not well challenge her. Sir Charles suffered her to rally him as much as she pleased, and only prayed her not again to put his patience to so severe a trial. But, alas! his trial was not to come from that quarter. 
+
+The good Lady Worthy, his mother, had been long ill, and though the Doctors gave him hopes, he feared much she would not recover. His fears were too well grounded, and they proved to be so at a time, least dreaded, but most dreadful. For we were 
+just ready to step into his coach, which waited for us, when a servant arrived with the news that she was speechless, and would probably be dead before he could reach D-----, though but a 
+short mile distant. 
+
+Never was son more warmly attached, or with more reason, to a mother. Lady Worthy had passed through life with universal approbation, from all the sensible and discerning part of her acquaintance. She had performed all the social and relative duties of friend, wife, and mother, to say all in all, like a christian; and had been so happy as to perform them for persons deserving of her esteem, and who returned the favour with an equal portion of that respect and reverence so justly due to her. - Her health would not allow her to think of being present at Sir Charles’s nuptials; but they had the sanction of her approbation. 
+
+It is impossible for me to give any adequate description of the grief and despair of Sir Charles on this occasion. The loss of an amiable and worthy friend and mother, though long expected, must prove a severe shock to a delicate and susceptible mind. But to have the completion of his hopes delayed, as it necessarily must be from every regard to decency and punctilio, for considerable time, was a dreadful stroke to a man who could not brook the delay of a single day with tolerable patience. He must now even be deprived of the company and conversation of his Clara for some days, appropriated to mourning. 
+
+It would be a ridiculous affectation to say, I was not sensibly touched with the disappointment. I had none of those eager wishes Sir Charles expressed for our union; but it was imposiible, loving and esteeming him as I did, but I must feel severely for his apparent distress on this occasion. But why do I say apparent? It was real. He felt more than he was able to express. He saw I was touched with his unaffected sorrow, and begged of Mrs. Fane to amuse me during his absence. He intreated me to go to Springvale, to Mrs. Frugal, as the air, and absence from the place we conversed in together would probably mitigate the grief I could not, nor did not attempt to conceal for his affliction. He only staid to give this advice, and to entreat me (on his knees) to admit no change of sentiment, and to beg my promise never to be any other man’s, which I readily gave, and received his in the tendered and solemnest manner. 
+
+Mrs. Fane was affected even to the shedding of tears, and confessed we were formed for each other; and should any accident disunite us, it would destroy the fairest prospect of happiness to which two persons ever looked forward. It was only in prospect we were to enjoy it. Gay scenes were shewn to our sight, but we were not to call them our own. They were, indeed, shewn clearly; nay I was made to believe I was in possession of every good. But what is sublunary bliss? Less real than a dream. His a shadow, which we follow, till it leads us to destruction. Ye who look upon yourselves as arrived at the Summit of human felicity, who think the foundation of your happiness cannot be shaken or removed, beware of that fatal security, which only serves to embitter your misery. Know, vain mortal, that the summit of earthly bliss is situated on the brink of the precipice of despair. If we fall in the humble vale, we scarce 
+perceive it; but if from the lofty tower we are dashed to atoms. 
+
+But Clara was not yet fallen into the abyss of despair. No, Ihe had scarce tasted of the bitter draught, which was to be her future sustenance. 
+
+I grieved for Lady Worthy. I regretted the absence of my lover, tho but for a week. I now began to find how necessary he was to my happiness. Could I then have foreseen an eternal separation! But can mortals see the dark records of fate? No; it is a page 
+never yet opened to human eyes. Heaven, in pity to our misery and weakness, conceals that from us, which we can neither avoid nor remedy. Or perhaps - but shall I, the most fallen and frail of mortals, attempt to scrutinise or explain the inexplicable ways of Providence? Let me rather submit, and say 
+
+“Whatever is, is right.” - 
+
+Yet I have sometimes dared to think, that what we call fate or desliny depends more on ourselves than we at first perceives that, in the records of Heaven, it is decreed, if we act in such a manner, we shall incur such consequences. If this is not fate, where is our free-will So much boasted of? Yet I seemed to be doomed and destined to misery. - Could evil have been the consequence of Lady Worthy’s life, of her surviving our union? 
+
+"The ways of Heaven are dark and intricate; Puzzled in mazes and perplex'd with errors: Our understanding traces 'em in vain; Lost and bewilder’d in the fruitless search: Nor sees with how much art the windings run, Nor where the regular confusion ends." -
+ 
+I have lengthened this letter beyond what my own strength, or your patience, will, I fear, bear with. It is painful to obey you, in endeavouring to suppress an idea ever presenting itself to my imagination. Why should I banish it? But I will not express my feelings. They hurt my Amelia. Let my own heart be a prey to its sufferings. Farewell. Your's CLARA. 
+
+---
+
+## LETTER XI. 
+
 Dear Madam, 
-OU R poor friend has been very 
-ill for Some days. She Seems more composed; but I do not like it. 
+
+Our poor friend has been very ill for Some days. She Seems more composed; but I do not like it. 
 ,. It is not the composure arising from a mindatease; nature rather Seems exhausted with affliflion.. I fear her 
 S 
 grief will terminate in a Settled melan 
@@ -945,42 +382,9 @@ And obedient Servant,
 » 
 • - 
 , FIDELIA. 
-/ 
-> 
-« > • 
-# 
-'<■ 
-'$ 
-b 
-I 
-\ 
-0 
-\ 
-^ \ 
-I 
-I 
-* 
-* 
-- 
-/ 
-/ 
-# 
-I \. 
-p 
-% 
-t 
-* 
-* ' I 
-\ ' 
-LETTER 
-» 
-; ■. 
-« 
-> 
-► 
-'i' ' ...»;., ■ 
 
-LETTER XII 
+
+## LETTER XII. 
 « ♦ • 
 'i y 
 '« 
@@ -1134,36 +538,11 @@ more behold them. Mine Shall Soon
 a 
 Set in endless night. ' Actio! Cara Sorrell a. • 
 CLARA. 
-# 
-I 
-« * I 
-* 
-/ 
-• I 
-/ 
-% 
-, » 
-* 
-\ 
-• A 
-* • 
-A 
-< ♦ 
-Voi. I. H LET( 
-( )■ 
-/ 
-'V N ./ ■ C : ■;, : " ' ^ ± t V 
-, ' 
-* 
-$ * _ ' 
-’I ' 
-. * > • 
-i 
-1 
-letter XIII 
-: ^ 
-# 
-m 
+
+---
+
+## Letter XIII 
+
 130or, clear, amiable Clara! I feared this would be the care. I am to blame; yet what could I do? 
 I 
 I feared a melancholy; tile Doctor 
@@ -1295,13 +674,10 @@ F I D E L I A.
 which are here left out, as they 
 % 
 discover a dijordered imagination and are no ...way ejfential to the ■ hijlory. 
-# 
-I, 
-IL EX T ER 
-V ^ : ( ip) ' 
-• 
-\ 
-i L E T TER XIV 
+
+---
+
+## LETTER XIV. 
 
 » 
 YO lj would not believe it, my 
@@ -1384,59 +760,10 @@ I fo
 • \ 
 ^ r untouched. Once more, adieu. Even madness, which robs me of myself, 
 cannot make me forget my Amelia. 
-'/ 
-■■ tv,, CL A R A. 
-'y » 
-• • 
-f 
-I 
-* I 
-t 
-a ‘ • 
-j • 
-.. .« 
-‘.., ' V 
-- • d’ 
-•/. • 1-. 
-1 y - .T ■ 
-'' N • ' '' '■ 
-■; ■ - V 
-*. 
-f *., 
-• * 
-A' '. 
-, ' % 
 
-« • 
-/ ' t 
-) 
-4 
-‘ ' 'I • • 
-I 
-. ' ■- ■ ■ ■■. 
-v • •, ' h 
-.. - V ‘ • '.A' :. '. ' _ 
-■ '5 r *? 
-V \ ^ ^ 
-^. ■ f “.*;? V ‘. 'r 
-V - - LETTER 
-i 
-v’. • : ' / ^ • — 
-• / «, » 
-r 
-{) ' 
-f i i 
-■ r -- ' s -• 
-- ' ' ..i ' “r -.. ' ' - 
-; 
-• h 
-rf 
-V * ' ■ i s • -, * 
-/ 
-r 
-■ XV 
-f ■. i 
-t 
+--- 
+
+## LETTER XV.
 Written a confidcralle time after the 
 9 
 % • 
@@ -1522,46 +849,11 @@ s
 I thought it impossible any other image Should ever Succeed his. ■ fatalc mistake! which has coil me more tears dian any other event in the unfortunate life of your‘ti'ulytnfprtunatei ■ 
 V 
 e i L 'A ^ R A. 
-# - — • 
-‘’C 
-r'.. 
-*1 
-* 
-\ '. • 
-ft 
-* - ■ V ' 
-r '. * 
-t 
-I • 
-y 
-• * • 
-ff 
-/ 
-• V * 
-% Z 
-», I * “
-V » • 
-I 2 LET.. 
-f ' *. 
-\ 
-• I 
-() 
-r 
-^ - I 
-• -.... - -- 
-■-■ .D i '. VI ■ ^■■ ^ 
-‘ V 
-f • 
-■ V ^ ^., .T ^ S’ ■' C ^ 
-i, ^. ■ v.. ^ 
-XVI 
-4 
-m 
-'' • r 
-i .* 
-^/» y • ^ /* 
-1 ' * 
-i * 
+
+---
+
+## LETTER XVI. 
+
 H E repetition of the astiduities, 
 ^ which gave me fo much ple%fure, would be dull and unintcrefting to my dear Amelia, were it postible for me to repeat them without doing them ins 
 
@@ -1777,47 +1069,11 @@ Truly affe£lionate,
 X. t' • 
 % 
 CLARA, 
-* Sf 
-V ■. r ' -4 
-. ' / 
-h: -- A -.. - 
-'- *1. ‘ i 
-I • ■ • 
-f - 
-* -. *•/ 
-'1 ■ •, ' 
-/ 
-t j ■ •- 
-\ 
-1 
-/ h, 
-• r • • 
-% 
-/ 
-•. ■ ^ - -, .D ^ ^, 
-I 
-t 
-^ \ 
-'* ■. 
-• ^ ^ i 
-* ' ’ 
-I i 
-t •'* *. 
-I • • 
-» : • « ' ' y 
-LETTER 
-* 
-\ 
-■ O < 
-• - >9 
-( >®9) 
-f 
-- / 
-(. • '• 
-I 
-/ 
-/ 
-TETTER XVII 
+
+---
+
+## LETTER XVII. 
+
 T Am hastening, my Amelia, to a period, which I once thought the moil dreadful of my life. I idly imagined at that time, it was out of the power of fate to afflid me more severely, and that adverse fortune had emptied all her quivers in my bosbm. Perhaps I am still to endure more exquisite woes. Perhaps the measure 
 of my fusferings is not yet full. Shall 
 / 
@@ -1948,39 +1204,10 @@ t.
 •*'wretched clara!” Adieu. May my Amelia have peace here and to eter 
 liity. ■ >' • ■ 
 3 L A ^ A. 
-. 
-L 
-1 
-t 
-\ • 
-% 
-% 
-f 
-4 
-\ ^ 
-V 
-, t 
-• ' i. 
-; * \ 
-I 
-4* ■ 
-\ 
-r', ^ _ 
-I 
-t 
-k 
-: ‘ 
-V l4 L E T' 
-'\ 
-'‘ \ 
 
-( 136) 
-'fr '*. V ' __, 
-',. V ■, ■ ■ i v 
-r ■. ‘ ' - ■ - ' 
-'L .- ' V " C * C VI s / 
-» 
-L E T T E R XVIII ’ ‘ 
+---
+
+## LETTER XVIII. 
 J '• 
 1 
 ■ ■- ' ' -».. : 
@@ -2151,73 +1378,30 @@ i
 i 
 / * 
 4 
-jend of the First Volume. 
-* ' ' 
-'✓ 
+End of the First Volume. 
 
-GODFREY F. SINGER MEMORIAL PRESENTED BY 
-MR. AND MRS. JACOB SINGER 
-! 
-V 'y * 
-% 
-\ 
-.; r! 
-k 
-1 
-* • 
-/ • 
-X E T T E .R! 
-Cn — FROM 
-»* 
-M 
-C ij j A R 'Ait 
-\ 
-O R, T HE 
-» 
-E F FU S I O N S, 
-I 
-/ 
-‘ O F THE 
-I 
-% 
-H E A R T. 
-t 
-> 
-^ "^wi'wiii !■ n — wifiim Hill I mit^^fmrnmb II i ... ■■ in, ■l^■l■^l mu. tmmmmmm 
-V O L II 
-\ 
-% 
-0 
-LONDON: 
-Printed for J. Wilkie, No. 71, in St. Paul 
-Church Yard. 1771. 
-* 
-. _ « 
-4 
-/ - • « 
-/ 
-« 
-\ 
-THE 
-* '. 
-EFF US I O N S 
-\' ^ 
-%. 
-« ' 
-OF THE 
-I 
-y 
-H E A R T. 
-'» 
-/ 
-« 
-* 
-w 
-i 
-s ^. 
--- -- -- -- -- -- -- -- -- -- -- -- -- -- -- -- -- -- -- -- -- * 
-t 
-f L E T T E R XIX 
+---
+
+<a id="volume-ii" />
+
+<p class="centered large">LETTERS<br>
+FROM<br>
+CLARA:<br>
+OR, THE<br>
+EFFUSIONS<br>
+OF THE<br>
+HEART.</p>
+
+<p class="centered">VOL. II. </p>
+
+<p class="centered">LONDON:</p>
+
+<p class="centered small">Printed for J. Wilkie, No. 71, in, St. Paul’s<br>
+Church Yard. 1771.</p>
+
+---
+
+## LETTER XIX. 
 # 
 'V 
 1 
