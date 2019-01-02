@@ -315,160 +315,28 @@ I have lengthened this letter beyond what my own strength, or your patience, wil
 
 Dear Madam, 
 
-Our poor friend has been very ill for Some days. She Seems more composed; but I do not like it. 
-,. It is not the composure arising from a mindatease; nature rather Seems exhausted with affliflion.. I fear her 
-S 
-grief will terminate in a Settled melan 
-f 
-choly.' She neither eats, Sleeps, nor 
-Speaks. What Surprises me, She has 
-'' » 
-not even mentioned Philemon for Southeast € 
-xmrai days. 
-J 
-> ■. 
-G 3 A per( 
-( > 
-» 
-/ 
-f A peribn of leis vivacity would’ either have fallen into this state much Sooner, or elfe have entirely forgot her griefs; but She had such a keen 
-sensibility, such an ardent passion, I 
-0 
-4 
-am sure it will end but with life. In 
-\ 
-I think She, cannot, live any time. She was ever the moll delicate, of her sex in every respesl; yet the moll robust, one Should think, could 
-I ^ 
-not have supported what She has endured. 
-4 
-% 
-J have more pain in feeing her thus infensible, than even in hearing her vent the moll melancholy complaints: her tears are less painful than this Silent 
-i 
-Sorrow. I Shall carry her abroad, if 
-> ^ » 
-( 87) 
-I 
-• postible, not into company — that I 
-would not attempt, as I know it would hurt her — but to Some little distance. 
-4 
-I have tried these excursions before, aiid found She at leasl received, a mo mentary relief from them, 1 fear it is all we can hope for her in this world. She, who delighted every one, receives no delight or comfort from any objcsl:. 
-I could (yet I am not of a revengeful Or malignant difposition) yet I could 
-I ^ 
-curse that mosl inhuman villain. She 
-V 
-writes often to him, but never sends 
-/ 
-one of her letters. — It seems to relieve her, but She has defifled for this week pall. — I know not whether to attempt to dillurb this calm; I 
-I 
-know not whether it may be possible 
-« 
-() ' ■ 
-% 
-V 
-but, it Sits So heavy on her! Heaven. 
-, relieve her! I am Sure no human, 
-r 
-I 
-means can. 
-\ 
-t ^. 
-% \ 
+Our poor friend has been very ill for aome days. She seems more composed; but I do not like it. It is not the composure arising from a mind at ease; nature rather seems exhausted with affliction. I fear her grief will terminate in a settled melancholy. She neither eats, sleeps, nor speaks. What surprises me, she has not even mentioned Philemon for several days.  
+
+A persons of less vivacity would either have fallen into this state much sooner, or else have entirely forgot her griefs; but she had such a keen sensibility, such an ardent passion, I am sure it will end but with life. Indeed I think she cannot live any time. She was ever the most delicate of her sex in every respect; yet the most robust, one should think, could not have supported what she has endured. 
+
+I have more pain in feeing her thus insensible, than even in hearing her vent the most melancholy complaints: her tears are less painful than this silent sorrow. I shall carry her abroad, if possible, not into company - that I would not attempt, as I know it would hurt her - but to some little distance. I have tried these excursions before, and found she at least received, a momentary relief from them, I fear it is all we can hope for her in this world. She, who delighted every one, receives no delight or comfort from any object. I could (yet I am not of a revengeful or malignant disposition) yet I could curse that most inhuman villain. She writes often to him, but never sends one of her letters. - It seems to relieve her, but she has desisted for this week past. - I know not whether to attempt to disturb this calm; I know not whether it may be possible but, it sits so heavy on her! Heaven relieve her! I am sure no human means can. 
+
 I am, dear Madam, 
-V 
-', Your Sincere friend, 
-« 
-And obedient Servant, 
-% •. 
-» 
-• - 
-, FIDELIA. 
+Your sincere friend,  
+And obedient servant, 
+FIDELIA. 
 
 
 ## LETTER XII. 
-« ♦ • 
-'i y 
-'« 
-T Told my dear Amelia, that our journey was interrupted by the arrival of a mesfenger to inform Sir * Charles of, his mother’s being at the 
-point of death. He found her fpeechr ' less, and in her last moments; a melancholy 
-reverse to a man, who hoped to be a bridegroom before the next 
-I 
-fun Should have run his course. He was now a prisoner in the house of 
-a ♦' 
-death; the prisoner of decorum : for • \ 
-he could not restore that amiable worthy parent, or be of any service to her cpld remains. But decency de 
-* M 
-[ ' 
-( ' 
-\ \ 
-♦ 
-f 9° I 
-/ 
-manded itj and as he had paid her every proper attention when living, 
-I ' ^ 
-he would not desert her now till he had 
-/ 
-paid the last tribute. — Yet he did not neglesl his Clara: he wrote every day, in the tendered manner, to inquire for her, and asture heros his regret at the cruel separation, and even once carac incognito to pay his duty, as be called it, to his love. He had previously acquainted me with his intention, and begged I might be alone. You may 
-believe I could not refufehim. We 
-I 
-Spent two hours in the mod tender and 
-rapturous manner, and renewed our 
-\ 
-vows of mutual condancy. Sir Charles could not, with any degree of propriety, mention the fiibjest of our 
-’ I ‘ 
-1 
-/ ■ 
-f 91) 
-/ 
-^i>idn> and yoii may believe I did not. ’, He thanked me a thousand times for the reception I gave him, but begged he might never again receive Such a proof of my tenderness; for I melted into tears when we met. 
-• t • 
-\ 
-There was Something awful beyond 
-description (at least it appeared foto 
-/ 
-me) in the presence of my lover. His melancholy spread a softness over his 
-countenance, which gave it an ineffable 
-\ 
-sweetness; but he appeared to my eyes like an inhabitant of another world Whether it was the gloom of melan 
-t 
-choly, that like the jaundice, tinges every objesi, or whether it was my too prophetic Spirit, certain it is, he 
-. ' 1 ' 
-/ 
-/ 
-I 
-( 92) 
-% 
-appeared no longer my gay, my earthly lover. I bad areveremial honour upon me at his approach,. Yet fiiil he ’a^as dear, he was amiable j moi'o: lb, if postible, than ever. Grief Softens and relaxes the mind: and it has' ever been re 
-4* 
-marked by the wiieft, that the ex 
-% 
-of prosperity and advcrsity are 
-% 
-Savourable to love. 
-ci 
-know I never loved Sir Charles 
-% 
-So well as at that period, yet be was ever approved by my heart and my reason. Everything concurred to strengthen my attachment to him. And I regret not my folly more for 
-I 
-any cause, than when I reflefl on my •ingratitude to his memory. Frailty! thy' 
-« 
-4 
-( 93) 
-name is woman •, else I had never suf fered any objed to Supplant his image in'my heart. But Philemon did not Supplant it. I loved him for pretending to the virtues Sir Charles pofiessed. I thought I found a similarity of sentiments. He listened to my tale of Sorrow. He pitied me. He adrnired — ■ angels might have admired — the sentiments and expressions of Sir Charles. 
-t 
-\ 
-My heart, prone to, or rather made 
-\ 
-up of tenderness. Seldom found an ob jeh to waste it on. Philemon was lovely; had all the arts of perfualion* He had wit. He xould allume the charasler of virtue; He could asfume 
-I 
-it to deceive. He had, indeed, the 
-I'' 
-( ^) 
-1 • 
-Icmblaftce of every virtue; and cguid' irapose upon the moil wary; but alas 
-\ 
-the reality was wanting— — was deceiv * 
-k 
-ed by the Shadow — I had lost a gem of inestimable value: its counterpart was nowhere to be found. I thought to repair stand was cheated by a facs 
+
+I told my dear Amelia, that our journey was interrupted by the arrival of a messenger to inform Sir Charles of his mother’s being at the point of death. He found her speechless, and in her last moments; a melancholy reverse to a man, who hoped to be a bridegroom before the next sun should have run his course. He was now a prisoner in the house of death; the prisoner of decorum: for he could not restore that amiable worthy parent, or be of any service to her cold remains. But decency demanded it; and as he had paid her every proper attention when living, he would not desert her now till he had paid the last tribute. - Yet he did not neglect his Clara: he wrote every day, in the tendered manner, to inquire for her, and assure her of his regret at the cruel separation, and even once came incognito to pay his duty, as be called it, to his love. He had previously acquainted me with his intention, and begged I might be alone. You may believe I could not refuse him. We spent two hours in the most tender and rapturous manner, and renewed our vows of mutual constancy. Sir Charles could not, with any degree of propriety, mention the subjecy of our union and you may believe I did not. He thanked me a thousand times for the reception I gave him, but begged he might never again receive such a proof of my tenderness; for I melted into tears when we met. 
+ 
+There was something awful beyond description (at least it appeared so to me) in the presence of my lover. His melancholy spread a softness over his countenance, which gave it an ineffable sweetness; but he appeared to my eyes like an inhabitant of another world. Whether it was the gloom of melancholy, that like the jaundice, tinges every object, or whether it was my too prophetic spirit, certain it is, he
+appeared no longer my gay, my earthly lover. I had a reverential horror upon me at his approach. Yet still he was dear, he was amiable; more so, if postible, than ever. Grief softens and relaxes the mind: and it has ever been remarked by the wisest, that the extremes of prosperity and adversity are favourable to love. 
+
+I know I never loved Sir Charles so well as at that period, yet he was ever approved by my heart and my reason. Everything concurred to strengthen my attachment to him. And I regret not my folly more for any cause, than when I reflect on my ingratitude to his memory. Frailty! thy name is woman; else I had never suffered any object to supplant his image in my heart. But Philemon did not supplant it. I loved him for pretending to the virtues Sir Charles possessed. I thought I found a similarity of sentiments. He listened to my tale of sorrow. He pitied me. He admired - angels might have admired - the sentiments and expressions of Sir Charles. 
+
+My heart, prone to, or rather made up of tenderness. Seldom found an object to waste it on. Philemon was lovely; had all the arts of persuasion. He had wit. He could assume the characted of virtue; He could assume it to deceive. He had, indeed, the semblance of every virtue; and could impose upon the most wary; but alas the reality was wanting -  I was deceived by the shadow - I had lost a gem of inestimable value: its counterpart was nowhere to be found. I thought to repair stand was cheated by a facs 
 
 titious one. Too late I discovered the 
 * 
