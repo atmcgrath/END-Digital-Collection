@@ -230,164 +230,30 @@ Must I still write, my Amelia? If I must I will, but, alas! it cannot amuse you.
 My dear sister, friend of my heart, with how much pleasure would I accompany you in your solitude? But, alas! I am not my own mistress, I wish you could prevail on yourself to come here. Indeed, my love, we should all he glad to see you. Accuse not yourself in the cruel manner you do. I am sure your heart is still as pure as that of an angel. Think not of that vile Philemon: I could find in my heart to poison him. Indeed you are too good and gentle for this world: I always told you so; I always thought so. If I could have taught you to be a little of the vixen, like myself, you would have been much happier. I would fain make you laught, but dare not attempt it. Indeed I have cried more than ever I did in my life, or than I thought myself capable of doing, since I received your first letter 
 from N-----. But, indeed, you must come to us, and must forget that vile man, and not think so badly of yourself. I am sure nobody else in the world does think ill of you, and you must not talk nor think of dying. Indeed it will break my heart if you do. 
 
+Oh, my dear, how I do hate men! They are very vile creatures; but they are not all so bad as that most vile Philemon. - I dare scarce say, why did you refuse so many? but, my dear sister, it was, a pity: - you shall, however, still be happy. I am sure 
+you will always be beloved by every one that knows you. I am glad Fidelia is with you; but She lets you cry too much. I think you had better have staid in L-----, and kept Company. It would in time have made you more chearful. I know you cannot forget anybody you love. I wish you could, though I could not allow you to forget me; but I will endeavour ever to deserve your love by the sincerity of my regard to you, as I am, with the greatest affection and truth, your’s AMERLIA.  
 
-I 
-Oh, mv dear, how I do hate men! 
-'I 
-N LI 
-They are very vile creatures; but 
-/ 
-j n 
-I 
-'< I 
-f) 
-I 
-A 
-'they are not all So bad as that inbll vile Philemon. — I dare Scarce Say 
-^ % 
-•why did yoti refuse So many? but, my dear Sihcr, it was, a pity: — you Iliall, however, Hill be happy. I am Sure 
-s 
-you will always be beloved by every 
-t 
-one that knows you. I am glad Fidelia is with you; but She lets you cry too much. I think you had better have 
-4 
-staid in L -- -- --, and kept Company. 
-It would in time have made you more chearsul. I know you cannot forget anybody you love. I wioi you could, though I could not allow you to, forget me; but I will endeavour ever to de serve your love by the liiicerity of my 
-regard to you, as I am, with the greateif 
-* \ 
-aftedion and truth, your’s 
-\ * ■ 
-( 5^) 
-# ^ 
-P. S. I have had a long letter srotr *. 
-, Mrs, S -- -- -- -- -, and She alivs very kindly 
-for yon, and wishes you would come and stay with, her; but I know yon 
-'would not like to be there, though She 
-1 V ^ 
-I ^ 
-\ 
-. is very good-natured. Indeed, it would be bell if T could go to you, and bring 
-t 
-you here in April; and.i will try if I can brinej it about. This is a dull 
-O 
-place, though I never found it So when you were here. But I will cry 
-# 
-with you, if I cannot make you laugh. 
+P.S. I have had a long letter from Mrs. S-----, and she asks very kindly for you, and wishes you would come and stay with, her; but I know you would not like to be there, though she is very good-natured. Indeed, it would be best if I could go to you, and bring you here in April; and I will try if I can bring it about. This is a dull place, though I never found it so when you were here. But I will cry with you, if I cannot make you laugh. 
 
 ---
 
 ## LETTER VII.  
 
-T T is imposiible, my dear Amelia ^ can ever meet in this world. You must not think of coming to me, 
-and I cannot go to you. It would not 
-/. ' 
-be proper. I have forfeited all claim ‘ to esteem from myself, and will not impose on the world, but will fly from it. “I would bide with the beasts of the 
-t ‘ 
-“chase: 
-I would vanish from every eye.’* 
-— It is against my will Fidelia Slays with me. She is, indeed, very good; but every objed in nature Seems to re 
-4* ^ 1 T LT /SS “fc /'1 
-'■ /.'• •, t 
-"■ I 
-16?^, 
-Nour kind expreilions wound me 
-'K ' 
-to the Soul, conscious as I am of not 
-, 
-deserving them, r — I am too ill just now to continue my narrative; but I will endeavour, to Sinifli it, if Heaven Spares me life. I have kept copies, 
-% 
-which makes me go on Slower than I' otherwise should do : «ibut I have a ream 
-'■ „ ^ 
-Son for it. 
-I 
-/ 
-Poor, amiable Fiddia Spends her 
-time difinally with me. She thinks S 
-• 
-Shall live: indeed I Shall not; it is impossible. — Could I blot out of my, memory the last ftfteen months of my 
-life, I might. I knew grief before that period; but was a stranger to the horrors'of despair. My mind is now 
-I f 
-} 
-/ 
-C 53 T 
-% 
-estranged from every other idea. I dare not reproach the author of my being. He Sees what is Sit for his creatures, and they musi submit; but it is hard, very hard. Adieu. I anti 
-^. V ....,. S ... 
-with unalterable affeslion,. 
-- 
-V 
-'your’s, G 
-« • 
-*' 
-I 
-a 
-/ 
-« * 
--? 
-* ( 
-, •» • 
-I 
-f 
-i 
-% 
-. / • 
-.M 
-% - 
-% 
-% 
-• % * 
-: ■■. s. 
-r 
-> ^ 
-• %• • 
-. }. 
-. E 3 LET 
-rt *4.5# 
-. '• V 
--.. (54 5 
-I 
-/ 
-: r ' _£ ’> j.. - 
-- » 
-E T T E R VIII 
-I. 
-t ^ 
-\ / 
-W : ' T ' ' 
-f ■ 
-Ti yc Y indisposition, my dear Amelia, prevented my continuing the talk you have allotted me; but I am now better, and will endeavour to 
-I 
-obey you. I mentioned Sir Charles worthy’s requesf, that I would ac company him and Mrs. Fane to S —. I consented to it without relu6iance, as I found his happiness, ajnd I thought my own, depended on it. Need I tell my 
-f 
-Amelia, that mine always did depend on that of the persons I profelted to love and csleem? 
-Sir 
-, 4 
-4 
-, (’55) 
-, ( ■ ■ 
-t 
-Sir Charles begged I would name Some day in the next week for our little excursion, nor did he Seem displeased when I started, and said, ah, my God! next week! I perceived a glow 
-f 
-on'his cheek, and a fupprcffed Smile, 
-f ^ 
-which i.resented. lie threw himself 
-% 
-at my feet, and embraced my knees, — “Indeed, my beloved Clara, it muh 
-•. * 
-# 
-“be very Soon, or your loyer cannot 
-c“ “an existence, which your 
-/ 
-, “coldness renders too painful. Could you feel as I do the pain, which •‘ every Separation, though but for “an hour,, inflisls, you would not “deny me the Small requell of hasten“ 
-“our little journey to S — -- -- -- - 
-• 1 
-“During the few day we shajlremtnn 
-• E 4 “there, 
-• ' 
-'( 5® VI 
-I 
-s 
-* 
+It is imposiible, my dear Amelia, we can ever meet in this world. You must not think of coming to me, and I cannot go to you. It would not be proper. I have forfeited all claim to esteem from myself, and will not impose on the world, but will fly from it. “I would bide with the beasts of the chace: I would vanish from every eye." - It is against my will Fidelia stays with me. She is, indeed, very good; but every objed in nature seems to reproach me, or tell me I am wretched. 
+
+Your kind expressions wound me to the soul, conscious as I am of not deserving them. - I am too ill just now to continue my narrative; but I will endeavour to finish it, if Heaven spares me life. I have kept copies, which makes me go on slower than I otherwise should do; but I have a reason for it. 
+
+Poor, amiable Fidelia spends her time dismally with me. She thinks I shall live: indeed I shall not; it is impossible. - Could I blot out of my, memory the last fifteen months of my 
+life, I might. I knew grief before that period; but was a stranger to the horrors of despair. My mind is now estranged from every other idea. I dare not reproach the author of my being. He sees what is sit for his creatures, and they must submit; but it is hard, very hard. Adieu. I am with unalterable affection, Your’s, &c. CLARA. 
+
+---
+
+## LETTER VIII.
+
+My indisposition, my dear Amelia, prevented my continuing the talk you have allotted me; but I am now better, and will endeavour to obey you. I mentioned Sir Charles Worthy’s request, that I would accompany him and Mrs. Fane to S-----. I consented to it without reluctance, as I found his happiness, and I thought my own, depended on it. Need I tell my Amelia, that mine always did depend on that of the persons I professed to love and esteem? 
+ 
+Sir Charles begged I would name some day in the next week for our little excursion, nor did he seem displeased when I started, and said, ah, my God! next week! I perceived a glow onhis cheek, and a suppressed smile, which I resented. He threw himself at my feet, and embraced my knees, - “Indeed, my beloved Clara, it must be very soon, or your lover cannot support an existence, which your coldness renders too painful. Could you feel as I do the pain, which every separation, though but for an hour, inflicts, you would not deny me the small request of hastening
+our little journey to S-----. During the few day we shall remain
 there, you will never be a mdment 
 “out of my light. From that day, ** I hope vou will permit me to devote “a whole life of gratitude to my, only not adoted, Clara. Let your gene *' rohty fet you above trilling delays “and obfervaiice.s., Be ashired the “passion of your lover is above what “is commonly called love, as much 
 V 
