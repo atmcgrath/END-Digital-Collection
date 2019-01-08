@@ -299,154 +299,62 @@ cluded in herself that she should in time, having got rid of her rival, get his,
 [85]
 to be; but the inward grief of his mind, and the constraint he had put upon himself, had so impaired his health, that he fell sick of a fever, which brought him so low that he was ten months before he was able to go out of his chamber, his illness being much increased by the vexation, of his mind; all which time Camilla waited on and attended him with such extraordinary care and tenderness, that she much injured her own constitution, and fell into a consumption, at which Leander was much concerned. In this time he contracted, a great friendship with a young gentleman, his uncle’s only son, a young man of extraordinary parts and goodness, handsome and ingenious; his name was Lewis Dumaresq, which was the name of Leander’s mother’s family: he was about twenty-two years old, and had travelled most parts of Europe. To him Leander made known all his secret thoughts, and design of going to St. Domingo in
 [86]
-search of Harriot, offered to acconi^ pany him thither, and to assist him II ail he was able. Here we must leav< Leander to recover his health, and re late what befell Harriot, who was Id in Don Carlos's hands and power.
-As Soon as Harriot found the Shij under sail, and discovered that fii was betrayed and robbed of her dea Leander, She retired to her cabin cast herself on her bed, and abandon ed herself to grief. ‘ My God, far
-* She, lifting up her delicate hand ‘ and watery eyes, for what am I reserved
-? What farther misfortune must I Suffer? No sooner did th ‘ Providence provide me a friend t ‘ comfort me in my distress, and de
-* livered me out of the mercile: ‘ hands of pirates, but it has agai ‘ exposed me helpless and alone t
-* strangers. Men who are more vie «■ lent and revengeful in their natun
-than any I have yet met v/itha
-^ Perhaps poor Leander is ahead
-drowned in the merciless Sea by tl.
-cru
-4
-/
-Miss Harriot Montague. 8y
-® cruel Carlos, to whom, unless thy ‘ goodness again delivers me, I must' ‘ be a Sacrifice..’ Whilst she was thus _ expostulating with heaven, the amorous Spaniard came to. her cabin door, and gently opening it. Sat down on the bed by her, and Seeing her drowned in tears, was for Some moments Silent; at last, taking her hand he kissed it passionately, and Said, ‘ Too charming lovely maid,
-‘ why do you thus abandon yourself * to passion?? me leave to con ‘ vince you that you have no just ‘ cause of grief, and that I have done ‘ nothing base or dishonourable; your:
-‘ lover had ungratefully left a lady ‘ to whom he had been engaged from his infancy, one who highly deserv ‘ ed his esteem, and fo loved him ‘ that you see she has centred her ^ life and same to follow him : to you he was a stranger, and being ‘ false to her he had known fo long,. ^ ycu have all the reason in the world to doubt his constancy to you. Your
-rival.
-f8 the'history or
-- rival had resolved to rid herself C you, and you were hourly in dar < aer of death whilst She was wit ‘ you. Believe me, Harriot, the fe.
-of losing you, whom my Souladon « made me take Such measures to I t cure your life and restoie to h * lady her faithless lover. I am d C engaged, and have a fortune wort o your acceptance'. This day, ti ‘ hour, if you’ll consent, Till mai
-‘ you to Secure you from au fears ‘ being ruined or abandoned by rr ‘ and till you permit me to be h:
-t py, guard and wait on' you w
-‘ Such lesped and assiduity, that r bett last constrained to o
-« that 1 do merit to be loved, and V « that lovely mouth confirm me h t py.’ She answered him with m reserve, wisely considering in her.
-that if She treated him with too m rigour, he might be provoked to other means to gratify his paiii
-that She was wholly in his power,
-un
-L
-miss Harriot Montague. 89
-nable to deliver herself out of hia hands. In fine, Some days passed, in which She was So altered with grief, that her lover was under great concern, he treated her with all the gallantry and tender regard that a man could life to gain a lady’s heart; he let nothing be wanting, but presented her with wines, Sweetmeats, and everything the ship afforded, offering her gold and rings, and at length pereeiv ed that she grew more cheerful and obliging, at which he was even transported. The weather had till now been very favourable, but as they were sailing near the Summer istands, a dreadful storm or hurricane arose, and drove them with Such fury for a day and a night, that the ship at last struck against one of the Smallest of them, and stuck So fast on the shore that they could not get her off, which obliged them to get the boats out and lighten the ship of the guns and. heaviest things, in doing which they discovered that the ship had Sprung a,
-leak,;;.
-90 1 northeast H 1 o 1 u IV I of
-leak; this made them under a northeast ceility of staying on this istand for Some days to repair the damage. "I northeast captain, Harriot, Don Carlos, and all the ship’s crew went oil shore; they found it was one of those istands that was uninhabited, fo they resolved to go from thence as soon as they could to
-Bermudas; butprovidence had decreed their stay therefore sometime. The time they landed was about midnight, the shy darkened extremely, and such a storm of lightning and thunder followed, that the ship took fire, and was consumed with all that was left in it; the affrighted Harriot, who had iio other covering to defend her but the tents they had made of the tarpaulins and sails, now thought her misfortunes and life were at an end; her lover and all the rest recommended themselves to God, not expedfing to Survive that dreadful night. Some of the ship’s crew venturing to look out after the ship, were lost, being, blown into the Sea, and the morning
-showed
-miss Harriot Montagub. 91
-showed the dismal protpeo: of their ssaming ship, which lay burning on the shore almost entirely consumed. All the hope they now had left, was, that Some boats or baishs would come to their relief from the adjacent islands. The storm being over towards evening, after baviiig taken Some refreshment of vv^hat provisions and drink they had left, which they had brought on shore, they ventured to vv^alk about the istand, on which was plenty of fowl and trees. Don Carlos leading Harriot, they wandered to a place where they Saw' Some trees growing very close together, in the midst of which they perceived a Sort of hut or cottage made of a few boards and branches of trees, and coming up to it Saw a door standing open made of a hurdle of canes; and concluding this place was inhabited by forneshody, curiosity induced them to look into it. There, stretched on an old mattress, lay a man wdio appeared to be of a middle age, pale as
+search of Harriot, offered to accompany him thither, and to assist him in all he was able. Here we must leave Leander to recover his health, and relate what befell Harriot, who was in Don Carlos's hands and power. As soon as Harriot found the ship under sail, and discovered that she was betrayed and robbed of her dear Leander, she retired to her cabin cast herself on her bed, and abandoned herself to grief. ‘ My God, said she, lifting up her delicate hand and watery eyes, ‘for what am I reserved? What farther misfortune must I suffer? No sooner did thy Providence provide me a friend to comfort me in my distress, and delivered me out of the merciless hands of pirates, but it has again exposed me helpless and alone to strangers. Men who are more violent and revengeful in their nature
+than any I have yet met withal. Perhaps poor Leander is already drowned in the merciless sea by the
+[87]
+cruel Carlos, to whom, unless thy goodness again delivers me, I must be a sacrifice.’ 
+
+Whilst she was thus expostulating with heaven, the amorous Spaniard came to her cabin door, and gently opening it. Sat down on the bed by her, and seeing her drowned in tears, was for some moments silent; at last, taking her hand he kissed it passionately, and said, ‘Too charming lovely maid, why do you thus abandon yourself to passion? Give me leave to convince you that you have no just cause of grief, and that I have done nothing base or dishonourable; your lover had ungratefully left a lady to whom he had been engaged from his infancy, one who highly deserved his esteem, and so loved him that you see she has ventured her life and fame to follow him: to you he was a stranger, and being false to her he had known fo long, you have all the reason in the world to doubt his constancy to you. Your
+[88]
+rival had resolved to rid herself of you, and you were hourly in danger of death whilst she was with you. Believe me, Harriot, the fear
+of losing you, whom my soul adores, made me take such measures to secure your life and restore to the lady her faithless lover. I am disengaged, and have a fortune worthy of your acceptance. This day, this hour, if you’ll consent, I'll marry you to secure you from all fears of being ruined or abandoned by me; and till you permit me to be happy, I'll guard and wait on you with such respect and assiduity, that you shall be at last constrained to own that I do merit to be loved, and with that lovely mouth confirm me happy.’
+
+She answered him with reserve, wisely considering in her that if she treated him with too much rigour, he might be provoked to other means to gratify his passion; that dhe was wholly in his power, and
+[89]
+unnable to deliver herself out of his hands. In fine, some days passed, in which she was so altered with grief, that her lover was under great concern, he treated her with all the gallantry and tender regard that a man could use to gain a lady’s heart; he let nothing be wanting, but presented her with wines, sweetmeats, and everything the ship afforded, offering her gold and rings, and at length perceived that she grew more cheerful and obliging, at which he was even transported. The weather had till now been very favourable, but as they were sailing near the Summer-Islands, a dreadful storm or hurricane arose, and drove them with such fury for a day and a night, that the ship at last struck against one of the smallest of them, and stuck so fast on the shore that they could not get her off, which obliged them to get the boats out and lighten the ship of the guns and heaviest things, in doing which they discovered that the ship had sprung a
+[90]
+leak; this made them under a northeast ceility of staying on this island for some days to repair the damage. The captain, Harriot, Don Carlos, and all the ship’s crew went on shore; they found it was one of those islands that was uninhabited, so they resolved to go from thence as soon as they could to Bermudas; but Providence had decreed their stay there for some time. The time they landed was about midnight, the sky darkened extremely, and such a storm of lightning and thunder followed, that the ship took fire, and was consumed with all that was left in it; the affrighted Harriot, who had no other covering to defend her but the tents they had made of the tarpaulins and sails, now thought her misfortunes and life were at an end; her lover and all the rest recommended themselves to God, not expecting to survive that dreadful night. Some of the ship’s crew venturing to look out after the ship, were lost, being, blown into the sea, and the morning
+[91]
+showed the dismal prospect: of their flaming ship, which lay burning on the shore almost entirely consumed. All the hope they now had left, was, that some boats or barks would come to their relief from the adjacent islands. The storm being over towards evening, after taken some refreshment of what provisions and drink they had left, which they had brought on shore, they ventured to walk about the island, on which was plenty of fowl and trees. Don Carlos leading Harriot, they wandered to a place where they saw some trees growing very close together, in the midst of which they perceived a sort of hut or cottage made of a few boards and branches of trees, and coming up to it saw a door standing open made of a hurdle of canes; and concluding this place was inhabited by somebody, curiosity induced them to look into it. There, stretched on an old mattress, lay a man who appeared to be of a middle age, pale as
 death.
-4)2 The H I STORY of
-• dieath, and So meagre and motionress,, that they doubted whether he was living or dead,, his habit was all torm and ragged, yet there appeared Something So lovely and majestic in his even dying, look, that it nearly touched their Soulsk Don Carlos going into this poor hut, took him by the: hand, and finding he was not dead,, Spoke to him, asking if he could rife: and eat, who he was,, and other questions, to all which he. made no an -- Sever, but looked earnestly upon him,. Mean time Harriot ran and fetched a bottle of rum, returning with Sucte incredible Ipeed, that only that ardent charity that inflamed' her generous soul could have, enabled her to do 4 Don carlos poured Some of this rum. into his mouth, but it was Some time before the poor creature could Swallow it; at last he Seemed a little revived.. Said in, French, God preserve you who have relieved me; he could Say no more, but fainted : Don
-Caidos, repeating his charitable office,
-gave.
-miss Harriot Montague. 9-;
-I
-§: ave him more rum, whilst Harriot fetched Some bread and meat; he swallowed a mouthful or two, but could eat no more. By this time the captain and other officers came up, X and were equally Surprised at So an object; two of the Seamen were ordered to*stay with him that night; and the next morning Harriot and the rest returned to visit him, impatient to know who he was, and how he came in that condition. He was come a little to himself, and received them in fo courtly a manner, though he was unable to rise up upon his feet, his weakness was So great, that they concluded he was Some man of quality; and after Some civilities had pasted, Don Carlos begged to know wsho he was. I will. Said he, if I am able, oblige you with the recital of a story So full of wonders, that it will merit a place in your memories all the days of your lives; you seem to be gentlemen, and that young lady’s curiosity ffiall be gratified. Don
-Carlos
-94 The HI STORY OF
-Garlos bowing. Seated Harriot and himself on the ground by him, the captain and the rest stood before the cottage door, and the stranger having taken a piece of biscuit and a glass of wine, being very faint, began the narrative of his life in the following manner.
-‘ I was born in France at St. Maloes, ‘ my father was a rich merchant in ‘ that place, his name was Le mon tague, I was the youngest of two ^ fons which he had, and being ‘ grown up to man’s estate, my father ‘ was mightly solicitous to see me ^ difposed .of advantageously, hopin ’ I Should marry Such a fortune as might provide for me without lef ^ femng his own. So that my elder
-* brother might be advanced to a ti ‘ tie which he designed to purchase ‘ for him, or Some great employ. J This he was continually Sounding in ‘ my ears. But, alas, my soul was averse
-* to his commands, for I had already ^ engaged my affections to a young
-^ lady
-CL
-miss Harriot Montague. 95
-* lady whom I had unfortunately Seen ^ when 1 was but fifteen, at a monaf ‘ tery to which I had been Sent by ‘ my father, to See a kinswoman who
-* was a professed nun there; visiting
-* I Saw this fair young pensioner, ‘ who was then about fifteen years ‘ old; She was beautiful as an angel, ‘ and I found her conversation as
-* charming as her face; her name ‘ was Clementina; and the monaf ‘ tery being at a village not above ten ‘ miles distant from St, Maloes, I ‘ used Secretly to visit her at least once
-* or twice a week. So that I got her ‘ promise to marry me fo Soon as I / was fettled in the world. She told ‘ me she was the only daughter of an ‘ old widow lady who lived fifty miles ‘ distant, was extreme rich, and had
-* placed her there, because the abbess ‘ was her mother’s sister; that her ‘ fortune was left her at her mother’s ^ disposal. This was her circum
-* which obliged me, being a younger brother, to defer marrying
-‘ her
-.96 The HISTORY OF
-< her till I had got Some way of providing for her, that I might venture ‘ to take her without asking our parents consent: this delay was our ‘ undoing; for when I was twenty,
-< an old widow lady came to my fa ‘ ther’s on Some money affairs, and ' was dodged at our house, where ‘ lire took Such a fancy to me, that « fbe boldly Solicited my father tc ‘ lay his commands upon me tc « marry her, which offer he leadiiy
-e accepted; and having laid all that
-* advantages of this rich match besort
-( rne, concluded with injoining m(
-« with the firidtest injunaions t
-* her forthwith. I pleaded II ‘ vain that I was pre engaged to an
-< other. He told me in a lage, I mul ‘ take mv choice, either to content 0 « go out of his doors immediately
-< protesting he would never give rn ( groat, and difowti me if I was di(
-< obedient to his commands. Br
-< when I proceeded in the humble!
-* manner to make known wb
-‘ th
-t
-Miss Harriot Montague. 97
-* the person was to whom I was ‘ preingaged. Good heaven! how
-* was I furorized to find it was this
-jl
-lady’s daughter } And now the Sa
-* Secret being known, Clemen ‘ tina was in a few days removed out ^ of my sight and knowledge, being
-* taken away from the monastery, and ^ Sent I know not whither. Some ^ months past in which I bussed myself in making inquiry after her, ^ but all in vain; at last, quite wearied ‘ out with my father’s threats and the
-* widow’s importunities, I consented ^ to be wretched, and married her, ^ whom in my Soul I loathed and
-* hated; nor had I done it, but in ^ hopes to get to the knowledge of ‘ the place where my dear Clementina was concealed from me, re ‘ Solving never to consummate my ‘ marriage with her mother: which ‘ way of proceeding So enraged her, ‘ that we lived at continual variance :
-* yet shame withheld her from de ® daring this Secret to the world; to
-¥ol. I, F Sgether
-9^ The H I S T O R Y OF
-* gether with Spite, because She
-* would continue to plague me by ‘ living with me. At last, by the
-* means of one of the Servants, whom
-* I bribed, (having now all her for
-* at command, which I took
-* care to manage So well, that I laid ‘ by a great Sum of money to provide
-* for me and Clementina, with
-* whom I resolved to sty from France
-* So soon as I could find her) I got
-* knowledge that Ihe was locked up
-* in a convent near Calais; on which
-* I converted all my money secretly
-* gold and bills of exchange, re ‘ Solving to Set out for England with
-* her fo soon as we could get off,
-* having there an unde at Bristol, my
-* father’s brother.’ At these words Harriot looked earnestly upon him. Surprised to find he was her coufin german. But he continued his discourfe thus: ‘ But now I was
-* in a great dilemma how to get to ‘s, the Speech of her to inform her of ‘ my design, as likewise how to get
-‘ away
-Mffs Harriot Montague. 99
-‘ away from my wife, who was con continually hanging upon me, and following of me, fearing She should ‘ discover whither I was going, be ing certain she would remove Cle ‘ mentina from the convent. I there ‘ fore picked a quarrel one evening ‘ with my wife about a trifle on purpose, and the next morning took horse by break of day, attended ‘ with only one servant in whom I could confide, and fet out for St. * Malos, were being arrived, I hired a vefi'el to carry me to Calais, fear ‘ ing to be followed if I had gone by ■* land; the wind was contrary for Some days, So that my revengeful ‘ wife had time to send for Clementina from the convent. At my ar ‘ rival there, I had the mortification ‘ to find her gone, but none could, ‘ or indeed would, inform me whither she was carried; this So exas ‘ perated me against my wife, that I resolved not to return home any ‘ more : So I went directly to my fa
-F 2 ‘ father’s,
-#
-JCO The H I s T O R Y op
-I
-‘ tber’s, and staid there a month, ® pretending bustness with some masters of ships that were expedfed to « come into that port. Mean time
-< my wife got intelligence where I
-< wajs, and came to me: I received
-* her civilly before my father; but at
-* night, when we were in bed, we
-* fell into a warm dispute, which
-* ended in a refolutiori on my fide to ‘ leave her for ever, with which I acquainted
-her; but then she fell to entreaties, and in the softest terms
-* laid before me my ingratitude to
-* her, and how wicked my design was
-< upon her daughter; pleading, that
-* as she was my wife, She had all the
-‘ reason in the world to keep me from
-‘ the conversation of a person whom
-‘ I loved better than herself; that she
-‘ had made me master of a plentiful
-5 fortune, and concealed from the
-‘ world the high affront I had put
-‘ upon her, in refusing to perform the
-« duties of a husband to her. To
-‘ all which I answered, That as for the
-‘ cere
-<
-I
-miss Harriot Mon tag u e. i o r
-\
-*■ ceremony of our marriage, I looked ' upon it as nothing, since I vas ‘ compelled to it; that I had denied ‘ myself all converse with her as a ‘ wise, because I would not commit ‘ a sin, by breaking my Solemn vows. ‘ and engagements with her daugh ‘ ter, whom I had made choice of be ‘ fore I Saw her; and since there ' was no other way left to free me, ‘ I resolved to declare all to the world, ‘ and annul our marriage, and restore ‘ what money and estate I had re ‘ maining in my hands to her. At ‘ these words She stew into a violent ‘ pastion. Well then (Said stie^ since ‘ you' will thus expose me, i’ll do ^ myfelfthis justice, to remove Cle
-* mentina. from your sight for ever;
-‘ be astured you shall never see her ‘ more in this world. She that moc
-‘ ment leapt out of bed, called for ‘ her Servant, and put on her clothes;
-* and though I used many entreaties ‘ to deter her, nay proceeded to
-threats, yet she perfisted in her ree
-3 folutioa.
-102 The H I S T O R Y OF
-‘ Solution, and going down to my Sather, acquainted him wnth all that ‘ had passed between us, desiring him ‘ * to prevent me from following her,
+[92]
+death, and so meagre and motionless, that they doubted whether he was living or dead, his habit was all torn and ragged, yet there appeared something so lovely and majestic in his even dying, look, that it nearly touched their souls Don Carlos going into this poor hut, took him by the hand, and finding he was not dead, spoke to him, asking if he could rise: and eat, who he was, and other questions, to all which he made no answer, but looked earnestly upon him. Mean time Harriot ran and fetched a bottle of rum, returning with such incredible speed, that only that ardent charity that inflamed her generous soul could have enabled her to do; Don Carlos poured some of this rum into his mouth, but it was some time before the poor creature could swallow it; at last he seemed a little revived. Said in, French, God preserve you who have relieved me; he could say no more, but fainted: Don
+Carlos, repeating his charitable office,
+[93]
+gave him more rum, whilst Harriot fetched some bread and meat; he swallowed a mouthful or two, but could eat no more. By this time the captain and other officers came up, and and were equally surprised at so sad an object; two of the seamen were ordered to stay with him that night; and the next morning Harriot and the rest returned to visit him, impatient to know who he was, and how he came in that condition. He was come a little to himself, and received them in so courtly a manner, though he was unable to rise up upon his feet, his weakness was so great, that they concluded he was some man of quality; and after some civilities had passed, Don Carlos begged to know who he was I will, said he, if I am able, oblige you with the recital of a story so full of wonders, that it will merit a place in your memories all the days of your lives; you seem to be gentlemen, and that young lady’s curiosity shall be gratified. Don
+[94]
+Carlos bowing. Seated Harriot and himself on the ground by him, the captain and the rest stood before the cottage door, and the stranger having taken a piece of biscuit and a glass of wine, being very faint, began the narrative of his life in the following manner.
+
+‘I was born in France at St. Maloes, my father was a rich merchant in that place, his name was Le Montague, I was the youngest of two ^ sons which he had, and being grown up to man’s estate, my father was mightly solicitous to see me disposed of advantageously, hoping should marry such a fortune as might provide for me without lessing his own. So that my elder brother might be advanced to a title which he designed to purchase for him, or some great employ. This he was continually sounding in my ears. But, alas, my soul was averse
+to his commands, for I had already engaged my affections to a young
+[95]
+lady whom I had unfortunately seen when I was but fifteen, at a monastery to which I had been sent by my father, to see a kinswoman who
+was a professed nun there; visiting I saw this fair young pensioner, who was then about fifteen years old; she was beautiful as an angel, and I found her conversation as charming as her face; her name was Clementina; and the monastery being at a village not above ten miles distant from St. Maloes, I used secretly to visit her at least once or twice a week. So that I got her promise to marry me so soon as I was settled in the world. She told me she was the only daughter of an old widow lady who lived fifty miles distant, was extreme rich, and had placed her there, because the abbess was her mother’s sister; that her fortune was left her at her mother’s ^ disposal. This was her circumstance which obliged me, being a younger brother, to defer marrying
+[96]
+her till I had got some way of providing for her, that I might venture to take her without asking our parents consent: this delay was our undoing; for when I was twenty, an old widow lady came to my father’s on some money affairs, and was lodged at our house, where she took such a fancy to me, that she boldly solicited my father to lay his commands upon me to marry her, which offer he readily
+accepted; and having laid all that advantages of this rich match before me, concluded with the strictest injunctions to marry her
+forthwith. I pleaded in vain that I was pre-engaged to another. He told me in a rage, I must take mv choice, either to content or go out of his doors immediately protesting he would never give me a groat, and disown me if I was disobedient to his commands. But
+when I proceeded in the humble manner to make known who
+[97]
+the person was to whom I was pre-engaged. Good heaven! how was I surprised to find it was this lady’s daughter? And now the fatal
+secret being known, Clementina was in a few days removed out of my sight and knowledge, being taken away from the monastery, and sent I know not whither. Some months past in which I busied myself in making inquiry after her, but all in vain; at last, quite wearied out with my father’s threats and the widow’s importunities, I consented to be wretched, and married her, whom in my soul I loathed and
+hated; nor had I done it, but in hopes to get to the knowledge of the place where my dear Clementina was concealed from me, resolving never to consummate my marriage with her mother: which way of proceedings so enraged her, that we lived at continual variance:
+yet shame withheld her from declaring this secret to the world; together
+[98]
+with spite, because she would continue to plague me by ‘ living with me. At last, by the means of one of the servants, whom I bribed, (having now all her fortune at command, which I took care to manage so well, that I laid by a great sum of money to provide for me and Clementina, with whom I resolved to fly from France so soon as I could find her) I got knowledge that she was locked up in a convent near Calais; on which I converted all my money secretly into gold and bills of exchange, resolving to set out for England with
+her so soon as we could get off, having there an uncle at Bristol, my father’s brother.’ 
+
+At these words Harriot looked earnestly upon him. Surprised to find he was her cousin-german. But he continued his discourse thus: ‘But now I was in a great dilemma how to get to the Speech of her to inform her of my design, as likewise how to get away
+[99]
+away from my wife, who was continually hanging upon me, and following of me, fearing she should discover whither I was going, being certain she would remove Clementina from the convent. I therefore picked a quarrel one evening with my wife about a trifle on purpose, and the next morning took horse by break of day, attended with only one servant in whom I could confide, and set out for St. Malos, were being arrived, I hired a vessel to carry me to Calais, fearing to be followed if I had gone by land; the wind was contrary for some days, so that my revengeful wife had time to send for Clementina from the convent. At my arrival there, I had the mortification to find her gone, but none could, or indeed would, inform me whither she was carried; this so exasperated me against my wife, that I resolved not to return home any more : So I went directly to my father's
+[100]
+and staid there a month, pretending business with some masters of ships that were expected to come into that port. Mean time
+my wife got intelligence where I was, and came to me: I received her civilly before my father; but at night, when we were in bed, we
+fell into a warm dispute, which ended in a resolution on my fide to leave her for ever, with which I acquainted her; but then she fell to entreaties, and in the softest terms laid before me my ingratitude to her, and how wicked my design was upon her daughter; pleading, that as she was my wife, she had all the reason in the world to keep me from the conversation of a person whom I loved better than herself; that she had made me master of a plentiful fortune, and concealed from the world the high affront I had put upon her, in refusing to perform the duties of a husband to her. To all which I answered, That as for the
+[101]
+ceremony of our marriage, I looked upon it as nothing, since I was compelled to it; that I had denied myself all converse with her as a wife, because I would not commit a sin, by breaking my solemn vows and engagements with her daughter, whom I had made choice of before I saw her; and since there was no other way left to free me, I resolved to declare all to the world, and annul our marriage, and restore what money and estate I had remaining in my hands to her. At these words she flew into a violent passion. Well then (said said) since you will thus expose me, I’ll do myself this justice, to remove Clementina from your sight for ever; be astured you shall never see her more in this world. She that moment leapt out of bed, called for her servant, and put on her clothes; and though I used many entreaties to deter her, nay proceeded to threats, yet she persisted in her 
+[102]
+‘resolution, and going down to my Sather, acquainted him wnth all that ‘ had passed between us, desiring him ‘ * to prevent me from following her,
 * which he, being highly incensed ‘ against me, too well performed : for ‘ he came up to my chamber, where ‘ I was dressing in order to follow ‘ her, but he kept me there in discourse
 whilst She took coach and ^ was gone I knew not whither, nor ^ could I for Some days hear any ‘ news of her. Mean time my fa ‘ there and brother continually perse ‘ cuted me on her account, bidding
 * me go home and live like a chris
