@@ -354,126 +354,37 @@ fell into a warm dispute, which ended in a resolution on my fide to leave her fo
 [101]
 ceremony of our marriage, I looked upon it as nothing, since I was compelled to it; that I had denied myself all converse with her as a wife, because I would not commit a sin, by breaking my solemn vows and engagements with her daughter, whom I had made choice of before I saw her; and since there was no other way left to free me, I resolved to declare all to the world, and annul our marriage, and restore what money and estate I had remaining in my hands to her. At these words she flew into a violent passion. Well then (said said) since you will thus expose me, I’ll do myself this justice, to remove Clementina from your sight for ever; be astured you shall never see her more in this world. She that moment leapt out of bed, called for her servant, and put on her clothes; and though I used many entreaties to deter her, nay proceeded to threats, yet she persisted in her 
 [102]
-‘resolution, and going down to my Sather, acquainted him wnth all that ‘ had passed between us, desiring him ‘ * to prevent me from following her,
-* which he, being highly incensed ‘ against me, too well performed : for ‘ he came up to my chamber, where ‘ I was dressing in order to follow ‘ her, but he kept me there in discourse
-whilst She took coach and ^ was gone I knew not whither, nor ^ could I for Some days hear any ‘ news of her. Mean time my fa ‘ there and brother continually perse ‘ cuted me on her account, bidding
-* me go home and live like a chris
-*; nay they employed Several ‘ priests and the bishop of the place ‘ to talk to me. So that I was now ‘ looked on with much distike; and
-* being weary of this Schooling, I ‘ Set out for home, where 1 found ‘ my wife sick, which indeed So ‘ touched me, that I repented of hav
-* used her So unkindly, and resolved
-to treat her more respedfully
-‘ for
-miss Harriot Montague. 103
-‘ for the time to come. A whole
-* year past, all which time she lan ‘ guished of a lingering fever and in ‘ ward decay, grief having doubtless ‘ seized her Spirits. I used her with
-* as much tenderness as if I had been ‘ her Son; we never bedded together, ^ but kept two apartments. In fine, ‘ she died, and on her deathbed,
-‘ Some hours before she expired, took
-‘ me by the hand as I Sat on her bed ‘ fide, and Said these words to me.
-y *
-^ which are still fresh in my memory; ‘ Mr. Le Montague, I am now going ‘ to leave you, and I hope to be at
-* rest; I have loved you as tenderly ‘ and passionately as ever wife did a ' husband; .anshjthough I committed ^ a great folly in marrying a person ^ was fo much younger than ‘ myself, and pre engaged, yet no ‘ vicious inclinations induced me to ‘ it, as my behaviour to you since ^ convince you. I flatter my ‘ Self, that gratitude and my beha
-* viour towards you, would have
-F 4 ‘gained
-j04 The HI STO R Y of
-‘ gained your love, but vras deceiv ‘ edi have never been to blame in ‘ all my conduct towards you, but to ‘ my child I have been cruel and un ‘ kind; for fearing a criminal con ‘ verfation between you if you came ‘ together, I used all my endeavours ‘ to keep you asunder, and finding
-‘ that even the convents could not Sc
-/
-* her, provoked by your ill ‘ usage, at last I resolved to send her
-* out of France, which I effected by ‘ means of a captain of a Ship which ‘ was bound to Canada; who took ‘ her with him with a Sum of mo ‘ ney, promising to See her there dis ‘ posed of in marriage to Some mer ‘ chant or officer in those parts, ‘ which we doubted not bit she ‘ would readily consent to, finding ‘ herself among strangers, and bereft ‘ of all hopes of Seeing you any more. ‘ I have never heard of her since. ‘ This action I heartily repent of,
-‘ and to expiate my fault, I shall
-* leave you. all my fortune, with a
-stridi
-. r
-miss'harriot Montague. 105-
-'strict injunction, as you hope for ‘ everlasting happiness hereaster, to ‘ go in Search of her, and employ it ‘ in endeavouring to find her; and if
-* she be marriet give her part to
-‘ make her happy: and may that God,
-‘ whose merciful forgiveness and par ‘ don I now implore, direct and pro ‘ Sper you, and bring you Safe toge ‘ there, if she be yet single. I can. ‘ do no more, but ask you to accept
-* of this my raft ation as an atonement for all the trouble I have oc ‘ cafioned you, and not hate my ‘ memory.. I was fo struck with ‘ hearing Clementina was Sent So far
-o ^
-‘ offy and fo disarmed of my resent ‘ meats by the sight of my wife’s ‘ condition, who was now struggling, ‘ with death, that the tears poured. ‘' down my face, and my Soul was So • ‘ oppressed, that I Swooned; which -‘ So disturbed her, that her confessor,
-‘ who was present at this discourse,
-‘ ordered me to be carried out of the y room.’. Here he seemed faint, and.
-F 5 f^on;
-io The HISTORY OP
-Don Carlos gave him Some wine; after which he continued his relation in this manner. ‘ Recovering from my ‘ Swoon, I Soon discovered by the ‘ outcries and lamentations of the ^ Servants that my wife was dead. I ‘ behaved myself with all the decency ‘ and prudence I was able on this
-* occasion, and buried her Suitable to
-* her birth and fortune; after which
-* I thought of nothing but my voyage
-* to Canada, having informed myself' ' the ship and captain’s name,
-*■ who carried away Clementina j ‘ which was not returned, or expected
-back to France m three years,
-‘ being gone a trading .voyage for ‘ Some merchants at Dieppe. I left'
-* my father to take care of the estate,
-A J
-'who Sent my brother to reside there;
-‘ made my •will, and having provid ed myself with money, bills of ex
-* and all other necestaries, L
-‘ went aboard a merchant ship called"
-‘ the Venturous, bound for those ‘ parts to trade, not doubting but that
-* we. -
-%
-I
-4
-Miss Harriot Montague. 107
-^ we Should meet with the captaia
-* there who had conveyed Clemen ‘ tina thither, and then there was no ‘ question but I Should, make him con ‘ fess where he had left her. We had ‘ a prosperous voyage for some weeks,,
-< but coming near Newfoundland, *
-‘ we unfortunately met a pirate Ship,
-^ who boarded and took us after a ‘ fierce dispute which lasted three ‘ hours, in which our strip was fo ‘ shattered, that She Sunk as they « were rifling her; in which accident ‘ Several of the pirates perished, and i ‘ all the paftengers and Sailors belong ‘ ing to our Ship, except my unfor
-* tunate Self and Surgeon, who were:
-‘ taken up by ropes into the pirate.
-‘ Ship, where we were put in irons :
-‘ into the hold, I suppose because ‘ they were in an ill humour at the:
-* loss of their companions andi the.
-‘ strip. Some days past before we:
-had the favour of being brought up
-* the deck, and our irons taken "‘off. We were both very sick, -,
-j ‘ 'aso
-io The HISTORY OF
-«
-‘ as for my part, I was So afflidfed at ‘ being prevented from going my in ‘ tended voyage, that I was eareless
-‘ of what became of me. There was
-* amongst the pirates some that look ‘ CD like gentlemen, but they all ‘ talked and behaved themselves like ' desperate villains, oaths and curses ‘ were as common as in a gaming ‘ house, they drank like Germans,
-‘ and discourfed like atheists, and li ‘ bertines; they asked us many nuef ‘ tions, who and what we were, to
-, ‘ all which we answered cautioufiy.
-‘ 1 told them, if they would Set me ‘ on any Shore thereabouts, from « whence I might travel by land, or get Shipping to Canada, I would ‘ promise if I lived to return to ‘ France, to remit a thousand pif ‘ toles to any part of the world, or ‘ person they Should name; they took
-* little notice of my offers, but let us
-* have the liberty of walking in the
-‘ daytime on the decks, and at •
-* night they put us under, hatches.
-‘at;
-«
-missharriot Montague. 109
-* At last we arrived at the island of • * Providence, where they were re
-‘ ceived by their companions with < much joy. We remained in this ‘ wretched place ten whole months.
-^ in which time they used us like ‘ staves, with many others whom
-* they could not prevail with to take ' ‘ up their desperate manner of liv
-* At last, wearied with this ^ way of life, we desired to go out in ‘ one of their Ships, desiring them to ‘ treat us as She should deserve by ‘ our bravery and good behaviour:
-‘ they contented; and now all my ‘ hopes were that 1 should meet a ‘ welcome death to free me from the
-* miteries cf life, or find feme way to ‘ escape from them. There were
-* beside mytelf and friend, six gen
-* three of whom were Spa ‘ nlards, and the other three enp lish^
-‘ who, like us, went with them shro’
-* necefiity; the ship was a frigate of ‘ 30 guns, and carried 140 hands l they designed to cruise near the
-‘ Havanna,
-no The HISTORY OF
-‘ Havanna, in hopes to catch Some of ‘ the Spanish ships coming out thence; ‘ as we lay cruizing at Some distance, ‘ a dreadful storm arose, which at last ‘ tore our ship in pieces near this ‘ issand where we now are j every ‘ man was obliged to shift for him ‘ self; I catched hold of a plank,
-‘ floating on which, it pleased Provi ‘ dence to cause the winds and waves ‘ to cast me on this place much bruis ‘ ed; here I have been three weeks.
-‘ I made this hut with Some old ‘ planks and what I found on the ‘ shore, to secure me from the cold
-* and storms; this old mattress and coat *^1 also found; all my food has been ‘ the eggs of sea fowls and birds,
-‘ which I have daily gathered up on ‘ the Sands and in holes in the rocks ‘ and hollow trees; but the anguish ‘ of my mind, with the bruises I re
-* in my stomach in the ship
-* had at last reduced me to ‘ Such weakness, that I could no lon ‘ ger rise on my feet to Seek for food;
-‘ and
-miss Harriot Montague, hi
-‘ and when divine Providence brought ' you here to my relief, I had been ‘ three whole days without tasting ‘ any Sustenance, and had by this been ‘ freed from my miferies.’ Then he fetched a deep sigh, concluding his story with these words.: ‘yet lam ‘in duty bound to thank God and ‘ you, and hope, since he has pro ‘ longed my stay on earth a little longer, that he will make life fupport ‘ able, by furnishing me with means ‘ to find her out, without whom I ‘ must be ever wretched.
-t
-As Soon as the unfortunate Le Montague had made an end of his story, the compassionate Harriot, touched to the heart with the misfortunes of her cousin which So equalled her own, acquainted him who she was, and in few words of the manner of her coming to that place; at which he was. filled with admiration : but he was. fo amazed when he heard that lean der and Camilla had left Istanee in Such a, manner, that, he could Scarce.
-credit
-H
-112 The HISTORY OF
-credit it, they being his intimate friends; yet She in the relation made no mention of Don carlos’s treachery or lestnder’s love to her. Saying only he was gone to Virginia in a French ship. The conversation now turning to be general, - every per Son Spoke their Sentiments of Le montague’s adventures; Some days pasted with much anxiety, provisions were husbanded, and their fears of wanting daily increased;; Le Montague Soon ■ mended, and company rendered their Solitary way of living in this desolate place more Supportable; they were hourly in expectation of feeing Some ship pass by to the adjacent istands, having placed a white cloth on the top of a stick on the most eminent part of the istand, to give notice of their distress : thus they Spent three whole weeks, in which time most of the victuals they had Saved were, Spent, the dreadful apprehensions of famine appeared in every face, and every one walked about looking
+‘resolution, and going down to my father, acquainted him with all that had passed between us, desiring him to prevent me from following her, which he, being highly incensed against me, too well performed: for he came up to my chamber, where I was dressing in order to follow her, but he kept me there in discourse whilst she took coach and was gone I knew not whither, nor could I for some days hear any news of her. Mean time my father and brother continually persecuted me on her account, bidding me go home and live like a Christian; nay they employed several priests and the bishop of the place to talk to me. So that I was now looked on with much distike; and
+being weary of this schooling, I set out for home, where I found my wife sick, which indeed so touched me, that I repented of having
+used her so unkindly, and resolved to treat her more respecfully
+[103]
+for the time to come. A whole year past, all which time she languished of a lingering fever and inward decay, grief having doubtless seized her spirits. I used her with as much tenderness as if I had been her son; we never bedded together, but kept two apartments. In fine, she died, and on her deathbed, some hours before she expired, took me by the hand as I sat on her bedside, and said these words to me, which are still fresh in my memory; Mr. Le Montague, I am now going to leave you, and I hope to be at rest; I have loved you as tenderly and passionately as ever wife did a husband; and though I committed a great folly in marrying a person who was so much younger than myself, and pre-engaged, yet no vicious inclinations induced me to it, as my behaviour to you since must convince you. I flatter myself, that gratitude and my behaviour towards you, would have
+[104]
+gained your love, but was deceived. I have never been to blame in all my conduct towards you, but to my child I have been cruel and unkind; for fearing a criminal conversation between you if you came together, I used all my endeavours to keep you asunder, and finding
+that even the convents could not secure her, provoked by your ill usage, at last I resolved to send her out of France, which I effected by means of a captain of a ship which was bound to Canada; who took her with him with a sum of money, promising to see her there disposed of in marriage to some merchant or officer in those parts, which we doubted not but she would readily consent to, finding herself among strangers, and bereft of all hopes of seeing you any more. I have never heard of her since. This action I heartily repent of, and to expiate my fault, I shall leave you all my fortune, with a
+[105]
+strict injunction, as you hope for everlasting happiness hereaster, to go in search of her, and employ it in endeavouring to find her; and if she be married give her part to make her happy: and may that God, whose merciful forgiveness and pardon I now implore, direct and prosper you, and bring you safe together, if she be yet single. I can do no more, but ask you to accept of this my last action as an atonement for all the trouble I have occasioned you, and not hate my memory. I was so struck with hearing Clementina was sent so far
+off and so disarmed of my resentments by the sight of my wife’s condition, who was now struggling with death, that the tears poured down my face, and my soul was so oppressed, that I swooned; which so disturbed her, that her confessor, who was present at this discourse, ordered me to be carried out of the room.’
+
+Here he seemed faint, and
+[106]
+Don Carlos gave him some wine; after which he continued his relation in this manner. ‘Recovering from my swoon, I soon discovered by the outcries and lamentations of the servants that my wife was dead. I behaved myself with all the decency and prudence I was able on this occasion, and buried her suitable to her birth and fortune; after which I thought of nothing but my voyage to Canada, having informed myself of the ship and captain’s name, who carried away Clementina; which was not returned, or expected back to France in three years, being gone a trading voyage for some merchants at Dieppe. I left my father to take care of the estate, who sent my brother to reside there; made my will and having provided myself with money, bills of exchange, and all other necessaries, I went aboard a merchant ship called the Venturous, bound for those parts to trade, not doubting but that
+[107]
+we should meet with the captaian there who had conveyed Clementina thither, and then there was no question but I should make him confess where he had left her. We had a prosperous voyage for some weeks, but coming near Newfoundland, we unfortunately met a pirate ship, who boarded and took us after a fierce dispute which lasted three hours, in which our ship was so shattered, that she sunk as they were rifling her; in which accident several of the pirates perished, and all the paftengers and sailors belong to our ship, except my unfortunate self and Surgeon, who were taken up by ropes into the pirateship, where we were put in irons into the hold, I suppose because they were in an ill humour at the loss of their companions and the ship. Some days past before we had the favour of being brought up the deck, and our irons taken off. We were both very sick, 
+[108]
+as for my part, I was so afflidfed at being prevented from going my intended voyage, that I was careless of what became of me. There was amongst the pirates some that looked like gentlemen, but they all talked and behaved themselves like desperate villains, oaths and curses were as common as in a gaming ‘ house, they drank like Germans, and discoursed like atheists, and libertines; they asked us many questions, who and what we were, to all which we answered cautiously. I told them, if they would set me on any shore thereabouts, from whence I might travel by land, or get shipping to Canada, I would promise if I lived to return to France, to remit a thousand pistoles to any part of the world, or person they should name; they took little notice of my offers, but let us have the liberty of walking in the daytime on the decks, and at night they put us under hatches.
+[109]
+At last we arrived at the island of Providence, where they were received by their companions with much joy. We remained in this wretched place ten whole months in which time they used us like slaves, with many others whom they could not prevail with to take up their desperate manner of living. At last, wearied with this way of life, we desired to go out in one of their ships, desiring them to  treat us as she should deserve by our bravery and good behaviour: they contented; and now all my hopes were that I should meet a welcome death to free me from the misery of life, or find some way to escape from them. There were beside myself and friend, six gentlemen, three of whom were Spaniards, and the other three English, who, like us, went with them thro' necessity; the ship was a frigate of 30 guns, and carried 140 hands: they designed to cruise near the
+[110]
+Havanna, in hopes to catch some of the Spanish ships coming out thence; as we lay cruizing at some distance, a dreadful storm arose, which at last tore our ship in pieces near this island where we now are; every man was obliged to shift for himself; I catched hold of a plank, floating on which, it pleased Providence to cause the winds and waves to cast me on this place much bruised; here I have been three weeks.mI made this hut with some old planks and what I found on the shore, to secure me from the cold and storms; this old mattress and coat I also found; all my food has been the eggs of sea fowls and birds, which I have daily gathered up on the sands and in holes in the rocks and hollow trees; but the anguish of my mind, with the bruises I recieved in my stomach in the ship had at last reduced me to such weakness, that I could no longer rise on my feet to seek for food;
+[111]
+and when divine Providence brought you here to my relief, I had been three whole days without tasting any sustenance, and had by this been freed from my miseries.’ 
+
+Then he fetched a deep sigh, concluding his story with these words: ‘Yet I am in duty bound to thank God and you, and hope, since he has prolonged my stay on earth a little longer, that he will make life supportable, by furnishing me with means to find her out, without whom I  must be ever wretched.’  
+
+As soon as the unfortunate Le Montague had made an end of his story, the compassionate Harriot, touched to the heart with the misfortunes of her cousin which so equalled her own, acquainted him who she was, and in few words of the manner of her coming to that place; at which he was filled with admiration: but he was so amazed when he heard that Leander and Camilla had left France in such a manner, that he could scarce.
+[112]
+credit it, they being his intimate friends; yet she in the relation made no mention of Don Carlos’s treachery or Leander's love to her. Saying only he was gone to Virginia in a French ship. The conversation now turning to be general, - every person spoke their sentiments of Le montague’s adventures; some days pasted with much anxiety, provisions were husbanded, and their fears of wanting daily increased; Le Montague soon mended, and company rendered their solitary way of living in this desolate place more supportable; they were hourly in expectation of feeing Some ship pass by to the adjacent istands, having placed a white cloth on the top of a stick on the most eminent part of the istand, to give notice of their distress : thus they Spent three whole weeks, in which time most of the victuals they had Saved were, Spent, the dreadful apprehensions of famine appeared in every face, and every one walked about looking
 what.
 miss Harriot Montague. 113
 what they could find to eat, in hcpes to Satisfy nature without diminishing the Small stock of provisions they had left. Don Carlos, who was one of the most vigilant in Searching out Something to give Harriot fit for her to eat, went one morning to the farthest part of the istand, which was about Seven miles over, and there as cending a high rock, stood looking on the Sea, and perceived a boat fastened in, a little cliff of the rock, out of which cliff a black came, and launching out the boat, put off to sea, making towards another istand. Don Carlos concluded this person lived Somewhere in this rock, and resolved to Search about it in hopes to discover Some persons there, by whom he might be astisted and his friends, to get from this dismal istand, or at least to wait the man’s return, or find out his abode, in order to return thither that evening. He found it very dangerous to descend on that fide of the rock next the sea, and was long eter
