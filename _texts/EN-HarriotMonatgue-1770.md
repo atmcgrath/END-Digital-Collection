@@ -449,12 +449,10 @@ merits not your love, he is false to another, and with him you must expect a cur
 [134]
 remove your scruples, and acquit you of your promises to the treacherous Leander, my now hated rival.’ 
 
-At these words he let go her hand in a kind of disorder, and walked hastily back towards the tent. She followed, much distracted in her thoughts; he stayed till she overtook, him, but went along with her home without speaking another word. After supper, Harriot retiring to bed, could not dose hep eyes all night;; and having in that time well weighed and considering all he said, resolved
-to consent to marry him, choosing rather to yield to be his with honour than reduce him to treat her in a manner she dreaded worse than death. camilla’s following Leander, and his negligence, as She construed it, in going into the French Ship, and leaving her behind, had a little piqu’d her; and her circumstances, being in Don carlos’s hands, obliged her to agree to be his y nor did she distike him,
-he;
-miss Harriot Montagite, r jer
-lie was beautiful, had a great fortune,
-was nobly born,, and finely
+At these words he let go her hand in a kind of disorder, and walked hastily back towards the tent. She followed, much distracted in her thoughts; he stayed till she overtook, him, but went along with her home without speaking another word. After supper, Harriot retiring to bed, could not dose hep eyes all night; and having in that time well weighed and considering all he said, resolved
+to consent to marry him, choosing rather to yield to be his with honour than reduce him to treat her in a manner she dreaded worse than death. Camilla’s following Leander, and his negligence, as she construed it, in going into the French ship, and leaving her behind, had a little piqu’d her; and her circumstances, being in Don Carlos’s hands, obliged her to agree to be his; nor did she dislike him,
+[135]
+he was beautiful, had a great fortune, was nobly born,, and finely
 bred. She rose, determined to compose
 her thoughts, and, if possible,,
 the pashon she had for Leander
