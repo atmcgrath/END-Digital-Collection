@@ -817,274 +817,41 @@ She never could be prevailed on to mention his real name.
 
 I have known her long. I ever foung her truly virtuous, the most delicate and modest of her sex. But even angels have fallen. She seemsed, even after her fall, to have all the purity of one. I am sure her eyes never were dry for two hours to since she came into this retirement. 
 
-She endeavoured to conceal her griefs from me, because I was too much affected and asbibled by them;. 
-When alone. She was constantly‘upon 
-/ 
-4 
-'her 
-V 
-9 
-( 107) 
-her knees; and when I sat with her. She would frequently forget herfeif, and utter an ejaculation. She used sometimes 
-to attempt to work, but could 
-/ 
-not attend to either that or reading, unless She got Some book which gave a vent to her tears. Then She would read for hours. But She was never tired of writing, and seemed to be foriy to meet with any interruption, though She burned more than half of 
-what She wrote, 
-/ 
-» 
-'I never saw any person So devout, without the least; tinge of superstition. She often read over the funeral service; 
-and when She came to that part, 
-jfor 
-h 
-( 108) 
-% * 
-For I believe that my redeemer liveth: She would say, “Indeed I believe it, 
-4 
-“and that belief has reslored me to 
-, “ray fenses, and kept me So long in 
-% 
-“this vile world. But my life, at last, 
-I 
-“mull end, my dear, dear Fidelia. “Suppose I Should live fifty years. It 
-“is terrible, indeed, to think of it. “But every day, every moment, takes “off a grain at lead of the dead load 
-4 * 
-“that weighs me down to earth. 
-_ _____________________________ ^ 
-“When all these earthly particles are 
-“worn away, I Shall ascend my nam 
+She endeavoured to conceal her griefs from me, because I was too much affected and asbibled by them. When alone, she was constantly upon her knees; and when I sat with her, she would frequently forget herself, and utter an ejaculation. She used sometimes to attempt to work, but could not attend to either that or reading, unless she got some book which gave a vent to her tears. Then she would read for hours. But she was never tired of writing, and seemed to be sorry to meet with any interruption, though she burned more than half of what she wrote, 
 
-“tive Skies.’* Then She would Start and fliudder, and say, “Can pollu “tion ascend ?’* 
-• r 
-t 
-I 
-i 
-I cn 
-I 
-( 109) 
-• I 
-I 
-I endeavoured, you may believe, to comfort her. Indeed I wanted comfort myself: for She has made me 
-’ ■ I. ► ■ ■ ' • f 
-look with indifference on everything 
-f 
-in. this life, and with abhorrence on mankind. I could dwell for ever on this fubjeff, but mull draw towards the too melancholy catallrophe. 
-I' 
-/ 
-• 1 4 
-She wrote almosl to the last, and • has left ipe little farther to say; yet I am unable to say it. I think flic was very well assured of her approaching end, though fhc appeared more cheer full and composed than 1 had ever seen 
-X - ‘ 
-her Since we lasl met. 
-t 
-Ah! 
-< 
-( ” 0) 
-Ah 1 madam, wc can both remember when She was all gaide de cotur t 
-) ' ■ ■ 
-when it was impossible tq be dull or ill tenipered in her company.. She was the envy of her own, and the admiration of the other sex. Good 
-\ 
-God! to think she should be cut down. - like a lily in all her loveliness! Her bloom returned a few days before her death. Indeed she scarce ever looked more beautiful. She seemed to have Heaven in her afped. Yet She would often drop a tear, though ap patently composed. 
-You know what lovely eyes she had. They were brilliant to the last - 
-voice 
-% 
-« 
-( jvl) 
-% 
-voice was sweeter and more plaintive than the Song of Philomel. How 
-I 
-many have I heard say, in the days when She was beloved and admired, 
-I 
-that that softness of accent touched 
-* 
-their hearts more than her beauty. Indeed She was truly lovely in mind 
-s 
-and body. But what avails it? She is mingled with the dufti Even her 
-i 
-name is unknown in the Spot where her ^ 
-/ 
-poor relics lie. Had I the talents of 
-a popcj or her beloved Littleton, I 
-% 
-would celebrate her memory in never 
-I 
-dying verse. 
-/ 
-Have I not Said enough? musl I describe a Scene impossible for me to 
-write. 
-■ () 
-write, dr you to conceive? I may at. 
-. ■ 
-/ 
-tempt it, but, indeed, madam, I Shall never get through.it. 
-I 
->. • 
-She went to churchy on Sunday 
-I 
-morning, though I endeavoured to distuade her from it, for she was very weak. I really thought .She would have recovered, she Teemed fo much 
-w 
-better, till wednesday, when she was Seized with faintings, to which, indeeo, her constitution had always a firong propensity. those, however, which she 
-now had were Co violent, that I was greatly afraid they would prove fatal. My fears, alas I were but too Soon 
-verified, ■ ^ 
-'On 
-I 
-I 
-/ 
-( «>3) 
-On Friday morning flic attempted 
-to rise at eight, her usual hour, but 
-/ • 
-unable. She drank Some tea. I never could prevail on her to take any other breakfast. She then begged me' to give her pen, ink and paper, and to 
-leave her., I wished to prevail on her 
-\ 
-to defer writing. “Indeed, my dear Fidelia, if I defer it now, I Shall“ “a promise to one who has, it is true, broke many to me; every “one, in fast, he ever made me. But 
-I“ 
-“never broke one to him; and this “is the last, I think, I ever made 
-N 
-“him, or ever Shall perform to him.” 
-* 
-What surprised me, fly filed hot a 
-/ 
-tear when She Ipoke this. I never vol. II I before 
-« 
-/ 
-( .114) 
-% 
-A 
-'before heard her mention any circitm v. ilance relative to that villain — can 1 
-- f \ 
-» • ( 
-, call him anything elfe *^without abim < .dance of tears. - 
-• L ■. 
-. \ 
-I left her relusiantlyj on her astur ’ ing me She would ring if She found' 
-f ^ 
-• weak. Though I was sure an 
-I. 
-interruption would bedifagreeable, -!•! could not help frequently going into i the room. She perceived my anxiety, 
-and begged me to Slay since it gave me pain to leave her. - 
-t 
-4 
-She complained that'she could not 
-see to write, but Still continued to attempt it. You know, my dear madam, 
-She 
-p 
-\ 
-I 
-4^ 
-t 
-() 
-t 
-she was very quick at her pen; 
-« 
-she Seemed now to write very flo 
-I had previp usly Sent for the Do 
-who from the firs, good manj 
-told me her disorder was on her m 
-: and past his fldll.^ — He Said, indeei * 
-believed, past human skill ^unlel 
-.could obliterate certain ideas, ^ w 
-too Slrongly worked on her ima 
-• « 
-and sapped the foundatior 
-« 
-that delicate fabric we can never I 
-to keep frorn falling into dis 
-» 
-tion. 
-» 
-/ 
-• • 
-:, I hoped, however, still tear ' 1 1*1 
-ii) 
-I 
-I ^ 
-fore in indulging the idea of her dc llroyer, aidin accusmg herself; .a5 rh nioft guilty of her sex. 
-V - 
-^ ■ ' ■. - '. :... ^ I' t. 
-. ■ =• •... 
-n... r. 
-. 
-'- 'When the dodor came, ftie fpcike 
-\ 
-to; him with a. composure which surprised us both, and told him. She was obliged to him for all his favours, but 
-had'it; heen in human Skill, to.have 
-% 
-lengthened her existence here,, .should « 
-thought him, who. attempted it, 
-y 
-her word enemy. “I am going to 
-w“; 
-“;, before ■the maker of .all things, the judge of all men. It is awefuh it isdreadful. Nature Shrinks 
-# 
-“at the idea. I have been, indeed, 
-“a very guilty wretch; but my crimes ■ 
-po a 
-'t 
-..vu 
-‘. V „ 
-v y * ■* j 
-'./ 
-■ LI •;; .s?cv': ts tta 
-procehdfcd riot from a maligftit)rf^' 
-I 
-* 
-“but too great a teriderness of hearts' 
-O 
-“I dare not hope for mercy, but' ihrbugh Christ; but he is more'able 
-I 
-to pardon than I to 'offerid, '* and iri “hitn‘ I confide; My frailty, as a 
-“- has been punillied by the >’ 
-“'author of mv guilt. I have'not art ' 
-y o 
-A 
-“idea at this moment So dreadful, as “the fear that he will suffer for itc -, 
-“But I pray, and beg all who ever ' 
-% 
-“loved me to prayi that 'he rnay"re - “spent; and be rceeived into mercy.’*, ' 
-• ♦ rv 
-'(b ‘ C ■ ■ ' • ■. • V ■,. ■ ■ - • 
-/ 
-She Showed no weakness, till siio came to that part of her'fpeech, in '' 
-which file mentioned her fears for her 
-I 5 be( 
-() 
-» 
+I never saw any person so devout, without the least tinge of superstition. She often read over the funeral service; and when she came to that part, *For I believe that my redeemer liveth:* She would say, “Indeed I believe it, and that belief has restored me to my fenses, and kept me so long in this vile world. But my life, at last, must end, my dear, dear Fidelia. Suppose I should live fifty years. It is terrible, indeed, to think of it. But every day, every moment, takes off a grain at lead of the dead load that weighs me down to earth. When all these earthly particles are worn away, I shall ascend my native skies." Then She would start and shudder, and say, “Can pollution ascend?" 
 
-betrayer; but that, threw her int agony we thought would have Cj 
-• f, • ' ‘ 
-her unfortunate life. On the a 
-« 
-•, 
-cation of Some cordials ssie recov* 
-f 
-and was again composed. The i 
-, 
-tor, as well as I, was dissolve 
-4 
-tears, during the time ssie addr 
-• s. 
-of. He assured me She had notr days to live, and his prediflion too true. 
-- • 0 
-She desired to Send for the Ch 
-tnari nearesl to us, and, with a d tioii which proceeded from the h and a firm trust in God. She ioim 
-g 
-/ 
-( *19) 
-•? • 
-s. 
-live to rituals or putward obferyang( 
-• * ^. 
-Her devotion proceeded from h 
-9 
-heart, and a convisfion of the exisfen of God. Never was any person So i 
--. t • 
-Signed to his will from reason and i 
-fleslion. For her passions were war 
-• < 
-■ I 
-to the lafl, though regulated ever I 
-a mosl exalted undersfanding arid gre 
-• * 
-ilrength of mind. must I exce 
+I endeavoured, you may believe, to comfort her. Indeed I wanted comfort myself: for she has made me look with indifference on everything in this life, and with abhorrence on mankind. I could dwell for ever on this subject, but must draw towards the too melancholy catastrophe. 
+
+She wrote almost to the last, and has left me  little farther to say; yet I am unable to say it. I think she was very well assured of her approaching end, though she appeared more cheer full and composed than I had ever seen her since we last met. 
+
+Ah madam, we can both remember when she was all gaiete de caur; 
+when it was impossible to be dull or ill tempered in her company. She was the envy of her own, and the admiration of the other sex. Good God! to think she should be cut down like a lily in all her loveliness! Her bloom returned a few days before her death. Indeed she scarce ever looked more beautiful. She seemed to have Heaven in her aspect. Yet she would often drop a tear, though apparently composed. 
+
+You know what lovely eyes she had. They were brilliant to the last. Her voice was sweeter and more plaintive than the song of Philomel. How many have I heard say, in the days when she was beloved and admired, that that softness of accent touched their hearts more than her beauty. Indeed she was truly lovely in mind 
+and body. But what avails it? She is mingled with the dust. Even her name is unknown in the spot where her poor relicks lie. Had I the talents of a Pope, or her beloved Littleton, I would celebrate her memory in never dying verse. 
+
+Have I not said enough? Must I describe a scene impossible for me to write, or you to conceive? I may attempt it, but, indeed, madam, I shall never get through it. 
+
+She went to church on Sunday morning, though I endeavoured to dissuade her from it, for she was very weak. I really thought she would have recovered, she seemed so much better, till wednesday, when she was seized with faintings, to which, indeed, her constitution had always a strong propensity. Those, however, which she now had were so violent, that I was greatly afraid they would prove fatal. My fears, alas! were but too soon verified.
+
+On Friday morning she attempted to rise at eight, her usual hour, but unable. She drank some tea. I never could prevail on her to take any other breakfast. She then begged me to give her pen, ink and paper, and to leave her. I wished to prevail on her 
+to defer writing. “Indeed, my dear Fidelia, if I defer it now, I shall break a promise to one who has, it is true, broke many to me; every one, in fact, he ever made me. But never broke one to him; and this is the last, I think, I ever made him, or ever shall perform to him.” 
+
+What surprised me, she shed not a tear when she spoke this. I never before heard her mention any circumstance relative to that villain - can  call him anything else? - without anbundance of tears. 
+
+I left her reluctantly, on her assuring me she would ring if she found herself weak. Though I was sure an interruption would disagreeable, I could not help frequently going into the room. She perceived my anxiety, and begged me to stay since it gave me pain to leave her. 
+
+She complained that'she could not see to write, but still continued to attempt it. You know, my dear madam, she was very quick at her pen; but she seemed now to write very slowly. I had previously sent for the Doctor, who from the first, good man, had
+told me her disorder was on her mind, and past his skill. - He said, indeed he believed, past human skill - unless we  could obliterate certain ideas, which too strongly worked on her imagination and sapped the foundation that delicate fabric we can never I to keep from falling into dissolution. 
+
+I hoped, however, still to amuse her; and he ordered her cordials and gentle opiates. But she took a pleausre in indulging the idea of her destroyer, and accusing herself as the most guilty of her sex. 
+
+When the Doctor came, she spoke to him with a composure which surprized us both, and told him, she was obliged to him for all his favours, but had it been in human skill to have lengthened her existence here, should she have thought him, who attempted it, her word enemy. “I am going to appear before the maker of all things, the judge of all men. It is aweful, it is dreadful. Nature shrinks at the idea. I have been, indeed, a very guilt wretch; but my crimes proceeded not from a malignity, but too great a tenderness of heart. I dare not hope for mercy, but through Christ; but he is more able to pardon that I to offend, and in him I confide. My fraility, as a woman, has been punished by the author of my guilt. I have not the idea at this moment so dreadful, as the fear that he will suffer for it. But I pray, and beg all who ever loved me to pray, that he may repent, and be received into mercy." "
+
+HSe showed no weakness, till she came to that part of her speech, in which she mentioned her fears for her betrayer; but that threw into agaony we thought would have ended her unfortunate life. On the application of some cordials she recovered, and was again composed. The Doctor, as well as I, was dissolved in tears, during the time she addressed us. He assured me she had not many days to live, and his prediction too true.  
+
+She desired to send for the Clergy man nearest to us, and, with a devotion which proceeded from the heart, and firm trust in God, she joined in prayer. I have always remarked she was very devout, though little attentive to rituals or outward observances. Her devotion proceeded from her heart, and a conviction of the existence of God. Never was any person so resigned to his will from reason and reflection. For her passions were war to the last, though regulated ever I a most exalted understanding and great strength of mind. Must I except when she fell 
 when file fell a Sacrifice to that mi 
 . / 
 derer of her peace? Indeed, as f Said, he literally planted a dagger 
