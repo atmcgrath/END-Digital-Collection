@@ -413,13 +413,12 @@ In fine, he waited only an opportunity to get me into his little boat, which he 
 ‘Now, Madam (said he) ‘you shall see sport.’ He was pulling in a little net; I sat down, and the maid stood on the shore. He, in dragging the net, loosed the boat from the shore, which beginning to drive out to sea, surpriz’d me; but he bad me sit still, and fear nothing I sat very patient for some time, till at last seeing him hoist the sail, and go farther from land, I began to be frightened; he pretended to be so too, and persuaded me he could not help it, that the wind and stream drove the boat against his will. He pulled a little compass out of his pocket, by
 [124]
 which he steer’d. We were two nights and days thus sailing, in which time we pass’d by some ifiands, on which he pretended he could not
-land, because, as I since discover’d, he knew they were inhabited, and had besore mark’d out this desolate piace to carry me to. At last he brought me hither half dead with the fright, and faint, having eat only a little of the bread, and drank out of the bottle of wine which he had in the boat, in which he had put his tools for making mathematical instruments, and colours for painting. When we were landed, he seemed mighty solicitous where to find a place for me to lie down, and food for me; and brought me into the cavern in the rock: there being seated on his jacket, on the ground, we eat what fish he had in the boat, broiled on a fire he made with sticks, having a tinder bjox in his pocket. After we had eat
+land, because, as I since discover’d, he knew they were inhabited, and had besore mark’d out this desolate place to carry me to. At last he brought me hither half dead with the fright, and faint, having eat only a little of the bread, and drank out of the bottle of wine which he had in the boat, in which he had put his tools for making mathematical instruments, and colours for painting. When we were landed, he seemed mighty solicitous where to find a place for me to lie down, and food for me; and brought me into the cavern in the rock: there being seated on his jacket, on the ground, we eat what fish he had in the boat, broiled on a fire he made with sticks, having a tinder bjox in his pocket. After we had eat
 he told me his design. 
 
 ‘My dear
 [125]
-lady. Said he, I love you to mad
-* and was resolved to possess you or die : though my outside is black, and distasteful, I fear, to your eyes, yet my soul is as noble and lovely as your own. I was born a prince, and free; and tho' chance made me a stave, and the barbarous Christians bought and sold me, yet my mind they never could subdue. I adore you, and have long designed what I have now effected. No human creature dwells here besides ourselves, and from this place you never must expect to return.’
+lady. Said he, I love you to madness and was resolved to possess you or die: though my outside is black, and distasteful, I fear, to your eyes, yet my soul is as noble and lovely as your own. I was born a prince, and free; and tho' chance made me a stave, and the barbarous Christians bought and sold me, yet my mind they never could subdue. I adore you, and have long designed what I have now effected. No human creature dwells here besides ourselves, and from this place you never must expect to return.’
 
 Here he proceeded to kiss me, my distraction was such, that I swooned; he took the advantage of those unhappy minutes, when I was unable to resist; and, in fine, has kept me here two whole years, maintaining me by carrying what he makes to the adjacent islands; where he sells his ingenious work to the inhabitants, and brings back provisions and clothes for us:
 [126]
@@ -449,46 +448,29 @@ merits not your love, he is false to another, and with him you must expect a cur
 [134]
 remove your scruples, and acquit you of your promises to the treacherous Leander, my now hated rival.’ 
 
-At these words he let go her hand in a kind of disorder, and walked hastily back towards the tent. She followed, much distracted in her thoughts; he stayed till she overtook, him, but went along with her home without speaking another word. After supper, Harriot retiring to bed, could not dose hep eyes all night; and having in that time well weighed and considering all he said, resolved
+At these words he let go her hand in a kind of disorder, and walked hastily back towards the tent. She followed, much distracted in her thoughts; he stayed till she overtook, him, but went along with her home without speaking another word. After supper, Harriot retiring to bed, could not close her eyes all night; and having in that time well weighed and considering all he said, resolved
 to consent to marry him, choosing rather to yield to be his with honour than reduce him to treat her in a manner she dreaded worse than death. Camilla’s following Leander, and his negligence, as she construed it, in going into the French ship, and leaving her behind, had a little piqu’d her; and her circumstances, being in Don Carlos’s hands, obliged her to agree to be his; nor did she dislike him,
 [135]
-he was beautiful, had a great fortune, was nobly born,, and finely
-bred. She rose, determined to compose
-her thoughts, and, if possible,,
-the pashon she had for Leander
-out of her Soulbut that was' impossible.
-Don Carlos next morning appeared with an imusual gravity in his looks; the longboat Ibon arrived with the Spanish eaptain, and all the gentlemen he had on board, and was re — "eeived very joyfully; all things wortte carrying .away vere already packed up by the diligent Sailors, and soon lent a board; and the boat returning sh. the evening, Don Carlos, Harriot, Leonora, Mons. Le Montague, Domingo, the Spanish Captain, and all the rest went into it, bidding adieut to the desolate istand, and arrived Safe to the ship, where they were welcomed with the guns and good wine. The next morning they weighed anchor,, and she ship Set Sail 'for the istand of
-The H ISTORY of
-St. Domingo • then Don Carlos earn -- estly Sollicitcd Harriot to marry him, and was Seconded by her cousin, and the good father who was chaplain to' the Sliip, a friar whose name was Ignatius, to whom he had declared his reasons and resolutions j at last She yielded, and was that day married, as was also Leonora to her amorous Moor, who on this occasion behaved himself So handsomely, and expressed Such Satisfaction and transport, that everybody was charmed with him. In a few hours they reached the istand, and Harriot was Gonduded by Don Carlos, to his father’s castle, where she was Surprised at the great attendance and Sumptuous furniture; the governor received his Son with great joy and affection, and when he presented Harriot to him, begging his bleshng and pardon for marrying without his eonsent, he took her up and embraced her. saying ‘ If She be as vir
-* '
-Wtm
-I
-miss Harriot Montague. 137
-* tuous as fair, which I doubt not,
-‘ Since you have made her your wife,
-‘ and be a catholic, I not only give ‘ you my blefiing, but will do all ‘ all that is necessary to make you ‘ great and happy Here Harriot was Surprised, being a protestant, and was ready to fink; but Don Carlos, Squeezing her by the hand to give her a hint to conceal her disorder, replied briskly, ‘ Honoured sir,
-‘ She is all you can desire, virtuous,
-‘ wise, pious, and will I am certain ‘ be anhonour and comfortto usboth.’ Don carlos’s Sister, the charming la vinia, a most accomplish’d young lady, coming into the presence chamber, welcomed her brother and new Sister, to whom She made a present of Some very rich jewels stie had on; and now all the court (for So the governor’s palace was justly called, for he was there as great, and lived like' a king) was Soon crowded with all the principal gentlemen and mer
-chantsi^
-i
-♦
-9
-138 The HISTORY OF
-chants in the town; a mighty treat was got ready,, the bells Were Set a ringing, and after Supper there was a great ball; Harriot was So com pie mented and caressed, and her friend Leonora, who accompanied her as a companion or attendant, her circumstance not being mentioned, that She was astonissied j and being So young,, and unused to Such greatness, no doubt but she at this instant forgot Leander, and was transported at her good fortune in getting fo noble a husband as Don Carlos,
-The ball ended, she was by her husband conduced to a most splerir did apartment, attendedshy her father-in-law, sister, and all the eornpany. Here being again complemented, the company took leave, and an old lady with two waiting women, waited on her and Leonora into a dreffing room,, into which none but Leonora entered with them; the old lady undressed her, the strvants put her on a rich
-laced
->
-miss Harriot Montague,
-laced Suit of night clothes, a delicate fine Shift, nightgown and petticoats all which Lavinia furnished for her
-St
-new sister, whose beauty she much admired, and highly respedted her brother. Leonora had a fine Suit off night clothes, nightgown and petticoats given her also, and a chamber prepared next harriot’s to lie. in. Harriot was conducted by Lavinia to a bedchamber, where the bed was a rich brocade, the hangings arras, and everything magnificent beyond anything she had ever Seen in her life. So Soon as she was in bed, Lavinia and the rest took leave; then Don
-Cartos came in at another door in his
-nightgown, and went to bed to her; mean time the governor dismiffed the company,
-and ' retired to his apartment.
-Now it is fit that we inform ourselves where the Spanish captain aind the rest of the passengers were dish posed of; he, Domingo, and the osh
-fice.rsi
-140 The HISTORY or
-■ ficers belonging to the Ship, stayed on board to See the ship cleared and lain up in the harbour. But Don Carloshaving thought it proper the Moor Should not appear with Leonora, till he had acquainted his father with their story; therefore it was resolved that he Should come to the governor’^ the next morning with the captain, who was obliged to wait on him, and give an account of his voyage every time he returned from Sea; domingo’s two chests, in which was all his wealth, were to be likev^ise brought to the castle: the Moor, who was mnich inclined to jealousy, pasted the night very ill, and thought the time long till the rising fun appeared; he had his little boy in bed with him, whom he hugged and kissed all night; and rising at day break, took a rich habit out of one of his chests, and dressed him felt like a petty prince, as he really was by birth in his own country; he
+he was beautiful, had a great fortune, was nobly born, and finely bred. She rose, determined to compose her thoughts, and, if possible, banish the passion she had for Leander out of her soul; but that was' impossible.
+
+Don Carlos next morning appeared with an unusual gravity in his looks; the long-boat soon arrived with the Spanish captain, and all the gentlemen he had on board, and was received very joyfully; all things worth carrying away were already packed up by the diligent sailors, and soon lent a board; and the boat returning in the evening, Don Carlos, Harriot, Leonora, Mons. Le Montague, Domingo, the Spanish Captain, and all the rest went into it, bidding adieu to the desolate istand, and arrived safe to the ship, where they were welcomed with the guns and good wine. The next morning they weighed anchor, and she ship set sail for the istand of
+[136]
+St. Domingo; then Don Carlos earnestly sollicited Harriot to marry him, and was seconded by her cousin, and the good father who was chaplain to the ship, a friar whose name was Ignatius, to whom he had declared his reasons and resolutions; at last she yielded, and was that day married, as was also Leonora to her amorous Moor, who on this occasion behaved himself so handsomely, and expressed such satisfaction and transport, that everybody was charmed with him. In a few hours they reached the island, and Harriot was conducted by Don Carlos, to his father’s castle, where she was surprised at the great attendance and sumptuous furniture; the governor received his son with great joy and affection, and when he presented Harriot to him, begging his blessing and pardon for marrying without his consent, he took her up and embraced her. Saying ‘If she be as
+[137]
+virtuous as fair, which I doubt not, since you have made her your wife, and be a catholic, I not only give you my blessing, but will do all that is necessary to make you great and happy.’ 
+
+Here Harriot was surprised, being a protestant, and was ready to sink; but Don Carlos, squeezing her by the hand to give her a hint to conceal her disorder, replied briskly, ‘Honoured sir, she is all you can desire, virtuous, wise, pious, and will I am certain be an honour and comfort to us both.’
+
+Don Carlos’s sister, the charming Lavinia, a most accomplish’d young lady, coming into the presence chamber, welcomed her brother and new sister, to whom she made a present of some very rich jewels she had on; and now all the court (for so the governor’s palace was justly called, for he was there as great, and lived like a king) was soon crowded with all the principal gentlemen and mer
+[138]
+merchants in the town; a mighty treat was got ready, the bells were wet a ringing, and after wupper there was a great ball; Harriot was so complemented and caressed, and her friend Leonora, who accompanied her as a companion or attendant, her circumstance not being mentioned, that she was astonished; and being so young, and unused to such greatness, no doubt but she at this instant forgot Leander, and was transported at her good fortune in getting so noble a husband as Don Carlos.
+
+The ball ended, she was by her husband conducted to a most splendid apartment, attended by her father-in-law, sister, and all the company. Here being again complemented, the company took leave, and an old lady with two waiting women, waited on her and Leonora into a dressing room, into which none but Leonora entered with them; the old lady undressed her, the servants put her on a rich
+[139]
+laced suit of night clothes, a delicate fine shift, nightgown and petticoats all which Lavinia furnished for her new sister, whose beauty she much admired, and highly respected her brother. Leonora had a fine suit off night clothes, nightgown and petticoats given her also, and a chamber prepared next Harriot’s to lie. in. Harriot was conducted by Lavinia to a bedchamber, where the bed was a rich brocade, the hangings arras, and everything magnificent beyond anything she had ever Seen in her life. So Soon as she was in bed, Lavinia and the rest took leave; then Don Carlos came in at another door in his nightgown, and went to bed to her; mean time the governor dismiffed the company, and retired to his apartment.
+
+Now it is fit that we inform ourselves where the Spanish captain and the rest of the passengers were disposed of; he, Domingo, and the [140]
+officers belonging to the ship, stayed on board to see the ship cleared and lain up in the harbour. But Don Carloshaving thought it proper the Moor Should not appear with Leonora, till he had acquainted his father with their story; therefore it was resolved that he Should come to the governor’^ the next morning with the captain, who was obliged to wait on him, and give an account of his voyage every time he returned from Sea; domingo’s two chests, in which was all his wealth, were to be likev^ise brought to the castle: the Moor, who was mnich inclined to jealousy, pasted the night very ill, and thought the time long till the rising fun appeared; he had his little boy in bed with him, whom he hugged and kissed all night; and rising at day break, took a rich habit out of one of his chests, and dressed him felt like a petty prince, as he really was by birth in his own country; he
 likewise.
 miss Harriot Montague. 141
 likewise put a rich cloak on little Domingo, which Leonora had made him with Some Scarlet Cloth and silver lace, the Moor had brought her for that purpose from the issands he used to trade to. Thus he waited, ' ready to attend the captain and mon fieur Le Montague to the castle, to which they went about ten o’clock, by which time Don Carlos was risen, and had acquainted his father with leonora’s story and Monsieur Le Montague; the governor welcomed them ail, Domingo he embraced, and and promised him hk protection and favour. Don Carlos conducted him to Leonora and Harriot, who were together in their apartment entertaining a great many ladies, who were come to pay their compliments and breakfast with them. And now nothing but feasting and joy were thought on by all but these two ladies, who having been both bred Protestants, were in a great consternation
