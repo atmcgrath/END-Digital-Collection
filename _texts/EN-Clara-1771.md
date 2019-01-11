@@ -851,32 +851,11 @@ When the Doctor came, she spoke to him with a composure which surprized us both,
 
 HSe showed no weakness, till she came to that part of her speech, in which she mentioned her fears for her betrayer; but that threw into agaony we thought would have ended her unfortunate life. On the application of some cordials she recovered, and was again composed. The Doctor, as well as I, was dissolved in tears, during the time she addressed us. He assured me she had not many days to live, and his prediction too true.  
 
-She desired to send for the Clergy man nearest to us, and, with a devotion which proceeded from the heart, and firm trust in God, she joined in prayer. I have always remarked she was very devout, though little attentive to rituals or outward observances. Her devotion proceeded from her heart, and a conviction of the existence of God. Never was any person so resigned to his will from reason and reflection. For her passions were war to the last, though regulated ever I a most exalted understanding and great strength of mind. Must I except when she fell 
-when file fell a Sacrifice to that mi 
-. / 
-derer of her peace? Indeed, as f Said, he literally planted a dagger 
-• S * • r 
-/ * ^ 
-her heart, which I think even he coi not have extracted. But I ssiall net 
-'-.. ‘ ' i, 
-t^ve done, if I make So many digr 
-\ 
-I 
-X ^20 1) 
-ct "She Spent most cf Friday in prayer 'and writing to. her lover, as I after 
-awards found. Indeed I then supposed 
-i 
-iit wasfo. On Saturday morning She I'feemed refreshed, for She had re Sled cpart of the .night better than usual. I would, though against her will, watch by her with her own maid; for we 
-t 
-vnever had a nurse' ' poor girl ren 
+She desired to send for the Clergy man nearest to us, and, with a devotion which proceeded from the heart, and firm trust in God, she joined in prayer. I have always remarked she was very devout, though little attentive to rituals or outward observances. Her devotion proceeded from her heart, and a conviction of the existence of God. Never was any person so resigned to his will from reason and reflection. For her passions were war to the last, though regulated ever I a most exalted understanding and great strength of mind. Must I except when she fell a sacrifice to that murderer of her peace? Indeed, as she said, he literally planted a dagger in her heart, which I think even he could not have extracted. But I shall never have done, if I make so many digressions. Yet they grow out of my subject; and to you madam, they cannot be impertinent. 
 
-• gretted no trouble, So well did She love, her amiable mistress. Indeed she was r ever the kind, indulgent friend to her 
-.servants''; ''; ' : -- N.. 
-• W • V ' ■ ■.. 
-'.D; ■, • (... ■ ^ • e ‘. 
-. f' But, alas! how can I write it! She 
-» 
-would rise ion Saturday morning. We asfifted. She finislred her letter, and 
+She spent most of Friday in prayer and writing to her lover, as I afterwards found. Indeed I then supposed it was so. On Saturday morning she seemed refreshed, for she had rested part of the night better than usual. I would, though against her will, watch by her with her own maid; for whenever had a nurse. The poor girl regretted no trouble, so well did she love, her amiable mistress. Indeed she was ever the kind, indulgent friend to her servants. 
+
+But, alas! how can I write it! she would rise ion Saturday morning. We asfifted. She finislred her letter, and 
 , ' with 
 •» 
 V 
@@ -969,18 +948,7 @@ the greatest of all villains, to use her
 unkindly. I could not have fupposed 
 I 
 any man capable of it. 
-; \ « s 
-4 
-V 
-'lam 
-I 
-/ 
-• \ 
-\ 
-( ^^2 5 X 
-f h r 
-I \ ' 
-t 
+
 I am equally ?Tinable to cojopiiue,. dr to iqhit the .Subjest. Good: God! 
 tiladarh, what pain must it give .her 
 *1 ' ^ #., • ^ ^ 
@@ -1008,16 +976,7 @@ any other guesl in herbofom. Hate I ahi Sure She was a stranger to. She
 relaihed her affedion for Philemon, 
 '. V ♦ * • 
 and‘ her esteem for Sir Charles Wor. 
-» • 
-• • 
-I ^ 
-thy, to the lasl. She often said, had Philemon left her room to esteem' 
-'
-f d 
-3 : 7 
-I. 
-( j 
-A 
+
 .him, She’ had died happy. But fly felt Such a dreadful vacuum in her. heart, Ihe Seemed to want a part of her exigence. Something Seemed. 
 be torn from her, which She plainly. 
 \ 
@@ -1029,13 +988,8 @@ Its full force, to the last moment of her life. Yet I am convinced he was unwort
 .are, wheii fet in opposition to passion. For never woman had a more eni' 
 lightened or exalted understanding.; 
 '^ 
-yet She was a dupe, ito<passon, * t I am 
-unable 
-> 
-^ f 
-• () 
-4 
-I 
+yet She was a dupe, ito
+
 Enable to account for it, but by saying. 
 . / 
 humanity is frail. She appears not to have erred in any aslion of her 
@@ -1044,13 +998,7 @@ life but this, and a determined resolution not to'live. But that was laid < asid
 i ■ 
 . that She could not hold out long. Vet She ever appeared pious, and resigned to the will of God, except when She Spoke of being forced to drag about an existence fo terribly painful to her; 
 , and oftentimes She regretted that She had not died, when She believed her lover faithful. I Shall Subjoin the copy of her letter, to Philemon, and send 
-» 
-it with this, in. two packets; for I 
-# 
-'=>; have 
-f 
-. • > 
-( 128) 
+
 have been fo prolix, one will not coni 
 
 tain both. I cannot repent of my attention to a person, I So dearly loved and fo truly esteemed; but I really do not think I Shall ever be 
@@ -1062,17 +1010,7 @@ I never Saw So natural and unaffesled a grief in a person of her Station. She wa
 fnch kindness, as rather increased than 
 \ 
 diminished her attachment. 
-t 
-✓ • ’ 
-\ 
-I pray 
-t 
-/ 
-4 » 
-X * 
-/ 
-( ‘29) 
-* \ 
+
 I pray God to keep you a Stranger 
 to Such ashi6tions as hers, and comfort • 
 you for her loss. Her death certainly 
@@ -1092,11 +1030,7 @@ t
 ^ 
 haps She is now with her kindred Spirits, hymning the praises of him, who has 
 released her from a world of misery. Perhaps fly no more feels that unfon 
-vol. II K tunate 
-'' 
-1 
-( ^30^) 
-< 
+
 tuhate love for the base Philemon, but has transferred it to him to whom all love is due, and in whom it Should centre. Yet it Seemed So much a part of her soul, that I can Scarcely imagine, but it must exist, while that vital 
 * 
 Spark does, which we look upon to be immortal.. But the ways of Heaven 
@@ -1107,15 +1041,7 @@ are not laid open to mortal eyes. I muss endeavour to forget her. She really hur
 Sincere friend, and Servant, 
 '- 
 FIDELIA. 
-/ ^ 
-i, 
-\ 
-T. 
-■■ ’ P; S. 
-. () 
-P. S. I am almost blind with wri^, 
-» *■. • i i 
-'" • ' d i 
+
 ing and crying; So mull defer the copy I promised for Some days. 
 
 
