@@ -484,30 +484,13 @@ family lived happily the remainder of their days, having many children, and Leon
 
 And now to return to the pirate captain, who was safely landed on this island, and cured of his wounds; the pirate ship which the Spanish captain had taken and sent away before, with the pirates he had taken aboard of it, being arrived at St. Domingo before his own ship: this gentleman, who was kept a prisoner in the town, hearing of Don Carlos’s marriage with Harriot, sent her a letter to ask her pardon for what was past, protesting he vas truly penitent, and that
 [145]
-he honoured her virtue as much as he had loved her person; and begged she would procure his enlargement from that dismal place. This letter she showed not her lord; but without relating what had passed between her and the pirate. Spoke in his behalf; and told him he was a Catholic, and a man nobly born, and forced against his will to become a pirate, and that she begged the favour of him to release him, and some way provide for him in the fleet prison. This Don Carlos readily granted, and after speaking to his father, went to the prison and released him and two other gentle
-O
-men whom he pleaded for, shying they were his countrymen and friends, and not guilty of any crimes but what they had been forced to. The common Sailors of the pirates were ordered on board the Spanish galleons, and these three gentlemen followed their benefadlor to the vol. I. ' H castle.
-X
-14.6 The HISTORY OF
-castle, to return their thanks to die governor. Don Carlos presenting them to his wife and father, Harriot ■looked on the pirate captain with Some disorder; but he addressed himself to her in these words, ‘mak ing a profound bow, ‘ Madam, I ‘ am doubly indebted to you both ‘ for my liberty and reformation; I
-* am by your reproofs and generosity' ' from both the means and •
-inclinations to sin, and now resolve ‘ to live So, that my actions may
-* witness my love to God, and gra ‘ titude to you. I will henceforth < endeavour to be an honour to my ‘ country and religion.’ This Speech much pleased her, who perfedfly understood his meaning; and in a stiort time after, the governor gave him a commission of a captain who died in the garrison, and he married a mercbanfs widow in the town, who brought him a great fortune. His twq companions, according to the
-custom
-miss Harriot Montague. 147
-custom of the irish, made their fortunes there also, and Settled in that island.
-Monsieur Le Montague being highly caressed by Don Carlos, and all his friends, as being Harriot's near kinsman, soon obtained money and a Ship to go to Canada in search of Clementina, promising to stop at
-that island in his return, besore he went home to France.
-But to return to the unfortunate Leander whom we left at Virginia, much indisposed, which prevented him from coming to St. Domingo for sometime.
-Leander, after ten month’s fick ness, being recovered, employed his kinsman Lewis Dumarefque to hire a
-baric Secretly to carry them to the island of St. Domingo, fearintr Camilla Should get knowledge of his design, and again follow him; besides, he knew her pastion would be fo violent, that he stiould Scarce be
-H 2 able
-ft
->
-The H I S T O R Y of
-able to leave tier. She was now
-r
-in a deep consumption, and had ' been So kind to him, that he was obiiged to withdraw himsels with great reluctance; and had he known Harriot was ciisposed of, no doubt but he would have married this unfortunate lady, who now dearly paid for her parting him from her rival; for She had like to have died with grief after he left her. His kinsman got a bark, and acquainted his father with their designs, who, to forward it, having nothing to object against it. Since Leander and the lady were contracted, as he assured him they were, took Madam, Camilla with him to a lady’s, who was related to him, and had a fine plantation not far from his, per suading her it would be good for her health to Slay there a few days. Leander promised to fetch her home fpon, and taking leave of her, found himself in So great disorder, that he
+he honoured her virtue as much as he had loved her person; and begged she would procure his enlargement from that dismal place. This letter she showed not her lord; but without relating what had passed between her and the pirate. Spoke in his behalf; and told him he was a Catholic, and a man nobly born, and forced against his will to become a pirate, and that she begged the favour of him to release him, and some way provide for him in the fleet prison. This Don Carlos readily granted, and after speaking to his father, went to the prison and released him and two other gentlemen whom he pleaded for, saying they were his countrymen and friends, and not guilty of any crimes but what they had been forced to. The common Sailors of the pirates were ordered on board the Spanish galleons, and these three gentlemen followed their benefactor to the
+[146]
+castle, to return their thanks to die governor. Don Carlos presenting them to his wife and father, Harriot looked on the pirate captain with some disorder; but he addressed himself to her in these words, making a profound bow, ‘ Madam, I am doubly indebted to you both for my liberty and reformation; I am by your reproofs and generosity freed from both the means and inclinations to sin, and now resolve to live so, that my actions may witness my love to God, and gratitude to you. I will henceforth endeavour to be an honour to my country and religion.’ This speech much pleased her, who perfectly understood his meaning; and in a short time after, the governor gave him a commission of a captain who died in the garrison, and he married a merchant's widow in the town, who brought him a great fortune. His own companions, according to the
+[147]
+custom of the Irish, made their fortunes there also, and settled in that island. Monsieur Le Montague being highly caressed by Don Carlos, and all his friends, as being Harriot's near kinsman, soon obtained money and a ship to go to Canada in search of Clementina, promising to stop at that island in his return, before he went home to France. But to return to the unfortunate Leander whom we left at Virginia, much indisposed, which prevented him from coming to St. Domingo for sometime. Leander, after ten month’s sickness, being recovered, employed his kinsman Lewis Dumaresque to hire a bark secretly to carry them to the island of St. Domingo, fearing Camilla should get knowledge of his design, and again follow him; besides, he knew her passion would be so violent, that he should scarce be
+[148]
+able to leave tier. She was now in a deep consumption, and had been so kind to him, that he was obliged to withdraw himself with great reluctance; and had he known Harriot was disposed of, no doubt but he would have married this unfortunate lady, who now dearly paid for her parting him from her rival; for she had like to have died with grief after he left her. His kinsman got a bark, and acquainted his father with their designs, who, to forward it, having nothing to object against it. Since Leander and the lady were contracted, as he assured him they were, took Madam, Camilla with him to a lady’s, who was related to him, and had a fine plantation not far from his, per suading her it would be good for her health to Slay there a few days. Leander promised to fetch her home fpon, and taking leave of her, found himself in So great disorder, that he
 w^s
 * '
 t
