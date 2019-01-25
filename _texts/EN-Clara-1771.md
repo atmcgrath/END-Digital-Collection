@@ -71,29 +71,19 @@ Church Yard. 1771.</p>
 
 ## THE PREFACE. 
 
-I shall say very little in praise of the letters I here offer to the world under the title of “Letters from Clara, or The Effusions of the Heart;" being well convinced their readers 
-will do, as I should in such a case - that is, judge for themselves. Besides the partiality of sincere friendship may 
-make me entertain a more favourable opinion of them and their author, than the rest of the world may be inclined to do. She Sleeps in the cold grave, unheedful of their censure or their 
-praise. A religious regard to a promise made to the unhappy Clara at the time ofher death, is the only motive that could have induced me ever to write a page for the inspection of the public. 
+I shall say very little in praise of the letters I here offer to the world under the title of “Letters from Clara, or The Effusions of the Heart;" being well convinced their readers will do, as I should in such a case - that is, judge for themselves. Besides the partiality of sincere friendship may make me entertain a more favourable opinion of them and their author, than the rest of the world may be inclined to do. She sleeps in the cold grave, unheedful of their censure or their praise. A religious regard to a promise made to the unhappy Clara at the time ofher death, is the only motive that could have induced me ever to write a page for the inspection of the public. 
 
 I think it necessary to inform the reader, that these letters were written by a young lady, who really was possessed of every amiable quality, in as high a degree as most of her sex. She was gentle, amiable, and candid; severe only to herself, ever indulgent to the faults of others. She loved virtue better than anything on earth, except the base Philemon, and she died to atone for her deviation from it.  
 
-The story is simple, and, I fear, too common, except on the lady’s part. Many have fallen like her; but few, very few, have expiated their crime in the same manner. If her letters have any merit it is on account of their adherence to truth, a quality,
-I am afraid, too old-fashioned to recoinmend them to this polite 
-age. Those who can only relish long narratives and wonderful incidents, had better not read the letters of Clara. In works of imagination you are at liberty to present, to your readers, whatever scenes and objects you please. But every such aid is
-denied us, when confined to simple facts. The smallest deviation from truth is a crime in an editor, where it serves to give actions a different colour from their original one. 
+The story is simple, and, I fear, too common, except on the lady’s part. Many have fallen like her; but few, very few, have expiated their crime in the same manner. If her letters have any merit it is on account of their adherence to truth, a quality, I am afraid, too old-fashioned to recoinmend them to this polite age. Those who can only relish long narratives and wonderful incidents, had better not read the letters of Clara. In works of imagination you are at liberty to present, to your readers, whatever scenes and objects you please. But every such aid is denied us, when confined to simple facts. The smallest deviation from truth is a crime in an editor, where it serves to give actions a different colour from their original one. 
 
-If these letters please, the dead has the merit; if they displease, I shall submit to the censure of having offered an unacceptable entertainment to the public. I owe it little, but mean not to offend. If they advance the cause of virtue, or guard one female heart against the insidious arts of men, 
-their original end is attained. 
+If these letters please, the dead has the merit; if they displease, I shall submit to the censure of having offered an unacceptable entertainment to the public. I owe it little, but mean not to offend. If they advance the cause of virtue, or guard one female heart against the insidious arts of men, their original end is attained. 
 
-Ladies will read letters or novels (a name I am unwilling to give this petite auvre) when they will neither read nor listen to sermons. Clara’s letters are not much longer than a sermon. Besides, they contain a story and an intrigue; a story to me amazing, and which if they judge from common life, must be so to every reader. A beautiful and accomplished woman, admired and followed by crowds of lovers, acknowledged fair,  wife, and virtuous by every one who knew her! - yet could not bear the 
-consciousness of her fall, but fled to solitude, alas not to peace; “For peace, O virtue! Peace is all thy own.” How sweet are the pleasures and how bitter the pangs which sensibility confers or inflicts. Had Clara been endowed with less, she had still lived, and been as happy as common minds are capable of being. 
+Ladies will read letters or novels (a name I am unwilling to give this petite auvre) when they will neither read nor listen to sermons. Clara’s letters are not much longer than a sermon. Besides, they contain a story and an intrigue; a story to me amazing, and which if they judge from common life, must be so to every reader. A beautiful and accomplished woman, admired and followed by crowds of lovers, acknowledged fair,  wife, and virtuous by every one who knew her! - yet could not bear the consciousness of her fall, but fled to solitude, alas not to peace; “For peace, O virtue! Peace is all thy own.” How sweet are the pleasures and how bitter the pangs which sensibility confers or inflicts. Had Clara been endowed with less, she had still lived, and been as happy as common minds are capable of being. 
 
 I believe the reader, when he has perused these letters, will readily acknowledge I have not commended them more than they deserve; and if any one should guess at the lady who wrote all the letters signed Clara, even the women will confess, now she is no more, I have not been partial in her praise.
 
-If this essay succeeds, I shall when better health and more leisure permits, copy some other works of the same lady’s,  written in a calmer and happier season, but not designed for 
-the public eye. I fear these letters are much injured by the copier. I was ill and perplexed by grief and disappointment, when I sat down to copy them. I had delayed it too long, 
-but could not do it sooner.
+If this essay succeeds, I shall when better health and more leisure permits, copy some other works of the same lady’s,  written in a calmer and happier season, but not designed for the public eye. I fear these letters are much injured by the copier. I was ill and perplexed by grief and disappointment, when I sat down to copy them. I had delayed it too long, but could not do it sooner.
 
 Attached, as I was, by a long and unshaken friendship to their author, I could not copy them, till reason and reflection bade me cease to weep for one, who had, I think, forsworn happiness here, and is now, I hope, enjoying it in a better world. 
 
