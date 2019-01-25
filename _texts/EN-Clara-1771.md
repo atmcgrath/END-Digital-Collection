@@ -38,6 +38,9 @@ toc:
 - Letter XXVI
 - Letter XXVII
 - Letter XXVIII
+- Clara's Letter to Philemon
+- Letter the last
+
 ---
 
 ---
@@ -855,482 +858,85 @@ She desired to send for the Clergy man nearest to us, and, with a devotion which
 
 She spent most of Friday in prayer and writing to her lover, as I afterwards found. Indeed I then supposed it was so. On Saturday morning she seemed refreshed, for she had rested part of the night better than usual. I would, though against her will, watch by her with her own maid; for whenever had a nurse. The poor girl regretted no trouble, so well did she love, her amiable mistress. Indeed she was ever the kind, indulgent friend to her servants. 
 
-But, alas! how can I write it! she would rise ion Saturday morning. We asfifted. She finislred her letter, and 
-, ' with 
-•» 
-V 
-'( 12*) 
-I 
-with her usual politeiiefs begged me to copy it., She had left blanks for the 
-name. When I had copied it She 
-• •• 
-filled the blanks, and Sealed it with 
-"A 
-iher cypher.: Lie will know this, said 
-♦ 
-She, fuperfcribing and enclosing it to Mrs. H -- -- -- --. k vv ' 
-I * 
-... ia 
-1 < ... 
-*. 
-i I know not whether She wrote anything in the cover., But She always Spoke of her with great asfe6lion, esleem, and tenderness. She took me in her 
-• V 
-arms, and embraced me in the tenderest manner; begged of me to for: : the many letters She had; left in ^ her, efcritoir,. as diresled, but ‘ parti fvcularly that I, had just copied; entreating 
+But, alas! how can I write it! she would rise on Saturday morning. We assissted. She finished her letter, and with 
+finislred her letter, and with her usual politness begged me to copy it. She had left blanks for the name. When I had copied it she filled the blanks, and sealed it with her cypher. He will know this, said she, superscribing and enclosing it to Mrs. H-----. 
 
-• I 
-\ 
-( 122) 
-'ing it inight be Sent to .Dondonj or Some very distant part, and not 
-rehly from this town. She gave no 
-•. 
-reason for this, and I was unable lo 
-* * 
-require any. 
-4 
-She sat up all day till about five in 
-the evening; when She complained of 
-$ 
-heaviness and weakness. We laid her 
-m 
-oft the couch. She preferred it to the bed. She again embraced me and her maid. It was a last embrace. For, alas! — How can I relate it? — She ex 
-* 
-in my arms with only a Sigh, and commending her soul to him that made it through the mercy of Cbril|, 
-and praying, with a fervour never ex: 
-: ' 
-- — \ 
-( >23) 
-ceeded, Seldom equalled, for that vile 
-man, whom I cannot forgive, though 
-She did. I Shall religiously conceal his 
-* 
-■ name, for She wished it concealed, 
-and never but in death uttered it. 
-/ 
-She desired to be interred in the 
-’ / 
-Simplest and least expensive manner possible, and in the clothes She died in, 
-which were a long dimitty wrapping gown, and two dimitty and a white 
-s 
-Silk quilted coat. Between her bosbm and her waistcoat, She had pinned two letters: the names torn off: but I am 
-^ t 
-re they were from Philemon. They fewere, indeed, full of expressions of The tendercsl passion, and vows of eter 
-!. - V r - f 
-V - nal 
-t 
-•9 
-» 
-I 
-( 12'4) 
-* • 
-: ‘h 
-nal hddity. He declares, in both, he liever had, nor ever could entert^irr 
-* \ \ K ■ ‘ ' 
-■ h. f ^ ■ * 
-a rentiitient of love for any‘other wo 
-> ■. ‘, ... *•. • “>' 
-Ulan. 
-^ ' -■ : '.D V V V ’■ > • ■■■ ‘ 
-•T ’<f; • ■> • 
-iii, ^,. .1 V - ^ 
-^ ’ ', ',, 4, -•. ^0 ■; ■ 
-j -.. r • -- •'■'• rv S... - '* * •» 
-, ^. ■. '■ - ■: '■'■ - b ' f .>■ ■■■^' ■' N'' ^ ■ ■ ■ 
-rt.. A * ^ ^ 
-I found several little buiets in nab 
-drawers, in the same hand, and all in; the same style; but one which attributes his change of sentiment, or rather of 
-.. ..t .S. ■ 
-condud, for he says, the sentiment;; 
-'^ 0, ■ ■ _■ 
-muff ever remain the same, to an in vincible hecesfity, and an emharraff ment in his affairs. Yet sure he >, was 
-*#. s * *‘" ^ *. • 
-the greatest of all villains, to use her 
-•. i ' ' ' 
-unkindly. I could not have fupposed 
-I 
+I know not whether she wrote anything in the cover. But She always spoke of her with great affection, esteem, and tenderness. She took me in her arms, and embraced me in the tenderest manner; begged of me to forward the many letters she had left in her escritoir, as directed, but particularly that I had just copied; entreating it might be sent to London or some very distant part, and not directly from this town. She gave no 
+reason for this, and I was unable to require any. 
+
+She sat up all day till about five in the evening, when she complained of heaviness and weakness. We laid her on the couch. She preferred it to the bed. She again embraced me and her maid. It was a last embrace. For, alas! - How can I relate it? - She expired in my arms with only a sigh, and commending her soul to him that made it through the mercy of Christ, and praying, with a fervour never exceeded, seldom equalled, for that vile man, whom I cannot forgive, though she did. I shall religiously conceal his name, for she wished it concealed, and never but in death uttered it. 
+
+She desired to be interred in the simplest and least expensive manner possible, and in the clothes she died in, which were a long dimtty wrapping gown, and two dimitty and a white silk quilted coat. Between her bosom and her waistcoat, she had pinned two letters; the names torn off: but I am sure they were from Philemon. They were, indeed, full of expressions of the tenderest passion, and vows of eternal fidelity. He declares, in both, he never had, nor ever could entertain a sentiment of love for any other woman. 
+
+I found several little billets in her drawers, in the same hand, and all in; the same style; but one which attributes his change of sentiment, or rather of conduct, for he says, the sentiment
+must ever remain the same, to an invincible necessity, and an emharrassment in his affairs. Yet sure he was the greatest of all villains, to use her unkindly. I could not have supposed 
 any man capable of it. 
 
-I am equally ?Tinable to cojopiiue,. dr to iqhit the .Subjest. Good: God! 
-tiladarh, what pain must it give .her 
-*1 ' ^ #., • ^ ^ 
-friends; ’ though unkind, * to hear', of i 
-/ 
-her untimely end! You will, I know, 
-* 
-, fufser, extremely; vfor Ihe Said your 
-^ ‘ A '. / S - *. C ' 
-V / 
-• ^ ^ * _ _ was mutual, and ever had been 
-7 V; N " t 
-fo., „L; 
-'\ ‘ 
-V 
-A ‘ ‘ ■. 
-■ *. 
-/. ’ 
-• T think her whole composition was, 
-love. She could not: find room for 
-'. • 4 • 
-4 
-any other guesl in herbofom. Hate I ahi Sure She was a stranger to. She 
-■. y ^ 1 ' fs ■■ k 
-relaihed her affedion for Philemon, 
-'. V ♦ * • 
-and‘ her esteem for Sir Charles Wor. 
+I am equally unable to continue, or to quit the subject. Good God! madam, what pain must it give her friends, though unkind, to hear of her untimely end! You will, I know, suffer extremely; for she said your love was mutual, and ever had been so. 
 
-.him, She’ had died happy. But fly felt Such a dreadful vacuum in her. heart, Ihe Seemed to want a part of her exigence. Something Seemed. 
-be torn from her, which She plainly. 
-\ 
-found Ihe could not live without. ^ 
-* s 
-- ■ - t. ' »• 
-She imagined, I know, that her, passipn was abated, but it existed, in 
-Its full force, to the last moment of her life. Yet I am convinced he was unworthy; which Shows of how little value human reason and judgement 
-.are, wheii fet in opposition to passion. For never woman had a more eni' 
-lightened or exalted understanding.; 
-'^ 
-yet She was a dupe, ito
+I think her whole composition was love. She could not find room for any other guest in her bosom. Hate I am sure she was a stranger to. She retained her affection for Philemon, and her esteem for Sir Charles Worthy, to the last. She often said, had Philemon left her room to esteem him, she had died happy. But she felt such a dreadful vacuum in her heart, she seemed to want a part of her existence. Something seemed to be torn from her, which she plainly found she could not live without. 
 
-Enable to account for it, but by saying. 
-. / 
-humanity is frail. She appears not to have erred in any aslion of her 
-I 
-life but this, and a determined resolution not to'live. But that was laid < aside .on being alsured, her cohftitu;; tion had fuflpered So much from grief,, 
-i ■ 
-. that She could not hold out long. Vet She ever appeared pious, and resigned to the will of God, except when She Spoke of being forced to drag about an existence fo terribly painful to her; 
-, and oftentimes She regretted that She had not died, when She believed her lover faithful. I Shall Subjoin the copy of her letter, to Philemon, and send 
-
-have been fo prolix, one will not coni 
-
-tain both. I cannot repent of my attention to a person, I So dearly loved and fo truly esteemed; but I really do not think I Shall ever be 
-I 
-able to erase from my mind the met 
-• 
-mory of her death, and the afflislion file Suffered, fo as to enjoy the same happy Serenity I formerly posseffed. Her maid is in a Hate of diftra6tion. 
-I never Saw So natural and unaffesled a grief in a person of her Station. She was, indeed, ever gentle to her, and if obliged to chide her, did it with 
-fnch kindness, as rather increased than 
-\ 
+She imagined, I know, that her, passion was abated, but it existed, in its full force, to the last moment of her life. Yet I am convinced he was unworthy; which shews of how little value human reason and judgement are, when set in opposition to passion. For never woman had a more enlightened or exalted understanding; yet she was a dupe to passion. I am unable to account for it, but by saying humanity is frail. She appears not to have erred in any action of her life but this, and a determined resolution not to live. But that was laid aside on being assured, her constitution had suffered so much from grief that she could not hold out long. Yet She ever appeared pious, and resigned to the will of God, except when she Spoke of being forced to drag about an existence fo terribly painful to her; 
+and oftentimes she regretted that she had not died, when she believed her lover faithful. I Shall subjoin the copy of her letter, to Philemon, and send it with this, in two pacquests; for I have been so prolix, one will not contain both. I cannot repent of my attention to a person, I so dearly loved and so truly esteemed; but I really do not think I shall ever be able to erase from my mind the memory of her death, and the affliction she suffered, so as to enjoy the same happy serenity I formerly possessed. Her maid is in a state of distraction. 
+I never saw so natural and unaffected a grief in a person of her station. She was, indeed, ever gentle to her, and if obliged to chide her, did it with such kindness, as rather increased than 
 diminished her attachment. 
 
-I pray God to keep you a Stranger 
-to Such ashi6tions as hers, and comfort • 
-you for her loss. Her death certainly 
-mull be a happy event to herself; and 
-could her friends with her to live a 
-prey to remorse and anguish? For 
-her soul was too delicate ever to be 
-abla to forget the stain her honour had 
-received. Her fate was an uncommon 
-one in many things. 
-t 
-#•.. 
-% 
-, ■ f.. ■ ' ^ ■ V ' ■ ■. 
-\ 
-- Poor, lovely Clara! would to God I could forget you! I never Shall. Per 
-^ 
-haps She is now with her kindred Spirits, hymning the praises of him, who has 
-released her from a world of misery. Perhaps fly no more feels that unfon 
+I pray God to keep you a stranger to such afflictions as hers, and comfort you for her loss. Her death certainly must be a happy event to herself; and could her friends with her to live a 
+prey to remorse and anguish? For her soul was too delicate ever to be able to forget the stain her honour had received. Her fate was an uncommon one in many things. 
 
-tuhate love for the base Philemon, but has transferred it to him to whom all love is due, and in whom it Should centre. Yet it Seemed So much a part of her soul, that I can Scarcely imagine, but it must exist, while that vital 
-* 
-Spark does, which we look upon to be immortal.. But the ways of Heaven 
-t 
-are not laid open to mortal eyes. I muss endeavour to forget her. She really hurts my peace too much. Farewell, dear madam, and believe 
-. me, with the greatesl esteem, your 
-( « 
-Sincere friend, and Servant, 
-'- 
+Poor, lovely Clara! would to God I could forget you! I never shall perhaps she is now with her kindred spirits, hymning the praises of him, who has released her from a world of misery. Perhaps fly no more feels that unfortunate love for the base Philemon, but has transferred it to him to whom all love is due, and in whom it should centre. Yet it seemed so much a part of her soul, that I can scarcely imagine, but it must exist, while that vital spark does, which we look upon to be immortal. But the ways of Heaven are not laid open to mortal eyes. I must endeavour to forget her. She really hurts my peace too much. Farewell, dear madam, and believe me, with the greatest esteem, your sincere friend, and servant, 
+
 FIDELIA. 
 
-ing and crying; So mull defer the copy I promised for Some days. 
+P.S. I am almost blind with writing and crying; so must defer the copy I promised for some days. 
 
+---
 
-r ■. " ‘ ’ *. v’ ' 
-CLARA’S Letter to PHILEMON. 
-•.. • ^ t 
-* • 
-"F^ E F O R E this reaches the hand of Philemon, he will be released from vows grown irksome to him; vows uncoriftrained and unsolicited, 
-I 
-when offered, when pressed upon the now forgotten or contemned Clara. Of how little value is life! I prized it once. I laid out plans of happiness, Such as, perhaps, you now form. May your ‘ prove more permanent than 
-mine! I can now wish it. I can re fjgfj — alas!. I Strive in vain to dissemble 
-with 
-m 
-9 
-( »33) 
-th myself. The hours of disiimula tion must be at an end. No, Philemon, when you used me worst, in Suited and,, upbraided me, even then my heart was only yours. It drove to excuse you at my own expense, and when I 
-affected to relent your unkindness, I then only dilsembled with you. It was ' the only deceit Clara ever made use of to Philemon. It is with reluslance 
-1 
-; 
-I resign your'heart. I still hope it will be mine, when I am unconscious of my happiness in posteffing it. 
-f 
-■ ' 
-, You knew not the extent of my love. Yet you knew enough to be convinced, that you were once dearer to;. K 3 Clara 
-A 
-\ 
-I 
-( m) 
-■ 5 ^ ■7' 
-} * ' * ■ • ^ \ ^ 
-Oara than her own Soul; for file would 
-I ^ * 
-'have died by her own hands, to have re,, you from vows, which you often Swore, long after they were given, 
-.. d. ' 
-constituted the happine§ of yoiir life. 
-I write not to upbraid you, or to embitter your future life. No; it ever was my wish and Study to render it 
-I 
-happy, and you are as dear to my heart now, as when I made a Sacrifice to you, which has weired tee down with 
-Shame and Sorrow, to an early 
-/ 
-grave. Never from that fatal hour, did. Clara know peace or Sweet content. It Spread thorns, in my path. I 
-coni 
+## CLARA's Letter to PHILEMON. 
 
-♦ 
-\ 
-(i »35) 
-% 
-contcinhed mys^sf. How, then Shi 
-, 0 
-Fhileinon effeem me? The conful which my guilt for sometime o fioned, made you think I had ceasc 
-love you. What despair did you a 
-* 
-to feel at my eoidhess? 
-. I wais deceived myself. I thoi 
-4 
-my passion abated. Oitr fatal sep tion convinced me of my ertor, Saw all the horrots Of my fate. 
-, mind wais toctptophetic. In vain 
-i 
-you renew ydur vowa in your leh 
-Even’ voiit alsurances could fear assuage lily gtief for your absei 
-/ • 
-( >36) 
-* 
-power to be united for ever. Heaven was averse. Every ofeftacle Seemed to increase, as I endeavoured to Surmount them; 
-N 
-Yet still I was not quite unhappy. Philemon was tender, was faithful. ' I Shunned all company but that of — f, because he talked of you. With him, or when alone, I was happy. His generous, disinterested friendship for 
-• t 
-you made him dearer to me than a brother. His ardent wishes for our j union still doubled my regard for / him, and, if possible, increased my affedion for you. His praises of you did not found partial in my ears. 
-They 
-» 
-\ 
-s 
-( ‘37) 
-» 
-t 
-They were Sweeter than flattery to the vaineft of my Sex. 
-. i 
-. - h * 
-■ r 
-Had I died then, I Should have died 
-/ 
-happy. Convinced of your fidelity, 
-I might have hoped to meet you, never to be Separated.. What have I now to hope? Come to me, Philemon. Let me hold you to my bosom— — the 
-last throbbings of a faithful heart. Let 
-* 
-my dying eyes close on your image. Say you will Sigh, will drop a tear, if not of love, at least of pity, for one who died to extenuate your fault. 
-V L 
-'' % 
-\ 
-Alas! Philemon, what a fate is mine? 
-I dare Scarce look to Heaven. It 
-.. ' 
-fees 
-^ ^ 
-i 
-( 13 S) 
-sees my weakness, even when concealed from myself and all the world. I “Thy will be done P but, my 
-heart accords not with my lips I feel, pfty dissolution approach. They would ' in vain conceal it from me. The voice of nature is weak, but it is difrinsl: and 
-I 
-fr ncere. It whispers I cannot live many days — and let its prophecy be Soon 
-fulfilled'!' I am lofi;, if that God, who 
-* • ^ 
-I 
-: ave me these affeslions, does not for 
-♦ • 
-give them. 
-% 
-* \ 
-f 
-I try to pray, to turn my whole 
-^ r 
-thoughts to Heaven. I think of it 
-with pleafiire, when I hope to meet 
-0 
-you there — not as your accuser— — 
-* >• 
-it 
-t 
-* 
-V 
-/, 
-( 139) 
-/ ■ 
-it cannot he. We Shal*p meet as loterss. You will repent of the injudes yeti have done me, when you reflesl on my unalterable fidelity and afseflioh; and you are too well convinced I am incapable of resentment. If these are profane thoughts, how loll is Glara‘? 
-G - 
-> 
-- - * 
-, I have prayed, not as I ought I 
-fear, for more resignation to the will 
-I 
-of Heaven. I wish for death. It carries 
-no terrors in its train. Could I hope 
-/ 
-you would love my memory, I Should die completely blested. Heaven can forgive greater crimes than ours. The heart unsusceptible of love is not fit 
-for Heaven. Why Should it he a 
-% 
-crime 
-m 
-I 
-( 140) 
-■ % 
-V 
-\ 
-crime to love to excels, as I have done? Yet I have been Severely pnnished. 
-4 
-r 
-'J 
-iti 
-. I Submit, and Should have Submitted 
-■ V 
-without repining, had missortuke come in any other Shape, Heaven has at length heard one prayer of the •wretched Clara. It is weary of 
-ashiding her, and sends death to her relief. 
-V.. 
-Is it possible I Should forget you? Can I resolve that doubt? But it is all clouds and darkness before me. I go with a firm trull in God; not as a vengeful and auslere being, as many 
-t ft * f • 
-would 
-\ 
-1 
-/ 
-( Ml) 
-4 
-1 
-would represent him; but as the God of mercy and forgiveness, long Suffering, and plenteous in goodness ahd truth, who keepeth his promise for ever. He seeth and knoweth the heart which he formed. To him and to his mercies I commend my Spirit, He can unite us for ever, or turn my heart, and teach it to love him who alone is worthy of love. To his protedion 1 commend you. My 
-• lall breath Shall be Spent in a prayer for you. It will be sincere;; will be ardent. May it prove effestual! May, Heaven love you as 1 have done! May it as freely forgive your offences! Adieu! I am weak. My eyes are 
-I 
-Scarce able to bear the light. It is 
-• 1 
-A' - 
-{ 142) 
-with infinite pain and pleasure I write 
-■ to you. I think we are reconciled, 
-and Shall yet be happy. Farewell for 
-# 
-ever, at least in this world — 
-C' ' -. ■ 
+Before this reaches the hand of Philemon, he will be released from vows grown irksome to him; vows unconstrained and unsolicited, when offered, when pressed upon the now forgotten or contemned Clara. Of how little value is life! I prized it once. I laid out plans of happiness, such as, perhaps, you now form. May yours prove more permanent than mine! I can now wish it. I can resign - alas!. I strive in vain to dissemble with myself. The hours of dissimulation must be at an end. No, Philemon, when you used me worst, in suited and, upbraided me, even then my heart was only yours. It drove to excuse you at my own expense, and when I affected to relent your unkindness, I then only dissembled with you. It was the only deceit Clara ever made use of to Philemon. It is with reluctanceI resign your heart. I still hope it will be mine, when I am unconscious of my happiness in possessing it. 
 
+You knew not the extent of my love. Yet you knew enough to be convinced, that you were once dearer to Clara than her own soul; for she would have died by her own hands, to have released you from vows, which you often swore, long after they were given, 
+constituted the happiness of your life. 
 
-the lassi' ' 
-'
-% 
-i 
-V 
-O U See, my dear madam, what 
-*•" an unhappy fate that of our poor 
-0 
-injured Clara was. Yet She appeared 
-» » 
-more composed and Serene, than I 
-• i 
-fear She really was. I was all along convinced, before I read her letter, that her paslion was unabated. Never 
-t 
-0 
-female heart was So Steady both in 
-love and friendship. I have Suffered 
-* 
-So much for her, that my health and 
-gaiety 
-I 
-*> • 
-( d44) 
-t 
-f 
-gaiety are both impaired. Yet She wa 
-• « • 
-the life of every one who coni 
+I write not to upbraid you, or to embitter your future life. No; it ever was my wish and study to render it happy, and you are as dear to my heart now, as when I made a sacrifice to you, which has weighed me down with shame and sorrow, to an early grave. Never from that fatal hour, did Clara know peace or sweet content. It spread thorns in my path. I contemned myself. How, then Philemon esteem me? The confusion which my guilt for sometime occasioned, made you think I had ceased love you. What despair did you affect to feel at my coldness!
 
-versed with her. ^ 
-9 
-9 
-.. .f.. I ■ •, 
-I could not have believed, that any misfortune could fo suddenly change 
-I 
-nature. Indeed her heart was Still 
-> 
-% 
-mild, tender and compassionate... 
-... ' •» 
-’ vas that gentleness, that made it prey upon kfelf. She gave her for' ' 
-* 
-rows no vent, but in tears. I ob 
-* « 
-her health decline, and the roses quit her lovely cheeks, long be,, Philemon forsook her. I knew 
-jnot the cause at that time, but used 
-to rally her on her pehsiveness, and 
-•' desire 
-t 
-r 
-\ 
-/ 
-s. 
-/ 
-(145) 
-I ir... 
-.... 
-desire her to fit for the pislute of Con L 
-r 0' 
-tcinplation. - 
-.1 " 
-She complained, which very much * 
-Surprised me, of the precarious Situa' 
-'
-i'of her fortune and Seemed to 
-• V ^ 
-wish for riches. No woman ever 
-* S. 
-% 
-despifed them more, or was of a more * 
-, generous difposition. Yet She did 
-X 
-not dmemble; She really willed for * them. Philemon had been extrava' vagant, and wanted fortune to put hist 
-‘ 7 ■ • ' ■ 
-affairs on a refpeslable footing. She' 
-'all her expencesj and de -- 
-% 
-prived herself of every elegancy, for 
-which .She had formerly fo great a 
-\ 
-tasle., I observed the change with 
-WT TT T 
-t 14b), ' 
-Surprise i hut, though in the greatest = 
-and friendship with her, discovered the cause. It was a' fatal‘^ caiife indeed. ‘ 
-ic.. ■, i JUO -- ■ 
-I think her melancholy was infee 
-/ 
-tious, for I am grown as dull assis I had myself met with Such a disappointment. I am Sure 1 Shall never .entirely 
-forget to Sigh, I might say to 
-» » 
-weep, for her. What mull you.feel, 
-VIF 
-the ties of nature are Slronger than those of friendship? But you Saw not 
-her death. You heard.not her plain 
-* • ^ 
-accents. That melancholy Scene 
-was reserved for me. Few. people 
-/ 
-woise calculated to bear Such Scenes. 
-I fonll 
-{ ‘47); 
-I Shall not attempt to administer com 
-• 
-fortj which I want as much as any one; but I Sincerely wish you every. kind of happiness, and, for that end, would have you endeavour to forget the unhappy Clara. 
-'‘ I 
-lam, dear madam, 
-1 „ i 
-Your Sincerely affebionate 
-ft 
-Friend, and humble Servant, 
-t 
+I was deceived myself. I thought my passion abated. Our fatal seperation convinced me of my erroe. I saw all the horrors Of my fate. My mind was too prophetic. In vain did you renew your vows in your letters. Even yout assurances could scarcely assuage my grief for your absence. Yet I resolved to avoid you, till fortune should smile, and put it in our power to be united for ever. Heaven was averse. Every obstacle seemed to increase, as I endeavoured to surmount them.  
+
+Yet still I was not quite unhappy. Philemon was tender, was faithful. I shunned all company but that of -----, because he talked of you. With him, or when alone, I was happy. His generous, disinterested friendship for you made him dearer to me than a brother. His ardent wishes for our union still doubled my regard for him, and, if possible, increased my affection for you. His praises of you did not found partial in my ears. They were sweeter than flattery to the vainest of my sex. 
+
+Had I died then, I should have died happy. Convinced of your fidelity, I might have hoped to meet you, never to be separated. What have I now to hope? Come to me, Philemon. Let me hold you to my bosom - feel the last throbbings of a faithful heart. Let 
+my dying eyes close on your image. Say you will sigh, will drop a tear, if not of love, at least of pity, for one who died to extenuate your fault. 
+
+Alas! Philemon, what a fate is mine? I dare scarce look to Heaven. It sees my weakness, even when concealed from myself and all the world. I say, “Thy will be done;" but, my heart accords not with my lips I feel. I feel dissolution approach. They would in vain conceal it from me. The voice of nature is weak, but it is distinct and sincere. It whispers I cannot live many days - and let its prophecy be soon fulfilled!  I am lost, if that God, who gave me these affections, does not forgive them. 
+ 
+I try to pray, to turn my whole thoughts to Heaven. I think of it with pleasure, when I hope to meet you there - not as your accuser - no it cannot he. We shall meet as lovers. You will repent of the injuries have done me, when you reflect on my unalterable fidelity and affection; and you are too well convinced I am incapable of resentment. If these are profane thoughts, how lost is Clara? 
+
+I have prayed, not as I ought I fear, for more resignation to the will of Heaven. I wish for death. It carries no terrors in its train. Could I hope you would love my memory, I should die completely blested. Heaven can forgive greater crimes than ours. The heart unsusceptible of love is not fit for Heaven. Why should it be a crime to love to excess, as I have done? Yet I have been severely punished. 
+
+I submit, and should have submitted without repining, had misfortune come in any other shape, Heaven has at length heard one prayer of the wretched Clara. It is weary of afflicting her, and sends death to her relief. 
+
+Is it possible I Should forget you? Can I resolve that doubt? But it is all clouds and darkness before me. I go with a firm trust in God; not as a vengeful and austere being, as many would represent him; but as the God of mercy and forgiveness, long suffering, and plenteous in goodness ahd truth, who keepeth his promise for ever. He seeth and knoweth the heart which he formed. To him and to his mercies I commend my spirit, He can unite us for ever, or turn my heart, and teach it to love him who alone is worthy of love. To his protedion I commend you. My 
+last breath shall be spent in a prayer for you. It will be sincere; it will be ardent. May it prove effectual! May, Heaven love you as 1 have done! May it as freely forgive your offences! Adieu! I am weak. My eyes are scarce able to bear the light. It is with infinite pain and pleasure I write to you. I think we are reconciled, and shall yet be happy. Farewell for ever, at least in this world -.
+
+---
+
+## LETTER the last. 
+
+You see, my dear madam, what an unhappy fate that of our poor 
+injured Clara was. Yet she appeared more composed and serene, than I fear she really was. I was all along convinced, before I read her letter, that her passion was unabated. Never female heart was so Steady both in love and friendship. I have suffered 
+so much for her, that my health and gaiety are both impaired. Yet she was once the life of every one who conversed with her.  
+
+I could not have believed, that any misfortune could so suddenly change nature. Indeed her heart was still mild, tender and compassionate. It was that gentleness, that made it prey upon itself. She gave her sorrows no vent, but in tears. I observed her health decline, and the roses quit her lovely cheeks, long before Philemon forsook her. I knew not the cause at that time, but used to rally her on her pensiveness, and desire her to fit for the picture of contemplation.
+
+She complained, which very much surprised me, of the precarious situation of her fortune and seemed to wish for riches. No woman ever despised them more, or was of a more generous disposition. Yet She did not dissemble. She really wished for them. Philemon had been extravagant, and wanted fortune to put his affairs on respectable footing. She had entrenched all her expences, and deprived herself of every elegancy, for which she had formerly so great a taste. I observed the change with surprize; but, though in the greatest and friendship with her, discovered the cause. It was a fatal cause indeed. ‘ 
+
+I think her melancholy was infectious, for I am grown as dull as if I had myself met with such a disappointment. I am sure I shall never entirely forget to sigh, I might say to weep, for her. What must you feel if the ties of nature are stronger than those of friendship? But you saw not her death. You heard not her plain accents. That melancholy scene was reserved for me. Few people worse calculated to bear such Scenes. I shall not attempt to administer comfort which I want as much as any one; but I sincerely wish you every kind of happiness, and, for that end, would have you endeavour to forget the unhappy Clara. 
+
+I am, dear madam, 
+Your sincerely affectionate 
+Friend, and humble servant, 
+
 FIDELIA. 
-y 
-i 
-, 
+
+FINIS. 
