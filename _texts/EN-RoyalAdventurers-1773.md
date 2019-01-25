@@ -56,8 +56,7 @@ and dissipated, and the minds of young
 people are corrupted by that which
 ought to be the source of instruction
 and entertainment. They either become acquainted with scenes of intrigue
-and wickedness to which they were before utter strangers, or, which is e-
-qually as bad, their minds are filled
+and wickedness to which they were before utter strangers, or, which is equally as bad, their minds are filled
 with ideas of incidents as impropable
 as they are absurd. Thus the original design of novels is entirely perverted. They were at first intended to
 instruct, at the same time that they
@@ -98,8 +97,7 @@ to testify his most sincere acknowledgement by dedicating his labours
 to the service of those who honour them
 with their countenance. As he has
 neither the views of honours or interest to influence him, he flatters
-himself that he has gained the summit of his desires, by having pro-
-duced a work which, at the same time
+himself that he has gained the summit of his desires, by having produced a work which, at the same time
 that it delights, conveys the most instructive lessons of virtue. He therefore takes the liberty of recommending his work to the attention of the
 polite youth of both sexes, and flat-
 ters himself that their approbation of
@@ -562,11 +560,7 @@ Having perused the contents of the paper, and knowing the sacred influence there
 
 
 But even Aurora the daughter of Thetis, had no sooner skipped from the towers of Neptune, and saluted the excellency of
-
-
 [39]
-
-
 of transplendent Phoebus, then the young princes again prepared themselves for a new journey; and early in the purpled morn, when radian Titan began to give his welcome to the verdant mountains, the fawns and nymphs dancing through the forests, and doleful Philomena warbling forth her tragedy, they were by a soft wind made acquainted with the pleasant found of a lute, the echo whereof redoubling through the thickness of a curled grove next adjoining, gave such a graceful harmony to the aforesaid melody, that they were constrained to find out the said unknown Orpheus, that he might for a while recreate their disordered sense, with the exquisiteness of his praiseworthy art.
 
 
@@ -1099,25 +1093,15 @@ PLIVIO being informed of his cousin Thalmo’s proceedings, and of the success h
 intercession of the princess Athelia, he should obtain his beloved Mersilva.—Upon which he hasted to the court in order to renew his suit; and on being informed that the princess, with the queen, Athelia, and their attendant lords and ladies were hunting in the forest, he immediately repaired thither in order to join the royal company; being fond of the diversion, though, at this time, particularly so, that he might behold the beauty of the fair Mersilva.
 
 In the midst of the forest, it happened, that the stag escaped from their sight, which caused the company to take different routs in order to find him out, and to renew the chase.-—-Among the rest, there was a young lord named Blithion, that had long conceived a passion for the princess Mersilva, but could never get
-
-
 [118]
-
 an opportunity of disclosing his affection.
 
-
 It so happened, that the princess lost sight of the company, and ranging discontentedly, as if her courage had been vanquished with despair, she was unfortunately met by this young lord, who being overjoyed with the opportunity that prefented itself, without any ceremony, Saluted her in the following indecent manner.
-
 
 “Madam,
 
 “I have a long time laboured under many perplexities which your divine beauty has been the cause of;—and since fortune is now so favourable to me, I beseech you, let us enjoy the present opportunity; therefore, madam, stand not so much
-
-
 [119]
-
-
-
 on your punctilios of disdain, but consider with yourself where you now are;—the time,—the place.—At present you are destitute of assistance, and your life and honour are at my disposal;—I will not be denied with refusals, nor deluded by delays;—for in spite of fortune, I must satisfy my love, and reap the enjoyment of my long desired expectation.
 
 —To prevent the consequences that may ensue readily consent, otherwise you will oblige me, after enjoyment, to use you with such barbarity as my nature would scarce offer to your lovely sex, much less to you, madam, whom I have ever adored.
@@ -1125,47 +1109,22 @@ on your punctilios of disdain, but consider with yourself where you now are;—t
 
 
 Mersilva, astonished at his brutal behaviour, began to weep,—and sighing as if her breast would rend asunder with insupportable grief, called on the divine powers
-
-
-
 [120]
-
-
 to preserve her innocence, and to shelter her from the rapine of this cruel lord;—however, considering that silence was a demonstration of consent, she resolutely made the following reply.
-
-
 
 “If, Sir, you had ever been trained up in the school of virtue, you would have tempered your words with discretion, and not presumed to offend a chaste lady’s ear with such obsdenity; and since your tongue has uttered that which cannot be recalled, know, thou tyrant, that I despise thy threats;—I am myself the guardian of my honour, and will protect it with my life; —therefore, with speed depart, and bid adieu to your barbarous designs.
 
-
-
 “ Madam,” said he, “it is in vain to resist where there is none to rescue you; yet
-
-
 [121]
-
-
 were Hercules himself present, he should not debar me from my purpose.”
-
 
 “Inhuman Lord,” replied the princess, “since reason will not allay your cruelty, in permitting me to depart without blemishing my honour, be assured that, rather than consent to thy lascivious demand, I will voluntarily be the instrument of my own death.”
 
-
-Blithion, not moved with remorse* but still burning with inordinate desire to extenuate the sire of his insatiable lust, thought every minute a month, before he had perfected his diabolical enterprize;—and taking her by the trembling hand, he began to embrace her:—Plivio, at this instant appeared in sight, and hearing the cries of a person seemingly in distress,
-
-
-
+Blithion, not moved with remorse, but still burning with inordinate desire to extenuate the sire of his insatiable lust, thought every minute a month, before he had perfected his diabolical enterprize;—and taking her by the trembling hand, he began to embrace her:—Plivio, at this instant appeared in sight, and hearing the cries of a person seemingly in distress,
 [122]
-
 came unexpectedly to her assistance; which the princess perceiving, cried out, “Plivio, as you tender my affection, and value my honour, assist your unfortunate Mersilva;—preserve me from this inhuman monster, and let him meet the reward due to his crimes.”
 
-
 Plivio perceiving it to be his dear Mersilva, enflamed with revenge, he stew to the spoiler, and plunged his sword into his breast; where, receiving his reward, he fell to the ground, and instantly expired.
-
-
-
-
-
 [123]
 
 
@@ -1176,40 +1135,20 @@ Plivio perceiving it to be his dear Mersilva, enflamed with revenge, he stew to 
 
 
 The princess, after returning thanks to her deliverer, related to him the whole proceedings; which, when he understood, he thanked the stars for making him the happy instrument of her delivery.—Mersilva being pretty well recovered, he again mounted her on her milk-white steed, resolving to find out the queen;—to whose presence they were no sooner arrived, than he gave a relation of this adventure, which Mersilva verified
-
-
-
 [124]
-
 by a fresh shower of tears; which, like dew on damask roses, distilled on her lovely cheeks. The queen, together with the princess Athelia, and the rest of the ladies were greatly rejoiced at her delivery, and gave Plivio, incessant thanks for his undaunted courage. The queen likewise assured him, that she would use her endeavours to bring about their happy union.
 
-
-They then left the forest, and returned to the court, where they were no sooner arrived, than the king was made acquainted of what had happened;—he highly commended the prince for his valour; and, as a mark of his approbation, appointed him to an honourable command; which added more hope to his desired enterprize, and made him not a little rejoice at the accidental event of wuch good fortune.	i
-
-
-
+They then left the forest, and returned to the court, where they were no sooner arrived, than the king was made acquainted of what had happened;—he highly commended the prince for his valour; and, as a mark of his approbation, appointed him to an honourable command; which added more hope to his desired enterprize, and made him not a little rejoice at the accidental event of such good fortune.
 [125]
-
 
 Perceiving himself greatly in favour with the king and queen, and likewise in the princess Athelia’s, being so nearly allied to Thalmo; and finding that his adored Mersilva could reap no satisfaction but in his presence, he determined to lose no time, therefore he hasted to her apartments, where, finding her alone, he amorously addressed himself to her:
 
-
-
 “Madam, all alone a kiss of your fair hand for your best thoughts.”—“Not alone, Sir,” says she, “for my thoughts are my best companions; yet my contemplations are so frivolous, that less than what you speak of may purchase them.:
 
-
-The prince was overjoyed to fee her in so facetious a humour, and resolved to continue his discoursee:
-
-
-
+The prince was overjoyed to see her in so facetious a humour, and resolved to continue his discourse:
 [126]
 
-
-“Why, fair Mersilva, less than a kiss from your fair hand, or a smile from
-
-these lips, is in effect nothing;—and ladies will scarce thank their lovers with so slender an affection.”—“Indeed Sir,” says she “ I will prove to the contrary, for they are many times so effectual, that it raises their lovers to so great a height of ambition, that they frequently take too much privilege.”
-
-
+“Why, fair Mersilva, less than a kiss from your fair hand, or a smile from these lips, is in effect nothing;—and ladies will scarce thank their lovers with so slender an affection.”—“Indeed Sir,” says she “ I will prove to the contrary, for they are many times so effectual, that it raises their lovers to so great a height of ambition, that they frequently take too much privilege.”
 
 “But, madam,” replied Plivio, “these are shadows without substance— for there is great difference between pretense and performance—for the one is the others contrary:—And taking her hand, he advanced it to his lips,- and kissed it; —whereupon, with a sharp rebuke, she said;
 [127]
@@ -1218,33 +1157,20 @@ these lips, is in effect nothing;—and ladies will scarce thank their lovers wi
 
 “I little thought your proceedings would have been so peremptory !— for had I but once judged your actions would have been of so large an extent, my absence should have given you an utter denial.”
 
-
 The prince seeing her patience a little moved, thought to balance his offence, with an humble answer; and replied,
-
-
 
 “Madam,
 
 Your anger carries such a power, that whatever course it steers, it sits triumphant.—Had I thought my innocent actions would have so soon incurred your displeasure, I would have prevented, by my care, what has happened.”
 
-
-
 [128]
 
-To this the princess replied, “I now see, that it is my favour, which is the occasion of this disorder -therefore, to avoid the like for the future, you may, as you came, depart, and return when you are sent for.’*
-
+To this the princess replied, “I now see, that it is my favour, which is the occasion of this disorder -therefore, to avoid the like for the future, you may, as you came, depart, and return when you are sent for."
 
 “Madam, said the prince, if the demonstrations of my passion has created in you this displeasure, I beseech you impute it to my affection, which was the chief occasion;—and, as a reward for my crime, inflict on me what punishment you think will be equivalent to the offence.”
 
-
-
 The princess blushed at this answer, but, in such a manner, as if love and disdain sat on her cheeks, striving for supremacy: however, considering she had gone
-
-
-
 [129]
-
-
 so far, and that the subject whereon she had grounded her anger was so small, she suddenly took her leave, and without farther ceremony left the prince to his private meditations.”
 
 
@@ -1532,7 +1458,7 @@ princes,
 nor their ladies received any hurt; the ladies indeed, as may easily be suspected, were much frightened, which the captain perceiving, gave them what comfort he could in their distressed situation, and advised them to be chearful; telling them, the danger was mostly over, and that by the morning, he did not doubt of being conqueror.—But, for their lovers, they behaved with undaunted courage during the whole engagement.
 
 
-The prize proved to be a Turkish xebeque; and as soon as her colours were struck, the captain prepared to fend an officer on board.-----------  Thalmeno offered his service, and Palmos declared he would not stay behind—however, Medor feeing his companions in contention, resolved that they should both stay on board with their ladies; for, if the 
+The prize proved to be a Turkish xebeque; and as soon as her colours were struck, the captain prepared to fend an officer on board.-----------  Thalmeno offered his service, and Palmos declared he would not stay behind—however, Medor feeing his companions in contention, resolved that they should both stay on board with their ladies; for, if the
 [156]
 captain was agreeable, he was ready and willing to go himself.
 

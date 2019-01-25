@@ -169,7 +169,7 @@ have got excused till I leave off my first mourning, which will be in a fortnigh
 [ 25 ]
 I am afraid, all the days of my life.
 
-Sir James Fitzherbert, a cousin of her's, returned last week from his travels, who is likewise under Lord spencer’s care. I think him (if I may judge on so short an acquaintance) a very amiable young man. He surprised us last Thursday just as the butler was clearing the table. I find he did not wait for Lord Spencer’s sending for him, for, upon one of the servant’s coming into the parlour to acquaint him that a young gentleman was just arrived in a chaise-and-four, and that he had shown him into his lordship’s dressing room, he turned to me and said, your brother.
+Sir James Fitzherbert, a cousin of her's, returned last week from his travels, who is likewise under Lord Spencer’s care. I think him (if I may judge on so short an acquaintance) a very amiable young man. He surprised us last Thursday just as the butler was clearing the table. I find he did not wait for Lord Spencer’s sending for him, for, upon one of the servant’s coming into the parlour to acquaint him that a young gentleman was just arrived in a chaise-and-four, and that he had shown him into his lordship’s dressing room, he turned to me and said, your brother.
 [ 26 ]
 there, my Amelia, I dare say. My brother, Sir! exclaimed I; and I felt such a tremor come over me, that I could not move. My Lord then  left the room, and my dear Lady Spencer and Miss Fitzherbert were employed in endeavouring to prevent my fainting, when he returned and introduced the amiable stranger to us. You can have no idea of my disappointment when I found it was not my brother; but a copious flood of tears came to my assistance, and greatly  relieved me, though I fear I received Sir James’s compliments with a very bad grace when Lord Spencer introduced him to me. Having paid his
 [ 27 ]
@@ -1934,43 +1934,24 @@ served
 
 
 [ 62 ]
-served by those who were less connoisseurs than himself. The gentlemen spent the evening with us at home. We had a little concert, and Maitland displayed the greatest taste in that accomplishment, though he is no performer, nor has he the least voice. It is now sometime since I became acquainted with him, and though his whole conduct has been expressive of his honouring me with a preference, yet he never ventured to declare his passion till last Saturday, while we were at the opera. He could not have fixed upon a better place, for the melting strains of a Bernasconi would tune even a savage’s breast to harmo-
-ny.
-
-
+served by those who were less connoisseurs than himself. The gentlemen spent the evening with us at home. We had a little concert, and Maitland displayed the greatest taste in that accomplishment, though he is no performer, nor has he the least voice. It is now sometime since I became acquainted with him, and though his whole conduct has been expressive of his honouring me with a preference, yet he never ventured to declare his passion till last Saturday, while we were at the opera. He could not have fixed upon a better place, for the melting strains of a Bernasconi would tune even a savage’s breast to harmony.
 [ 63 ]
-ny, how much more so then must they render my heart susceptible of soft impressions? I listened to his pleasing tale, and, as I hate disguise, was not ashamed to own that I felt an equal passion for him; but referred him to Lord Spencer for a final answer. You desire I will send you a sketch of his person, your commands shall be obeyed, though I know myself to be a very bad limner : — He is about my brother’s height, and rather inclined to en bon point, is exceedingly well proportioned, though not the least handsome. He has that kind of face which is more striking than beauty in a man; his eyes are
-dark,
-
-
+how much more so then must they render my heart susceptible of soft impressions? I listened to his pleasing tale, and, as I hate disguise, was not ashamed to own that I felt an equal passion for him; but referred him to Lord Spencer for a final answer. You desire I will send you a sketch of his person, your commands shall be obeyed, though I know myself to be a very bad limner : — He is about my brother’s height, and rather inclined to en bon point, is exceedingly well proportioned, though not the least handsome. He has that kind of face which is more striking than beauty in a man; his eyes are
 [ 64 ]
 dark, and his complexion clear, tho’ brown; he has a low forehead, and his hair (of which he has a great profusion) grows beautifully round his temples; his mouth is extremely wide, but, to make amends for that defect, Nature has furnished him with the most charming set of teeth imaginable; and nothing can equal the dimples that play about his chin and cheeks when he smiles. You would be charmed with his address and manner; there is something so open and unreserved in his deportment, that you cannot doubt of the sincerity of what he says. He is no puppy; but conforms to and gives a little into
-fashion.
-
-
 [ 65 ]
 fashion. In short, my dear, he is, in every respect, a charming man.
 The Mannings are to dine with us today; and Lady Spencer has invested Fitzherbert and Maitland. — They do not know that Harriot is in town; but I told the former to steel his heart, as I intended to introduce him to a very beautiful girl of my acquaintance. He smiled, and shook his head, as much as to say, My heart is very safe. I shall call for the Mannings in Lady Spencer’s coach, that Fitzherbert might not see their equipage, as that would entirely frustrate my scheme. I shall tell Harriot that Sir James is to dine with us; and
-when
-
-
 [ 66 ]
 when they meet, how shall I enjoy their mutual surprise. But my servant tells me the coach is at the door adieu, therefore, for the present.
+
 Twelve o’clock.-- What heartfelt pleasure must every worthy mind experience from bestowing happiness on others. Not the greatest epicure could feel half the satisfaction from feasting on the most luxurious rarity, that I have this day derived from the happiness of Fitzherbert and his Harriot.
+
 I left you, my lovely friend, to call on the Mannings. When I got to Cavendish Square, I found them already. Harriot looked so beautiful,
-that
-
-
 [ 67 ]
 that I began to fear she would rival me in Maitland’s opinion, and then I should have been angry indeed. While we were jumbling over the stones, I asked her whether she had seen Musgrave. “No, my dear, ” replied she, “we do not know where he lodges, and therefore could not let him know we were come to town; but Lady Manning proposes going to Ranelaugh this evening, where I hope we shall meet him, as I am very impatient to introduce him to you.” — The coach by this time stopped at our door; at which instant, Lord Maitland and Sir James came, and, observing it was our carriage, waited to hand us out; but
-it
-
-
 [ 68 ]
 it would require greater powers in the descriptive way than I am mistress of to give you an adequate idea of the surprise and joy painted on their countenances, when they beheld each other. Sir James, who had not the least idea of her being in town, thought it all enchantment; but when I presented her to him as my sister, he looked as if he had hardly dared believe the evidence of his senses. I then turned to Harriot, saying, “I hope my Harriot will be inclined to look as favourable on Sir James Fitzherbert as she has ever done on Musgrave, ” when she exclaimed, ‘‘ Never, never will I be his!” and fainted in
-my
-
-
 [ 69 ]
 my arms. The afflicted Fitzherbert traversed the room in the greatest agitation, while Maitland assisted me in bringing her to life. As soon as she recovered she entreated to be left alone with me; and when her request was complied with, she addressed me in the following terms: “Cruel Amelia, thus to triumph over me in generosity! Could you imagine your Harriot base enough to marry the man who possesses your heart? No! though I loved Musgrave. I cannot love Fitzherbert! — Why did you subject me to this dreadful interview but to see me united at the expense of your felicity? — yet know, Amelia, I will
 not
@@ -2004,12 +1985,8 @@ LETTER XXIX
 Miss Finch to The Honourable Miss Beaumont.
 Bath.
 FINE goings on in the gay metropolis; no less than three weddings sur le tapis! Well, good people, you have my sincere congratulations on the occasion; and may the day that is to unite you to Maitland, and Harriot to Fitzherbert, be ushered in with the mildest auspices. But think not that I mean to withhold myself from your presence at that time. No, I shall certainly come to town, and officiate as bride-maid Be careful, therefore,
-to
-
-
 [ 75 ]
 to have a favour and a pair of gloves in reserve for me. My dear Lady Finch has already received great benefit by drinking the waters and, without the least reluctance, acquiesced with my desire of being present at your nuptials, and desires (as does Sir William) that I will say everything that is affectionate and civil for them.--But I must tell you, my Amelia, that l have another reason for a London expedition, which you will, perhaps, think a selfish one, when I say it is to try the strength of Cockburn’s passion; for, if he refuses to accompany me, upon the score of not being able to see you united to another, it is all over with
-him;
 [76]
 him; but if, on the contrary, he consents, and cheerfully sees you give your hand to the amiable Maitland, then shall I be satisfied, and will, no longer trifle with him; yet I have too much spirit to brook the idea of marrying a man who does not love me with his whole heart. — I read your charming brother’s letter with infinite pleasure, and sincerely do I rejoice at his approaching happiness May he be as happy as he is deserving, and then, I am sure, his cup will run over.
 I am heartily tired of this stupid place, and sincerely wish that Sir William and Lady Finch’s health would permit us to leave it, as I
@@ -2141,6 +2118,7 @@ fatigued with my journey, but could not think of resigning myself into the arms 
 Their dutiful daughter,
 Charlotte Finch.
 P. S. I found all friends well in Berkeley Square.
+
 LETTER XXXIIL
 From the same to the same Honoured Mother,
 WITH what anxiety did I wait the arrival of the post, and
@@ -2357,6 +2335,7 @@ on my return to Bath, where I arrived safe, without meeting with anything new or
 meet Harriot’s friend, who is now married to the only man she ever loved. They intend spending the summer at Spa with them, to which place they are going for the recovery of Lady Milner’s health. Lady Fitzherbert desired I would inform you of it, as she had not time to write before she went. I have likewise a message from her to deliver to your caro sponso, which I must do through your means. You must therefore inform him that Harriot intends to recommend him, wherever she goes, as a person who may be applied to in all cases of distress, and means to have handbills printed, setting forth, “That all damsels,
 [ 144 ]
 who wish to take a peep into the book of fate, may apply to the Right Hon. Lord Maitland, who possesses the art of divination in the most eminent degree, as his prophecies never fail.” In short, she intends to sound his praise through the trumpet of fame, for having so accurately foretold the events that were to befall her. Need I after this add, that the ring taken from her finger at a ball at General Slater’s has been restored to her by her amiable Fitzherbert.
+
 Has my dear Amelia thrown aside her London airs yet, and assumed the habit of an Arcadian shepherdess? I think the dress would mightily become
 [ 145 ]
 her, and that she would handle the crook with a peculiar grace. I think I see the amiable Maitland reclined by your side on a bank of violets gazing on your charms with rapture, and adding to the melodious accents of your voice the soft strains of a well played flute. Have I not drawn a pretty picture of rural felicity? I am sure I sincerely sigh for the pastoral pleasures, and hope the day is not far distant that will transplant me in the happy spot of my nativity, as we think of leaving this horrid place very soon.
