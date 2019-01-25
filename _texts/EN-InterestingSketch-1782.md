@@ -37,7 +37,7 @@ This text has been OCRed and hand-corrected from the [digital surrogate](http://
 
 ---
 ## LETTER I.
-<p align="center"><i>The Honourable Miss Beaumont to Miss Finch.</i></p>
+<p align="center">The Honourable Miss Beaumont to Miss Finch.</p>
 
 <p align="right">Grove Place, Yorkshire.</p>
 
@@ -72,21 +72,23 @@ WHAT pleasure did my Amelia’s last letter convey to the heart of her Charlotte
 up against all the trials that may in future assail you. That they may be few is the constant prayer of your Charlotte, who intercedes that you will make her a sharer of all your concerns; pour out your whole soul into her sympathetic bosom, and make that the repository of all your cares; let your confidence in her be unbounded, and be assured she will never abuse the trust.
 
 I am sorry to hear that poor Lady Beaumont is in so declining a state. She has certainly suffered unheard of afflictions. Has she received any news from her son? I know she waited impatiently for a letter.
-C 7 ]
+[ 7 ]
 What obdurate hearts must Lord and Lady Spencer be possessed of, to know that a once beloved daughter is now sinking under a weight of grief which their friendly interference might easily remove, and yet not administer the salutary balm to her drooping heart. Oh fie! I shudder, when I reflect on such barbarity! --- How is the lively Harriot? you don’t mention her. I hope she is contented and happy in her new situation.
 
 My ever honoured father and mother desire to be cordially remembered to Lady Beaumont and her fair companions. You will, I flatter
 myself, believe that I am, more than ever,
 
-Your sincere, and affectionate,
+> Your sincere, and affectionate,
 
-Charlotte Finch.
+>> Charlotte Finch.
 
 ---
 
-## LETTER III. The Honourable Miss Beaumont to Miss Finch.
+## LETTER III. 
 
-Berkeley Square.
+>>> The Honourable Miss Beaumont to Miss Finch.
+
+<p align="right">Berkeley Square.</p>
 
 Yes, my Charlotte, to thy friendly bosom thy wretched Amelia flies in this her day of trial; for now is she truly miserable; nor has she one friend upon earth to whom she can so freely unbosom herself as to her long loved Charlotte Finch, whose sensibility will receive a severe shock when she hears
 [ 9 ]
@@ -94,11 +96,13 @@ that Lady Beaumont is no more, and that Amelia has now no mother! — nay, griev
 [ 10 ]
 Lady Spencer, at whose house I now am. My dearest Harriot is with Sir William and Lady Manning. Excuse this incoherent scrawl. My next, I hope, will be more methodical.
 
-Your affectionate, but afflicted friend,
+> Your affectionate, but afflicted friend,
 
-Amelia Beaumont.
+>> Amelia Beaumont.
 
-## LETTER IV. Miss Finch to The Honourable Miss Beaumont.
+## LETTER IV. 
+
+>>> Miss Finch to The Honourable Miss Beaumont.
 
 Summer Hill, Devon,
 
@@ -114,12 +118,15 @@ Spencer having given you an asylum in their house.] — were my reflections on t
 [ 13 ]
 indulgent patrons to my Amelia, whose amiable disposition must (if they have the smallest share of sensibility) ensure her their love. — I hope your spirits are by this time better. Write to me, my dear girl, and assure me they are, for, still you do, mine will not mend. Accept the sincere love of all under this roof, but particularly that of
 
-Your affectionate
+> Your affectionate
 
-Charlotte Finch.
+>> Charlotte Finch.
 
 [ 14 ]
-## LETTER V. Sir James Fitzherbert to Lord Maitland,
+
+## LETTER V. 
+
+### Sir James Fitzherbert to Lord Maitland,
 
 Parliament Street.
 
@@ -144,9 +151,10 @@ that I am fallen headlong in love; — no, really, I feel nothing more for the l
 
 I think I give a very sufficient proof of not being entangled dans la belle passion by my retiring so Soon into the country, where it will be impossible to gaze on her interesting figure but in idea, now and then, when I have nothing else to do. Believe that I am, Unalterably your’s, '
 
-James Fitzherbert.
+>> James Fitzherbert.
 
 [ 20 ]
+
 ## LETTER VI. The Honourable Miss Beaumont to Miss Finch.
 
 Berkeley Square.
@@ -196,7 +204,7 @@ Amelia Beaumont.
 ---
 [ 34 ]
 ## LETTER VII.
-### Miss Finch to The Honourable Miss Beaumont.
+### *Miss Finch to The Honourable Miss Beaumont.*
 
 <p align="right">Summer Hill, Devon.</p>
 
@@ -220,13 +228,15 @@ be made acquainted with all the fashionable places of resort.
 
 My dear father and mother beg you to accept their most affectionate love. You are already acquainted with every sentiment of my heart, and therefore must know, that it glows with the warmest wishes for health and happiness. From
 
-Your much attached friend,
+> Your much attached friend,
 
-Charlotte Finch,
+>> Charlotte Finch,
 
 ---
 [ 39 ]
-## LETTER VIII. The Honourable Miss H. Beaumont to The Hon. Miss Beaumont.
+
+## LETTER VIII. 
+### *The Honourable Miss H. Beaumont to The Hon. Miss Beaumont.*
 
 Manning Castle, Wiltshire.
 
@@ -293,9 +303,9 @@ and indeed I may easily pass for such, as few people in these parts know to the 
 
 This is the longest letter I have written for sometime. I assure you I am quite tired; and as all the family are retired to rest, and I feel myself disposed to steep, I think I had better indulge its influence., Accept every wish that an affectionate heart can offer, from,
 
-Your sincere friend,
+> Your sincere friend,
 
-Harriot Beaumont.
+>> Harriot Beaumont.
 [ 52 ]
 
 ---
@@ -338,11 +348,11 @@ to write, indeed! No, no, my dear, you had better let that alone, as too much st
 [ 65 ]
 girls, that have refin’d away every noble sentiment which they might once, perhaps, have possessed, and are now the slaves of Vanity and Dissipation. I am not tired of writing, nor have I exhausted half my little budget of nonsense; but yet I am compelled to conclude, as the coach is at the door, and I have already had two messages to attend Lady Milner;  therefore, adieu, my sweet friend, and oblige me by accepting my sincerest wishes for your prosperity.
 
-Most affectionately your’s, Horatia Milner.
+> Most affectionately your’s
 
-P. S. You must not expect; to hear from me very often, as my time is not my
-[ 66 ]
-own. I hope I am not too minute, as I wish not to tyre, but to entertain. Do not mention the circumstance of my uneasiness on any account, as I should be sorry to have Lady Milner’s conduct known but to my Harriot, who, I look upon as my other self, and conceal nothing from her.
+>> Horatia Milner.
+
+>>> P. S. You must not expect; to hear from me very often, as my time is not my [ 66 ] own. I hope I am not too minute, as I wish not to tyre, but to entertain. Do not mention the circumstance of my uneasiness on any account, as I should be sorry to have Lady Milner’s conduct known but to my Harriot, who, I look upon as my other self, and conceal nothing from her.
 
 ## LETTER XII The Honourable Miss Beaumont to Miss Finch.
 
@@ -1443,7 +1453,7 @@ LETTER XXI
 The Honourable Miss H. Beaumont to
 The Hon. Miss Milner.
 Manning Castle, Devon.
-WILL my Horatia’s troubles know no end? Yes! In the friendship and consolation of her Harriot. They must! Fly then, my lovely girl, to my longing arms, which are open ready to receive you. How do I long to embrace you. If, therefore, your friendship is equal to mine, delay not one moment after this reaches you, to let out for Manning Castle, whose owners are impatiently anxious to see you, and to afford yau that
+WILL my Horatia’s troubles know no end? Yes! In the friendship and consolation of her Harriot. They must! Fly then, my lovely girl, to my longing arms, which are open ready to receive you. How do I long to embrace you. If, therefore, your friendship is equal to mine, delay not one moment after this reaches you, to let out for Manning Castle, whose owners are impatiently anxious to see you, and to afford you that
 security
 
 
