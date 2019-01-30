@@ -52,10 +52,12 @@ toc:
 ---
 
 ---
+
 ## Digital editor's note
 This text has been OCRed and hand-corrected from the [digital surrogate](http://hdl.library.upenn.edu/1017/d/print/991576313503681) in Penn Libraries' Digital Collection of British and American Fiction. The original book is held by the Kislak Center for Special Collections (Penn Libraries, University of Pennsylvania).
 
 ---
+
 <a id="volume-i" />
 <p class="centered">AN INTERESTING</p>
 <p class="centered larger">SKETCH</p>
