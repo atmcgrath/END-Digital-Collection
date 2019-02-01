@@ -516,50 +516,28 @@ of the truth, and had secured his rival. It was not many hours before those he s
 [158]
 alone with her dear friend Leonora; to whom she could unbosom her thoughts. He carried her thither, and lest her, pretending he had business that obliged him to return to his father; concluding in his own thoughts, that Leander, who no doubt was impatient to speak with her, would soon learn where she was, follow her, and venture to pay her a visit, he being absent. The old lady or governess, who attended her, was his creature, and he left her a spy on all her actions. He took his leave as usual, with all the tenderness and concern imagine able; saying, he should think each day a year till he returned, to her. All things were translated as he foresaw; Leander learning he was absent, and Harriot at the country house, went with, his friend disguised in their Spanish dresses, to the village where she was, and took a lodging in a peasant's house, where
 [159]
-they kept very private for two days; then his friend and kinsman, who ventured abroad for intelligence, being certain that he was not known by Don Carlos, having seen her walking, in the garden with Leonora, informed him of it; so they consulted what to do : and Leander, fearing to surprise her a second time, resolved to write a letter to her, and Sent it by his friend : the contents of which were as follow.
-Sill charming tho’ perjur’d Harriot,
-* After a tedious sickness, occasioned by my grief for the loss of you, which long confined me to my bed, and brought me almost to the: grave, I am come to this istand,. where I have learned the cruel news that you are now another’s. I shall make you no reproaches,, nor ask anything but the honour of one hour’s conversation with you, after which you shall never, more be importuned'
-ia The HISTORY of
-portuned or disordered with the sight of me. I love you as pafiio nately as ever, and only desire to prove it by dying at your feet. Let it be Soon, lest grief deprive me of that satisfaction;; my soul is fo transported with despair, that only the hope of feeing you once more, keeps me alive. My angel, name: the place and time to my friend, and. for the last time oblige
+they kept very private for two days; then his friend and kinsman, who ventured abroad for intelligence, being certain that he was not known by Don Carlos, having seen her walking, in the garden with Leonora, informed him of it; so they consulted what to do: and Leander, fearing to surprise her a second time, resolved to write a letter to her, and sent it by his friend: the contents of which were as follow.
+
+Sill charming tho’ perjur’d Harriot.
+  'After a tedious sickness, occasioned by my grief for the loss of you, which long confined me to my bed, and brought me almost to the: grave, I am come to this island,. where I have learned the cruel news that you are now another’s. I shall make you no reproaches, nor ask anything but the honour of one hour’s conversation with you, after which you shall never, more be 
+[160]
+importuned or disordered with the sight of me. I love you as passionately as ever, and only desire to prove it by dying at your feet. Let it be soon, lest grief deprive me of that satisfaction; my soul is so transported with despair, that only the hope of seeing you once more, keeps me alive. My angel, name: the place and time to my friend, and. for the last time oblige
+
 Your constant undone
-j
-Leander.,
-%
-/
-/
-/
-j
-1 hia
-/
-miss Harriot Montague. ii
-Ishis letter was delivered into harriot’s hand by dumaresqne the next morning : for he ventured to go iiitp the gardens before day over the stone wall, and there hid himself in a summerhouse till Harriot came into the garden to walk with her friend Leonora alone. He took this, as he tfiought, lucky opportunity, and at their coming into the summerhouse to sit down, presented himself and the letter to her. She
-s
-was a little startled, but believing Leander was not gone from the issand. She expected to hear from or See him, concluding he would by Some means or other find a way to send or come to her; fo she immediately guested who he came from. She read the moving lines, and Shedding a stood of tears. Said, ‘ Sir, ‘ tell the unfortunate Leander it ‘ was his misfortune, not my fault, ‘ that we are Separated; his leaving ^ me, put me under a fatal necestity
-‘ of
-\
-1^2 The H I S T O R Y or,
-‘ of giving myself to him in whole ‘ power 1 was left. I am now dish
-* posed of to a noble husband,, ‘ whom I am bound to love and ‘ honour. It is altogether improper
-* for me to admit of a visit from the ‘ man whom I have loved, and still ‘ have too much inclination for;
-‘ besides, it is inconsistent with myr ‘ honour, and may be both our ‘ ruin. I make it my last request ‘ to him therefore to leave this ‘ issand immediately, and' conjure
-* him, as he values his, own life, or my peace, not to attempt Seeing;
-‘ me, or to stay here a day longer
-■ husband is already alarmed, ^
-‘ and has, I fear, brought me to ‘ this place with design to betray ‘ him. For heaven’s sake persuade.
-‘ him to fly hence, and not render ‘ me entirely miserable.. Tell him,
-* I beg him to remember me no’
-‘ more, but in his prayers, and to
-^ Submit with a, Christian refigna^
-‘ tioit
-^'
-miss Harriot Montague. 163
-t
-‘ tion to the .will of heaven. This ‘ is all I can Say to him, and my ‘ final answer.’
-At these words she rose, and went out of the summerhouse, leaving Leonora to let him out at the back gate with a key which she always carried in her pocket, to let them into a grove, which was behind the garden. Leonora hastened him a way, entreating him never more to return. Harriot retired to her closet, and there gave way to her passion;; love to Leander was now revived, and she had the most dreadful apprehensions of his danger that can be conceived. She perused the dear lines he had Sent her a hundred tiines over, and washed them pale with her tears. Whilst she was thus employed, Don Carlos, who had laid all the time in the village, and had received information of the stranger’s lodging at the peafant’s, and of dumarefque’s being in the
-gardsa
-164 The HISTORY or
-\
-garden (Harriot having been watched by the old Dovegna) knocked at the closet door : She asked who was there; and hearing his voice, dapt the letter into her bosorn, and opened the door in Such a disorder that her lord would have been much Surprised at, if he had not known the cause of it before. He took her in his arms with a forced air of affection, but his eyes fiashed with rage; he trembled, and Spoke in So distraded a manner, that She too well perceived he was informed of what had past, and was So overcome with grief, that she fainted in his arms: he laid her gently on the couch, and took the letter out of her bosom, read it and putting it there again, called the old governess who waited without, and presently fetched cordials to bring her to herself; but they tried all means in vain So long, that he thought her dead, and indeed began to abandon
+
+Leander.
+[161]
+This letter was delivered into Harriot’s hand by Dumaresqne the next morning: for he ventured to go into the gardens before day over the stone wall, and there hid himself in a summerhouse till Harriot came into the garden to walk with her friend Leonora alone. He took this, as he thought, lucky opportunity, and at their coming into the summerhouse to sit down, presented himself and the letter to her. She was a little startled, but believing Leander was not gone from the island. She expected to hear from or see him, concluding he would by some means or other find a way to send or come to her; so she immediately guested who he came from. She read the moving lines, and shedding a stood of tears. Said, ‘ Sir, tell the unfortunate Leander it was his misfortune, not my fault, that we are separated; his leaving me, put me under a fatal necessity
+[162]
+of giving myself to him in whose power I was left. I am now disposed of to a noble husband, whom I am bound to love and honour. It is altogether improper for me to admit of a visit from the man whom I have loved, and still have too much inclination for; besides, it is inconsistent with my honour, and may be both our ruin. I make it my last request to him therefore to leave this island immediately, and conjure him, as he values his, own life, or my peace, not to attempt seeing; me, or to stay here a day longer husband is already alarmed, and has, I fear, brought me to this place with design to betray him. For heaven’s sake persuade him to fly hence, and not render me entirely miserable. Tell him, I beg him to remember me no more, but in his prayers, and to
+submit with a, Christian resignation
+[163]
+to the will of Heaven. This ‘ is all I can say to him, and my final answer.’
+
+At these words she rose, and went out of the summerhouse, leaving Leonora to let him out at the back gate with a key which she always carried in her pocket, to let them into a grove, which was behind the garden. Leonora hastened him away, entreating him never more to return. Harriot retired to her closet, and there gave way to her passion; love to Leander was now revived, and she had the most dreadful apprehensions of his danger that can be conceived. She perused the dear lines he had sent her a hundred times over, and washed them pale with her tears. Whilst she was thus employed, Don Carlos, who had laid all the time in the village, and had received information of the stranger’s lodging at the peasant’s, and of Dumaresque’s being in the
+
+[164]
+garden (Harriot having been watched by the old Dovegna) knocked at the closet door: She asked who was there; and hearing his voice, dapt the letter into her bosorn, and opened the door in Such a disorder that her lord would have been much Surprised at, if he had not known the cause of it before. He took her in his arms with a forced air of affection, but his eyes fiashed with rage; he trembled, and Spoke in So distraded a manner, that She too well perceived he was informed of what had past, and was So overcome with grief, that she fainted in his arms: he laid her gently on the couch, and took the letter out of her bosom, read it and putting it there again, called the old governess who waited without, and presently fetched cordials to bring her to herself; but they tried all means in vain So long, that he thought her dead, and indeed began to abandon
 himselst
 >
 *
