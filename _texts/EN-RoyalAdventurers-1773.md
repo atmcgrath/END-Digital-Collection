@@ -35,6 +35,7 @@ toc:
 ---
 
 ---
+
 ## Editor's note
 This text has been OCRed and hand-corrected from the [digital surrogate](http://hdl.library.upenn.edu/1017/d/print/991610763503681) in Penn Libraries' Digital Collection of British and American Fiction. The original book is held by the Kislak Center for Special Collections (Penn Libraries, University of Pennsylvania).
 
@@ -43,17 +44,19 @@ This text has been OCRed and hand-corrected from the [digital surrogate](http://
 
 <p class="centered large">A NOVEL.</p>
 
->When virtue and modesty enlighten her charms, the
+> When virtue and modesty enlighten her charms, the
 lustre of a beautiful woman is brighter than the
 stars of heaven, and the influence of her power it
 is in vain to refill.
->>Oeconomy of Human Life.
+
+>> Oeconomy of Human Life.
 
 
 <p class="centered">LONDON:<br>Printed for G. Allen, No. 59. in Pater-noster-Row;<br>
 M DCC LXXIII.</p>
 
 ---
+
 ## PREFACE TO THE READER.
 
 At a time when there is so great a dearth of good writers, it is, almost needless to say any thing in favour of the following work. The town has long been pestered with novels.
@@ -63,7 +66,9 @@ The vitiated taste of youth, owing to the perusal of such productions, is an und
 As this is the scope which the author has prescribed to himself, he doubts not in the least of meeting with the approbation of all those who (vi) shall take the pains of perusing this work, which if he is so happy as to meet with, he will ever entertain a grateful rememberance of the favour conferred on him, and will endeavour to testify his most sincere acknowledgement by dedicating his labours to the service of those who honour them with their countenance. As he has neither the views of honours or interest to influence him, he flatters himself that he has gained the summit of his desires, by having produced a work which, at the same time that it delights, conveys the most instructive lessons of virtue. He therefore takes the liberty of recommending his work to the attention of the polite youth of both sexes, and flatters himself that their approbation of his endeavours to plese them will crown his attempts. It may perhaps be objected that he has introduced none but persons in the most exalted stations of life; but it must be remembered that VIRTUE alone should (vii) be the distinguishing characteristic of every class, and that without this ornament all our actions lose their merit. If he is so happy as to afford any pleasure to his readers, he will esteem his labours overpaid, and will rejoice at having been the happy means of contributing somewhat towards the reformation of the British youth. This is his first attempt; he therefore flatters himself that he shall meet with the approbation of those who do not blush at being thought good. It is needless to say any further of a work, which the author would wish should recommend itself by its merit alone, contrary to the general run of our modern productions, which usually make their way into the world by dint of the most flagrant impudence of those who endeavour, by a well written title-page to alure the wretched effects of their mistaken genius or the too credulous public.
 
 ---
+
 [i]
+
 ## CONTENTS
 
 <a href="#chap-i">CHAP. I.</a>
@@ -268,12 +273,11 @@ of their subjects.*
 
 <p class="centered large">THE TEST OF FRIENDSHIP</p>
 
-## CHAP I.
+## CHAP. I.
 
->The birth of Thalmeno—At the age of fifteen he resolves privately to leave his father’s court.—Palmos is informed of his intention, and determines to accompany him. They elope together—embark on board a vessel—and land safely on the African shore.
+> The birth of Thalmeno—At the age of fifteen he resolves privately to leave his father’s court.—Palmos is informed of his intention, and determines to accompany him. They elope together—embark on board a vessel—and land safely on the African shore.
 
-In the island of Cecilia, situated in the center of the Mediterranean sea, there reigned a monarch named DRUYNO, endued with every virtue that could adorn the prince; he swayed the regal scepter
-with the universal applauses of a grateful people; who, considering him as the guardian of their liberties, and the source of the tranquillity which they enjoyed under his government.—To his skill in martial affairs he had added a knowledge of every other science, that at once elevates and adorns the mind.—At this time peace blest his happy isle, and that he might contribute as much as possible to the happiness of his subjects, he constantly resided among them.
+In the island of Cecilia, situated in the center of the Mediterranean sea, there reigned a monarch named DRUYNO, endued with every virtue that could adorn the prince; he swayed the regal scepter with the universal applauses of a grateful people; who, considering him as the guardian of their liberties, and the source of the tranquillity which they enjoyed under his government.—To his skill in martial affairs he had added a knowledge of every other science, that at once elevates and adorns the mind.—At this time peace blest his happy isle, and that he might contribute as much as possible to the happiness of his subjects, he constantly resided among them.
 
 But alas! his own felicity was incomplete! for though he married when only eighteen years of age, he had no issue to succeed to his crown—and GRATIANA, his consort, was scarcely fourteen when she became the partner of the royal bed. His head, with age was almost silver’d o’er; the lily and the rose had faded on Gratiana’s cheeks, where once they triumphed blooming and unrivaled.
 

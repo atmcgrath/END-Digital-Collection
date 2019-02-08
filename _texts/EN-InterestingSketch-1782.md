@@ -1541,7 +1541,7 @@ I am persuaded, make a good husband.
 
 *The Honourable Miss Beaumont Miss Finch.*
 
-<p align="right">Berkeley Squarer</p> 
+<p align="right">Berkeley Square.</p> 
 
 Sincerely do I congratulate my much loved Charlotte on the noble conquest she has made; and so far from being angry with her for becoming my rival, I love her, if possible, ten times better than ever, for having restored tranquillity to a worthy mind. Cockburn deserves you, my Charlotte, you were framed for each other; therefore, I beg you
 [ 57 ]
@@ -1579,26 +1579,22 @@ that I began to fear she would rival me in Maitland’s opinion, and then I shou
 it would require greater powers in the descriptive way than I am mistress of to give you an adequate idea of the surprise and joy painted on their countenances, when they beheld each other. Sir James, who had not the least idea of her being in town, thought it all enchantment; but when I presented her to him as my sister, he looked as if he had hardly dared believe the evidence of his senses. I then turned to Harriot, saying, “I hope my Harriot will be inclined to look as favourable on Sir James Fitzherbert as she has ever done on Musgrave, ” when she exclaimed, ‘‘ Never, never will I be his!” and fainted in
 [ 69 ]
 my arms. The afflicted Fitzherbert traversed the room in the greatest agitation, while Maitland assisted me in bringing her to life. As soon as she recovered she entreated to be left alone with me; and when her request was complied with, she addressed me in the following terms: “Cruel Amelia, thus to triumph over me in generosity! Could you imagine your Harriot base enough to marry the man who possesses your heart? No! though I loved Musgrave. I cannot love Fitzherbert! — Why did you subject me to this dreadful interview but to see me united at the expense of your felicity? — yet know, Amelia, I will
-not
-
 [ 70 ]
-not be outdone in greatness, and will die rather than marry him at so dear a rate !”
-When she had ended her speech, I begged of her to be composed, and to attend to what I had to say. I then went up to my bureau and brought down a copy of the last letter I wrote to you, and what I had written of this, which convinced her that he was not the master of my affections; and I assured her that (though I imagined I did) I never loved till I saw Maitland. She was satisfied; and soon regained her usual spirits. We joined the rest of the company in Lady Spencer’s dressing room, and this little
-damp
+not be outdone in greatness, and will die rather than marry him at so dear a rate!" 
 
+When she had ended her speech, I begged of her to be composed, and to attend to what I had to say. I then went up to my bureau and brought down a copy of the last letter I wrote to you, and what I had written of this, which convinced her that he was not the master of my affections; and I assured her that (though I imagined I did) I never loved till I saw Maitland. She was satisfied; and soon regained her usual spirits. We joined the rest of the company in Lady Spencer’s dressing room, and this little
 [ 71 ]
 damp gave us a higher relish for the happiness we otherwise enjoyed. — Fitzherbert entreated Harriot to acquaint him what cause she had to denounce so harsh a sentence against him. She told him that a circumstance occurred to her, upon hearing his real name mentioned, that would certainly have been an obstacle to their union, had it not since been cleared up entirely to her satisfaction. He then acquainted her with his motive for having passed by a feigned name; and she regretted being disappointed of the pleasure she had planned to herself of introducing him to her sister. But now comes the worst of the story,
-and
-
 [ 72 ]
 and I am sure my dear Charlotte will lament with me the depravity of human nature, when she is informed, that those whose happiness I had so earnestly promoted were all in the league against me, and extorted a promise of me, by dint of expostulation, to resign my liberty this day six weeks. to the aspiring Maitland! — Harriot is the same day to be united to Fitzherbert! — Heigh ho! — I wish my Charlotte would bless her friend with her presence at that awful period, and lend her her supporting hand, for she already, feels that she will be a very coward; — but, in the downy arms of sleep, I will, for the present, endeavour
-to
-
 [ 73 ]
 to forget my cares. Adieu, dear Charlotte, and never cease to love
-Your affectionate
-Amelia. Beaumont.
-P. S. What a thoughtless creature I am to omit telling you, that next Thursday gives Miss Fitzherbert to her adorable Lord Nassau, contrary to the persuasions of all her friends; but she is of age, and consequently the mistress of her actions. I sincerely pity and condemn her. — You may depend upon my sending you an account of the wedding.
+
+> Your affectionate
+
+>> Amelia. Beaumont.
+
+>> P. S. What a thoughtless creature I am to omit telling you, that next Thursday gives Miss Fitzherbert to her adorable Lord Nassau, contrary to the persuasions of all her friends; but she is of age, and consequently the mistress of her actions. I sincerely pity and condemn her. — You may depend upon my sending you an account of the wedding.
 
 [ 74 ]
 
@@ -1608,61 +1604,45 @@ P. S. What a thoughtless creature I am to omit telling you, that next Thursday g
 
 *Miss Finch to The Honourable Miss Beaumont.*
 
-Bath.
+<p align="right">Bath.</p>
 
-FINE goings on in the gay metropolis; no less than three weddings sur le tapis! Well, good people, you have my sincere congratulations on the occasion; and may the day that is to unite you to Maitland, and Harriot to Fitzherbert, be ushered in with the mildest auspices. But think not that I mean to withhold myself from your presence at that time. No, I shall certainly come to town, and officiate as bride-maid Be careful, therefore,
+Fine goings on in the gay metropolis; no less than three weddings sur le tapis! Well, good people, you have my sincere congratulations on the occasion; and may the day that is to unite you to Maitland, and Harriot to Fitzherbert, be ushered in with the mildest auspices. But think not that I mean to withhold myself from your presence at that time. No, I shall certainly come to town, and officiate as bride-maid Be careful, therefore,
 [ 75 ]
 to have a favour and a pair of gloves in reserve for me. My dear Lady Finch has already received great benefit by drinking the waters and, without the least reluctance, acquiesced with my desire of being present at your nuptials, and desires (as does Sir William) that I will say everything that is affectionate and civil for them.--But I must tell you, my Amelia, that l have another reason for a London expedition, which you will, perhaps, think a selfish one, when I say it is to try the strength of Cockburn’s passion; for, if he refuses to accompany me, upon the score of not being able to see you united to another, it is all over with
 [76]
 him; but if, on the contrary, he consents, and cheerfully sees you give your hand to the amiable Maitland, then shall I be satisfied, and will, no longer trifle with him; yet I have too much spirit to brook the idea of marrying a man who does not love me with his whole heart. — I read your charming brother’s letter with infinite pleasure, and sincerely do I rejoice at his approaching happiness May he be as happy as he is deserving, and then, I am sure, his cup will run over.
+
 I am heartily tired of this stupid place, and sincerely wish that Sir William and Lady Finch’s health would permit us to leave it, as I
-never
-
 [ 77 ]
-never yet was in any town where scandal reigned with such arbitrary sway. I have been obliged, through civility, to be out a great deal more lately than I could have wished, and have therefore had an opportunity of hearing of numberless amours carried on in a clandestine manner, lost reputations, &c. &c. As I seldom give much credit to what those say who are infected with that fashionable disorder, the persons whose initials were mentioned in loud whispers round the room never lost much in my estimation. It is really laughable to observe, that when scandal lifts its Hydra head, how eager every tongue is em-
-ployed
-
+never yet was in any town where scandal reigned with such arbitrary sway. I have been obliged, through civility, to be out a great deal more lately than I could have wished, and have therefore had an opportunity of hearing of numberless amours carried on in a clandestine manner, lost reputations, &c. &c. As I seldom give much credit to what those say who are infected with that fashionable disorder, the persons whose initials were mentioned in loud whispers round the room never lost much in my estimation. It is really laughable to observe, that when scandal lifts its Hydra head, how eager every tongue is 
 [ 78 ]
-ployed to bring in proofs against the victim of their malice. As I have nothing material to relate, I will hasten to release you from this insipid scrawl.
+employed to bring in proofs against the victim of their malice. As I have nothing material to relate, I will hasten to release you from this insipid scrawl.
+
 I hear somebody coming upstairs; I dare say it is a summons to attend Cockburn. “Who knocks at my door? Sir George, is it you! — lam really surprised at your breaking in upon my retirement. — I am concluding a letter to Miss Beaumont, and will attend you in the drawing-room in five minutes. — Presuming wretch, to thrust open the door! and to endeavour to take the pen from me too. — Patience, patience. Sir George, and I
-will
-
 [ 79 ]
-will resign it to you; but let me first turn down what I have written, that it may be screened from impertinent
-curiosity.”-- -- -- Sir George,
-“I have at length, with the utmost difficulty, fairly dislodged the amiable Charlotte, and have stated myself at her bureau, to address a few lines to her charming friend, whom I hope will permit me to congratulate her on an approaching happy event. How blessed must be the fortunate Maitland in the possession of such a treasure. — Oh! may he never forget the value of it. He is a generous fellow, and highly merits the distinguished marks of favour fortune has bestowed
-on
-
+will resign it to you; but let me first turn down what I have written, that it may be screened from impertinent curiosity.”-- -- -- Sir George, “I have at length, with the utmost difficulty, fairly dislodged the amiable Charlotte, and have stated myself at her bureau, to address a few lines to her charming friend, whom I hope will permit me to congratulate her on an approaching happy event. How blessed must be the fortunate Maitland in the possession of such a treasure. — Oh! may he never forget the value of it. He is a generous fellow, and highly merits the distinguished marks of favour fortune has bestowed
 [ 80 ]
 on him. We were very intimate while in Germany together, and I had several opportunities of observing that he possessed every virtue and accomplishment that could render him worthy of your heart. Shall I trouble you to tell him, no one more sincerely participates his good fortune, than does his old friend, George Cockburn. Was I not well convinced of Miss Beaumont’s generous disposition, I should not venture to request so great a favour of her as I am now going to do; but, knowing as I do the enlarged sentiments of her heart, what have I to fear; I shall not, therefore, hesitate to entreat her to become my advocate
-with
-
 [ 81 ]
 with her friend, whose amiable temper and obliging manner have doomed me ever to be her slave. My conduct would have the appearance of caprice to many, but I am persuaded I can easily acquit myself of that imputation in the opinion of Miss Beaumont. I must be brief, as my adored Charlotte is impatient to have the pen restored to her, and threatens to take it from me by force.
-“When you rejected my proffered hand and heart, I knew it was not through that cruel motive (which I am sorry to say too many of your sex frequently adopt) of keeping a heart suspended between hope and fear, in
-order
 
+“When you rejected my proffered hand and heart, I knew it was not through that cruel motive (which I am sorry to say too many of your sex frequently adopt) of keeping a heart suspended between hope and fear, in 
 [ 82 ]
 order to glory in being a difficult conquest. Your generous frankness convinced me that I was not, nor ever should be, the happy master of your affections. I therefore resolved to persecute you no further on the subject, but endeavour, if possible, to conquer my unhappy passion regardless, therefore, of what became of me, I left a place where I knew I must continually meet you, and was conducted by, a fortunate destiny to Bath, where I met, in the person of Miss Finch, Miss Beaumont’s counterpart. Permit me to add, that everything which wore your semblance was dear to me, and that I found a sweet
-consolation
-
 [ 83 ]
 consolation in the conversation of your friend, whose vivacity and obliging disposition very soon made me find that satisfaction in her presence, that I was totally divested of when the lovely and enchanting Charlotte was absent.
+
 “The frequent opportunities of being a witness of her numberless perfections have endeared her so much to me, that I am convinced an alliance with her is necessary to render my existence at all tolerable. I have therefore applied to the most amiable Miss Beaumont, in whom I am emboldened to hope I shall find a powerful advocate, and who will not
-I flatter
-
 [ 84 ]
-I flatter myself, refuse to plead the cause of
-Her most obedient
-Humble servant,
-George Cockburn.”
-Now is my curiosity raised to the utmost pitch; but I have given my word that I will not pry into the secrets of others, and I am too much the woman of honour to commit a breach of trust. As I promised I would follow him downstairs in five minutes, I must wish you goodbye — I would not for the world break my word with him. Besides, he seems so very partial to me that I fancy he will soon trust me with his serious
-intentions !
+I flatter myself, refuse to plead the cause of Her most obedient Humble servant, George Cockburn.”
 
+Now is my curiosity raised to the utmost pitch; but I have given my word that I will not pry into the secrets of others, and I am too much the woman of honour to commit a breach of trust. As I promised I would follow him downstairs in five minutes, I must wish you goodbye — I would not for the world break my word with him. Besides, he seems so very partial to me that I fancy he will soon trust me with his serious
 [ 85 ]
 intentions! — Let me hear from you once more before I set off for the gay metropolis.
-your’s affectionately,
-Charlotte Finch
+
+> your’s affectionately,
+
+> Charlotte Finch
 
 ---
 
@@ -1670,131 +1650,114 @@ Charlotte Finch
 
 *The Honourable Miss Beaumont to Miss Finch*
 
-Berkeley Square.
-WELL, my Charlotte, this great affair is over, and Miss Fitzherbert is united to the man of her choice! That she may be happy, is my sincere wish; but I am sorry to say I have my doubts about it. Although nothing very material occurred,
-yet,
+<p align="right">Berkeley Square.</p>
 
+Well, my Charlotte, this great affair is over, and Miss Fitzherbert is united to the man of her choice! That she may be happy, is my sincere wish; but I am sorry to say I have my doubts about it. Although nothing very material occurred,
 [ 86 ]
 yet, as I promised to send you an account of the whole affair, I am (to use your own terms) too much the woman of honour to be less than my word.
+
 The ceremony was performed in Lord Spencer’s drawing-room at eight o’clock in the evening. Miss Fitzherbert’s dress was as follows : Her hair was done in a round toupee, and she had on a beautiful Henri quatre, with two rows of fine blond round the face (than which nothing could be more becoming); it was ornamented with lilach ribbon, and three white feathers drooping over the top of it. She wore a lilach Circassian, with a
-white
-
 [ 87 ]
-white lustring petticoat, both trimmed with gauze, and a short apron bound round with the same coloured ribbon. In short, nothing could possibly be better calculated to set off her fine person than was the whole of her dress. She looked beautiful; and I never before saw her appear half so amiable, as she had a softness and modesty disused over her countenance, not her usual characteristic. — — Her little Lord was decked out at all points. He had a flesh coloured coat, waistcoat and breeches, made to sit him so exactly, that he looked quite horrid. His hair was dressed two inches higher than usual, in order to bring him a
-little
-
+white lustring petticoat, both trimmed with gauze, and a short apron bound round with the same coloured ribbon. In short, nothing could possibly be better calculated to set off her fine person than was the whole of her dress. She looked beautiful; and I never before saw her appear half so amiable, as she had a softness and modesty disused over her countenance, not her usual characteristic. — Her little Lord was decked out at all points. He had a flesh coloured coat, waistcoat and breeches, made to sit him so exactly, that he looked quite horrid. His hair was dressed two inches higher than usual, in order to bring him a
 [ 88 ]
 little nearer to his wife’s standard; his sword was put on with a peculiar grace, and his large diamond buckles placed with the greatest exactness; nor, in his hurry, were either of his watches excused their attendance. The odour of his perfumes scented the whole room; for it was difficult to tell whether marechal or otter of roses was most predominant. He acquitted himself tolerably well in a minuet with his bride, who did not appear to less advantage for having such an excellent foil! I need not say who were Harriot’s and my partners. The ball was exceedingly crowded, and did not break up till two o’clock.
-I think
 
 [ 89 ]
 I think I have been very minute in regard to the wedding; and now let me thank my lovely friend for her kindness in promising to be with me on an approaching event. You may assure yourself, my dear girl, that Cockburn’s love for you needs be put to no farther trial. He adores you; — he adores your merits; — but I will Say no more on this subject till we meet, at which time I shall have it in my power to convince you that you alone are the mistress of his invaluable heart. I doubt not but he will attend you to town; and I beg you wall tell him that I esteem myself very much honoured by his kind congratulations.
-Let
 
 [ 90 ]
 Let me beseech you to treat him with lenity, for he is a worthy fellow.
-My brother has sold his estate in Devonshire, and we expect him in town daily. He will stay but a short time with us, and will, I know, be impatient to have a certain affair over, as he will wish to be present at the ceremony. We are very busy in preparing clothes, &c. &c. which in some measure diverts my attention, and prevents my giving way to gloomy ideas; for, after all, Charlotte, these men are sad creatures! and who can tell whether they will not, when they have gained the scepter, govern with arbitrary sway!- — But marriage is a
-lottery,
 
+My brother has sold his estate in Devonshire, and we expect him in town daily. He will stay but a short time with us, and will, I know, be impatient to have a certain affair over, as he will wish to be present at the ceremony. We are very busy in preparing clothes, &c. &c. which in some measure diverts my attention, and prevents my giving way to gloomy ideas; for, after all, Charlotte, these men are sad creatures! and who can tell whether they will not, when they have gained the scepter, govern with arbitrary sway! — But marriage is a
 [ 91 ]
 lottery, and, as there are some prizes, I will comfort myself with reflecting, that I may be fortunate enough to draw one. In the pleasing hope of embracing you in the course of next week, I will release you from this wretched scrawl, and subscribe myself.
-Your truly affectionate
-Amelia Beaumont..
+
+> Your truly affectionate
+
+>> Amelia Beaumont.
 
 ---
 
 ## LETTER XXXI
 
-From the Honourable Miss Milner to The Hon. Miss H. Beaumont.
-Dover.
-AH! my Harriot, what a cruel destiny is mine, continually surrounded as I am by evils, that haunt
-me
+*From the Honourable Miss Milner to The Hon. Miss H. Beaumont.*
 
+<p align="right">Dover.</p>
+
+Ah! my Harriot, what a cruel destiny is mine, continually surrounded as I am by evils, that haunt
 [ 92 ]
 me like my shadow. A few days ago I thought I could not experience a greater pang than that which I felt when I tore myself from your arms, and followed Lady Milner into the chaise which carried me from your sight. Alas! I knew not then that I was reserved for still further trials. — But avaunt complainings! Rather let me submit, without repining, to my hard fate, and kiss the rod that inflicts the punishment! Surely I shall be entitled to my Harriot’s pity, when I have informed her, that my dear mother now lays at the point of death. Oh! had she been spared but a few years longer, that we might have
-ended
-
 [ 93 ]
 ended our days together, within the peaceful confines of a monastery, I should have been satisfied; but, the grim tyrant Death, as if envious of the small portion of happiness allotted me, is cruelly laying his iron hands on my only remaining comfort. Oh! may I be blessed with fortitude sufficient to bear up against the afflictions that surround me. Hope! that last, best comforter, seems to have forsaken me, and when I look round, the blackness of the prospect frightens me.
-Pardon me, my Harriot, for damping your joys. — May you be happy with Fitzherbert, and expe-
-rience
 
+Pardon me, my Harriot, for damping your joys. — May you be happy with Fitzherbert, and 
 [ 94 ]
-rience that calm tranquillity which is denied
-The wretched
-Horatia Milner.
+experience that calm tranquillity which is denied.
+
+> The wretched
+
+>> Horatia Milner.
 
 ---
 
 ## LETTER XXXII
 
-Miss Finch to Lady Finch.
-Berkeley Square,
-MY ever honoured mother will,I doubt not, be happy to hear that her good for nothing daughter is arrived in Berkeley Square, without meeting with any adventure on the road either alarming or uncommon. I hope both my honoured parents are as well as I left them, and do not repent their indulgence. I am much
-fatigued
+*Miss Finch to Lady Finch.*
 
+<p align="right">Berkeley Square.</p>
+
+My ever honoured mother will,I doubt not, be happy to hear that her good for nothing daughter is arrived in Berkeley Square, without meeting with any adventure on the road either alarming or uncommon. I hope both my honoured parents are as well as I left them, and do not repent their indulgence. I am much
 [ 95 ]
 fatigued with my journey, but could not think of resigning myself into the arms of steep, until I had sent them this proof of dutiful remembrance. My heavy eyelids now refuse their office, and I am obliged to subscribe myself, in haste
-Their dutiful daughter,
-Charlotte Finch.
-P. S. I found all friends well in Berkeley Square.
+
+> Their dutiful daughter,
+
+>> Charlotte Finch.
+
+>> P. S. I found all friends well in Berkeley Square.
 
 ---
 
 ## LETTER XXXIIL
 
 From the same to the same Honoured Mother,
-WITH what anxiety did I wait the arrival of the post, and
-how
 
+With what anxiety did I wait the arrival of the post, and
 [ 96 ]
 how superlatively happy was I rendered when the servant delivered your letter into my hands. The contents of it added to my felicity, as you assured me, that both your Ladyship and Sir William continued mending. That you may soon be restored to perfect health is my constant prayer. You desire me to send a circumstantial account of our proceedings. Your commands are always sacred, but in this instance I shall obey them with particular pleasure. The day after my arrival Lord Beaumont came to town. He has sold his estate near our little cottage, and has been (contrary to his first plan)i again upon a
-visit
-
 [ 97 ]
 visit at General Slater’s, which family are likewise come to make a short stay in town. He has introduced them to his relations, who all very much approve of his choice. Miss Slater is an agreeable and accomplished girl, and does great honour to his taste. He was impatient to see his sisters united, and they (in complaisance to a brother whom they both adore) resigned their liberty some days sooner than it was at first intended. As you are desirous of having an account of the wedding, I will not keep you any longer in suspense.
+
 My Amelia, you know, has an insurmountable objection to chamber-
-marriages,
-
 [ 98 ]
-marriages, they were therefore united last Saturday at St. George’s Church, Hanover Square, in as private a manner as possible. Lord and Lady Spencer, Sir William and Lady Manning, Miss Slater, Lord Beaumont, Sir George Cockburn, and myself, were all the company that attended. We set off immediately as the ceremonies were performed for Lord spencer’s villa, near Windsor, which he has lately purchased. It is a beautiful place, a perfect Eden. The gardens are laid out in the most romantic style, and nothing can be more delightful than the extensive prospect; they command. We ar-
-rived
-
+marriages, they were therefore united last Saturday at St. George’s Church, Hanover Square, in as private a manner as possible. Lord and Lady Spencer, Sir William and Lady Manning, Miss Slater, Lord Beaumont, Sir George Cockburn, and myself, were all the company that attended. We set off immediately as the ceremonies were performed for Lord spencer’s villa, near Windsor, which he has lately purchased. It is a beautiful place, a perfect Eden. The gardens are laid out in the most romantic style, and nothing can be more delightful than the extensive prospect; they command. We 
 [ 99 ]
-rived there about two o’clock, and found everything ready for our reception. The weather was extremely fine, and spring seemed to have shed all its choicest stores to crown the happy day. In a temple that is built on an eminence at the bottom of the garden was every kind of refreshment, as coffee, chocolate, orgeat, and cakes; likewise fruits of every kind, the produce of their hot houses. The walk that led to this beautiful little retreat was covered with an enamelled carpet of nature’s workmanship; nor did the blushing rose and violet withhold their sweets, and waft their fragrance in the air. When we had partook of
-the
-
+arrived there about two o’clock, and found everything ready for our reception. The weather was extremely fine, and spring seemed to have shed all its choicest stores to crown the happy day. In a temple that is built on an eminence at the bottom of the garden was every kind of refreshment, as coffee, chocolate, orgeat, and cakes; likewise fruits of every kind, the produce of their hot houses. The walk that led to this beautiful little retreat was covered with an enamelled carpet of nature’s workmanship; nor did the blushing rose and violet withhold their sweets, and waft their fragrance in the air. When we had partook of
 [ 100 ]  
 the regale, we went into the saloon, and amused ourselves with admiring the richness and elegance of the furniture. We then adjourned into the music room, and had a most delightful snug concert, which lasted till we were summoned to dinner; at which was displayed hospitality without perfusion. Everything was elegant, and served up with the greatest degree of taste and decorum. After dinner, we left the gentlemen to enjoy their champaign and politics, and repaired to the garden; but our two bridegrooms found no pleasure in either, without the society of their fair brides, and very soon joined us in a pretty
-little
-
 [ 101 ]
 little arbour, situated in a most romantic part of the garden, where we were sitting to enjoy the sweets of spring. Lady Spencer had privately ordered one of the servants to bring Harriot’s harp; and you can have no idea how truly picturesque the scene was, nor of the soft and melting sounds that issued from her instrument, which were rendered more melodious by the arbour’s being situated near a beautiful canal, whose glassy surface reflected the image of the enchanting performer. It is as difficult to say which was the happiest man. Lord Maitland or Sir James, as it would be to determine which of the two sisters looked the handsomest.
-They
 
 [ 102 ]
 They were dressed both alike, in riding habits of jonquille coloured cloth, lined and lapelled with lilach; and large black hats, which shaded their eyes, ornamented with a vast quantity of black feathers. In short, they looked loveliness itself. At seven, we returned into the saloon, where the gentlemen joined us. We had a most agreeable dance, but no minuets, as we were all en Amazone.
 There was a kind of melancholy that diffused itself over Lady Fitzherbert’s countenance, which rendered her infinitely lovely, and which she in vain endeavoured to dispel. It was occasioned by her having, a few days
-before,
-
 [ 103 ]
 before, taken an eternal adieu of the friend of her youth, a young lady of uncommon merit and afflictions, whose history I will relate to you when we meet. — We spent a fortnight at Windsor, and then left that beautiful spot to partake of the more tumultuous joys of a town life.
 I am now going to relate a piece of news which, I think, will give you and Sir William pleasure, viz. That Sir George Cockburn has done me the honour to declare himself my adorer; and that I have every reason to believe myself the only object of, his affection, as a letter he had wrote to my Amelia upon the subject, and
-which
-
 [ 104 ]
 which she has shown me, convinces me that he now only regards her with cool friendship. He is continually teasing me to permit him to write to Sir William; but I have particular reasons for not consenting to that while I remain here, and preach patience to him twenty times a day. I assure him that I shall return to Bath in three weeks, when he will have an opportunity of pleading his cause personally, but this does not satisfy him, and he looks upon three weeks as an age. I have met Lady Cockburn and his sister very frequently. They are both agreeable; but I am particularly pleased with the latter, who, I must
-say,
 [105 ]
-Say, honours me with much of her time and attention.
-I am tired to death of the dissipated life I lead here. Ranelaugh, operas, concerts, balls, and routes, with dress and visiting, have taken up all my time, and nothing but the enjoyment of my Amelia’s company could compensate for the continual hurry and agitation I am in. Lord Maitland proposes setting off for his seat in Norfolk on Tuesday fortnight, but, as the Fitzherberts think of staying a few days longer, it would be unkind in me to leave town before them. Lord Spencer has since made Amelia a present of the villa near Windsor,
-besides
+say, honours me with much of her time and attention.
 
+I am tired to death of the dissipated life I lead here. Ranelaugh, operas, concerts, balls, and routes, with dress and visiting, have taken up all my time, and nothing but the enjoyment of my Amelia’s company could compensate for the continual hurry and agitation I am in. Lord Maitland proposes setting off for his seat in Norfolk on Tuesday fortnight, but, as the Fitzherberts think of staying a few days longer, it would be unkind in me to leave town before them. Lord Spencer has since made Amelia a present of the villa near Windsor,
 [ 106 ]
 besides twenty thousand pounds the day she was married; and I hear that Sir James Fitzherbert received the same sum with Harriot. Lord Maitland has taken a house in Portland Place for his winter residence, and Sir Janies is to Spend the Summer at one of his estates in Yorkshire.
+
 The servant informs me the carriages are at the door, I am therefore compelled to leave you for the present, as we are going to pay a hundred visits. — Present my respectful duty to Sir William, and accept the same from
-Your dutiful
-Charlotte Finch.
+
+> Your dutiful
+
+>> Charlotte Finch.
 
 [ 107 ]
 
@@ -1804,24 +1767,23 @@ Charlotte Finch.
 
 *The Honourable Miss Milner to Lady Fitzherbert.*
 
-Dover.
-HARRIOT! Lady Milner lives, and I am once more restored to peace! You will, I am sure, be doubly happy to hear what has so much contributed to her recovery, I therefore hasten to communicate the pleasing tidings. Start not, my friend, when I acquaint you, that Milbank has proved the best of physicians! Nay, child, why that look of surprise— Yes, I again repeat it, Milbank, the divine Milbank! has restored her to
-health
+<p align="right">Dover.</p>
 
+Harriot! Lady Milner lives, and I am once more restored to peace! You will, I am sure, be doubly happy to hear what has so much contributed to her recovery, I therefore hasten to communicate the pleasing tidings. Start not, my friend, when I acquaint you, that Milbank has proved the best of physicians! Nay, child, why that look of surprise — Yes, I again repeat it, Milbank, the divine Milbank! has restored her to
 [ 108 ]
-health and happiness.— But take the event as it happened. My last informed you of Lady Milner’s being taken suddenly ill on the road, and, if it spoke the dictates of my heart, must have given you some idea of the sufferings I endured, though it was impossible that my pen could express the fullness of them. Her ladyship’s disorder was occasioned by the agitation of spirits she has lately undergone, which at first brought on a slight fever, that was greatly augmented by the fatigue of traveling. I perceived her indisposition Some stages before we arrived at Dover, and in vain endeavoured to dissuade
+health and happiness. — But take the event as it happened. My last informed you of Lady Milner’s being taken suddenly ill on the road, and, if it spoke the dictates of my heart, must have given you some idea of the sufferings I endured, though it was impossible that my pen could express the fullness of them. Her ladyship’s disorder was occasioned by the agitation of spirits she has lately undergone, which at first brought on a slight fever, that was greatly augmented by the fatigue of traveling. I perceived her indisposition Some stages before we arrived at Dover, and in vain endeavoured to dissuade
 [ 109 ]
 her from pursuing our journey for some time; but when we reached this place, the fever was so high, and her strength so much exhausted, that it brought on a delirium, and she was put to bed senseless. Judge what were my feelings on this occasion, to be in such a situation, in a place where I had neither friends nor acquaintance to afford me that relief I stood so much in need of. I dispatched one of our servants for the best advice that could be got; but not being satisfied with the account the physician gave of her, I sent my servant to town for Dr. L  —, who came post to Dover, and found her in the most dangerous
 [ 110 ]
-situation. For three whole nights did I sit up with her woman by the bedside. I refused to take any refreshment, and my sinking mind lost all energy. I would not write to my Harriot for some days, as I knew the melancholy news would damp the joy of that day which I wished to rise and set without a cloud to rustle her happiness; but when Lady Milner’s case
-became so desperate, that Dr, L --, in the mildest and most affectionate terms, prepared me for the worst of all events, I could no longer refrain myself from pouring my sorrows into the bosom of a friend, whom I knew would afford some consolation, by
+situation. For three whole nights did I sit up with her woman by the bedside. I refused to take any refreshment, and my sinking mind lost all energy. I would not write to my Harriot for some days, as I knew the melancholy news would damp the joy of that day which I wished to rise and set without a cloud to rustle her happiness; but when Lady Milner’s case became so desperate, that Dr, L --, in the mildest and most affectionate terms, prepared me for the worst of all events, I could no longer refrain myself from pouring my sorrows into the bosom of a friend, whom I knew would afford some consolation, by
 [ 111 ]
 strengthening me to support my complicated misfortunes. I never quitted the melancholy scene, but was continually bedewing her pillow with my tears. At intervals, Reason resumed its throne, but they were short, and helped only to make me feel more exquisitely the wretched effects of a relapse. I was sitting by her one day, watching her while she dosed, from which, when she awoke, she seemed a little refreshed, and stretching out her burning hand to me, said, “Horatia, could I but see Milbank, my life need not be despaired of: — my malady is of the mind, which his presence would remove.” At the mention of a
 [ 112 ]
 man I prized above all the world (herself excepted) a sudden chillness ran through all my veins. However, I wished nothing more ardently than to behold him, that I might, by sacrificing my dearest interest, restore Lady Milner to happiness, and prayed, in the anguish of my soul, that he might be the means of her recovery. I wept, and she continued thus: “Before I fixed my resolution of ending my days in a convent, I left no means untried to gain an interview with him, but, alas! all my efforts proved abortive. I have every reason to think he has left his native country, and that I shall never see him more.” I
 [ 113 ]
 begged of her not to admit despair a place in her bosom, nor to resign hope, and entreated her to live for the sake of a daughter, whose life was wrapped up in her’s. She sighed, and again relapsed into a state of insensibility. I was almost in the same condition, but left the room, that I might indulge my sorrow aloud, I threw myself into a chair, and, in the most piercing accents, bewailed my unhappy fate. I called upon Milbank, and was indulging a most poignant grief, when my woman came into the room, and with a confusion and wildness in her manner, told me she had seen Milbank, attended only by a servant,
-[ 114 ] alight from a post-chaise-and-four, and had learned from the servant, that he designed to embark immediately for Calais. This news made hope once more force a passage to my heart, and, taking a card out of my pocketbook, I wrote these words with a pencil:
+[ 114 ] 
+alight from a post-chaise-and-four, and had learned from the servant, that he designed to embark immediately for Calais. This news made hope once more force a passage to my heart, and, taking a card out of my pocketbook, I wrote these words with a pencil:
 
 “Milbank! refuse not to attend the summons of an unhappy woman, rendered so by your uncommon merits! but come and prove the greatness of your soul, by restoring peace to the heart of the afflicted.”
 
@@ -1829,46 +1791,54 @@ I dispatched her to him, and desired her to deliver the card into no one’s han
 [ 115 ]
 answer. While I was waiting her return with the utmost impatience, the door opened, and the altered form of Milbank presented itself to my view. I cannot express the tumult of my mind at that moment. Every tender sensation possessed my soul, and my tongue refused to articulate the dictates of my heart for sometime. At length a flood of tears came to my relief, which, in some measure, relieved me, and enabled me to address myself to him in the following terms:
 
-‘‘Milbank, you see before you the most wretched being on earth. Will not your humanity induce you to afford her the consolation that is within
+"Milbank, you see before you the most wretched being on earth. Will not your humanity induce you to afford her the consolation that is within
 [ 116 ]
-your reach! I say, can you refuse to restore peace and happiness to the heart of the woman you once honoured with your esteem!— Lady Milner, sure, ought not to be rejected! — Her birth, accomplishments, and beauty, added to the amiableness of her disposition, render an alliance with her worthy even of a Milbank! — The disparity of your ages can be no bar, as she is still young, being but just turned of thirty-four, and I think your generosity ought to impel you to bestow on her your heart, as you hear that her endeavours to conquer her fatal passion for you has reduced her to the bed of death, from which no-
+your reach! I say, can you refuse to restore peace and happiness to the heart of the woman you once honoured with your esteem!— Lady Milner, sure, ought not to be rejected! — Her birth, accomplishments, and beauty, added to the amiableness of her disposition, render an alliance with her worthy even of a Milbank! — The disparity of your ages can be no bar, as she is still young, being but just turned of thirty-four, and I think your generosity ought to impel you to bestow on her your heart, as you hear that her endeavours to conquer her fatal passion for you has reduced her to the bed of death, from which 
 [ 117 ]
-thing upon earth can raise her but your supporting hand!’’ — I stopped.
+nothing upon earth can raise her but your supporting hand!" — I stopped.
 
 The tears started in his fine eyes, his bosom heaved the sigh of anguish, and his generous heart dictated the following reply
 
-Yes, sweet pleader! you shall be happy, if it is in Milbank’s power to render you so! — The sacrifice I am about to make shall convince you that I have a soul too great to prize my own felicity above thine!— Lady Milner lives, if this hand can be the happy means of raising her from the bed of death. My friendship she shall ever have and the knowledge of her worth, with the refelction of her being
+"Yes, sweet pleader! you shall be happy, if it is in Milbank’s power to render you so! — The sacrifice I am about to make shall convince you that I have a soul too great to prize my own felicity above thine!— Lady Milner lives, if this hand can be the happy means of raising her from the bed of death. My friendship she shall ever have and the knowledge of her worth, with the refelction of her being
 [ 118 ]
 the mother of Horatia, will ever make her experience from me, when united to her, the most tender regard.”
+
 I thanked him with the tears of gratitude, and flew to Lady Milner’s apartment. I found her again restored to reason, and ventured to ask if she thought she could support an interview with Milbank. She assured me that nothing would prove a greater restorative. I told her he was in the house, and left her to conduct him to the melancholy seen. He advanced towards the bed with slow and pensive steps. Lady Milner received him without the least emotion, as the effect of her disorder blunted the edge of
 [ 119 ]
 her feelings. She beckoned to me to withdraw, and I left the room immediately.
+
 When I was alone, I reflected on what had passed, and rejoiced that, in the conflict between love and duty, the latter had borne away the prize. “It is over now, ” said I to myself, long, long may Lady Milner live to enjoy the happiness that awaits her! Milbank, I resign thee! though thou art now dearer to me than ever! Thy friendship, I hope, I ever shall possess, and that is all that I aspire to!” While I was indulging these ideas, the servant acquainted me that Lady Milner wished to see me, I flew to attend
 [ 120 ]
 Her and was astonished, upon entering the room, to observe the serene joy that was painted on her countenance. I embraced her with tears of filial affection, which she returned with a maternal warmth that charmed me, and, taking my hand, she put it into Milbank’s, saying, “May I live to see the happy day that will unite you, that you may not want a mother’s blessing! — Horatia! there is nothing wanting to complete my felicity but your consent to become the wife of this deserving man. — Be not surprised, my child (for I looked, as you may very well believe, exceedingly so) I am not ashamed to own that I once loved
 [ 121 ]
 him to a degree of enthusiasm but the state to which I have been reduced has made me see things in their proper medium, and there is nothing I so ardently wish for, and which will contribute more to my recovery than to behold you married to him. I now regard him only with cool friendship, and (if I live) shall never feel other sentiments in his favour. Consent, therefore, and bless your mother, to bless a man that adores you.”
-Milbank pressed my hand to his lips, and entreated me to reward his constant love. I replied, that it had ever been the business of my life to
+
+Milbank pressed my hand to his lips, and entreated me to reward his constant love. I replied, that it had ever been the business of my life 
 [ 122 ]
 contribute as much as lay in my power to the happiness of my mother, but that, in this instance, I feared, she studied my interest more than her own, as I would be candid enough to acknowledge that my heart had long felt a preference for him. She clasped me to her bosom, exclaimed. Generous girl! and fainted away through excess of fatigue. When she was restored, nothing would satisfy her but our being immediately united; and next morning, the impatient Milbank sent for an especial licence, &c.— The messenger is not yet returned from town, but he is expected this evening.— Lady Milner, since Milbank's
 [ 123 ]
 arrival, has gained strength every day. She sat up yesterday for the first time, and slept sound all last night. Dr. L -- has recommended the German spa, and thinks that she will be able to undertake the voyage in a few weeks.
-My Harriot will, I am sure, sincerely participate with me the reverse of fortune that has taken place in my favour. Oh! may I ever retain the' most grateful sense of it, and make it the business of my life to merit a continuance of the gifts of Providence.
-The messenger is returned with the licence, and a letter of approbation from Lord Rivers. tomorrow I
+
+My Harriot will, I am sure, sincerely participate with me the reverse of fortune that has taken place in my favour. Oh! may I ever retain the most grateful sense of it, and make it the business of my life to merit a continuance of the gifts of Providence.
+
+The messenger is returned with the licence, and a letter of approbation from Lord Rivers. Tomorrow I
 [ 124 ]
 bestow my hand on the man of my heart. — Ah! Harriot! pray for
 
-The grateful
+> The grateful
 
-Horatia Milner.
+>> Horatia Milner.
 
-P. S. Dr. L  — is to act as father.  — I wish I could see you before we embark.
+>> P. S. Dr. L  — is to act as father.  — I wish I could see you before we embark.
 
 ---
 
-## LETTER XXXV Lady Fitzherbert to Lady Milbank
+## LETTER XXXV 
 
-Cavendish Square.
+*Lady Fitzherbert to Lady Milbank*
+
+<p align="right">Cavendish Square.</p>
+
 
 MY beloved Horatia will receive but a short letter of congratulation from her friend, whose joy was unbounded when she received your last, which fortunately came to hand the same time as the former, having
 [ 125 ]
@@ -1876,20 +1846,21 @@ a delightful fortnight at Lady Maitland’s villa, near Windsor, in the society 
 [ 126 ]
 man, to whom I ardently wish to be introduced, as does my dear lord and master.
 
-Your affectionate
+> Your affectionate
 
-Harriot Fitzherbert.
+>> Harriot Fitzherbert.
 
 ---
 
 ## LETTER XXXVI 
 
-Lady Nassau to Lady Maitland.
+*Lady Nassau to Lady Maitland.*
 
-Berkeley Square.
+<p align="right">Berkeley Square.</p>
 
-HOW will the feeling heart of Lady Maitland bleed at the story I am about to communicate— Yes! I am convinced she will pity the wretched Lady Nassau, though, perhaps, she despises her for her imprudent conduct. How can I relate the shocking event yet I find it necessary
-[ 127 ] to unburden myself, as I know not one who has so sympathising a heart as your ladyship, and our former intimacy (I dare not say friendship) encourages me to hope you will at least afford me one consolatory line to sooth my afflicted heart. I shall, perhaps, find it a difficult matter to persuade you. Lord Nassau is a wretch! He is not so mild and gentle as he appeared before our union.— Believe me, he very soon threw off the disguise after that fatal period, and gave me to understand he was a wolf in sheep’s clothing. I look upon my present misery as the just punishment of my indiscretion. Why did I not,
+How will the feeling heart of Lady Maitland bleed at the story I am about to communicate— Yes! I am convinced she will pity the wretched Lady Nassau, though, perhaps, she despises her for her imprudent conduct. How can I relate the shocking event yet I find it necessary
+[ 127 ] 
+to unburden myself, as I know not one who has so sympathising a heart as your ladyship, and our former intimacy (I dare not say friendship) encourages me to hope you will at least afford me one consolatory line to sooth my afflicted heart. I shall, perhaps, find it a difficult matter to persuade you. Lord Nassau is a wretch! He is not so mild and gentle as he appeared before our union.— Believe me, he very soon threw off the disguise after that fatal period, and gave me to understand he was a wolf in sheep’s clothing. I look upon my present misery as the just punishment of my indiscretion. Why did I not,
 [ 128 ]
 attend to the wise counsels of Lady Spencer, and the sweet persuasive remonstrances of my dear Lady Maitland! Alas! to my sorrow, neither had any effect upon me, as I thought myself the best judge of what was, and what was not, right. I was pleased with my having made a conquest of Lord Nassau, and gloried in the triumph of bestowing on him my hand, and dooming him to be my slave, who led away so many captive beauties in his train. — Fatal idea! which is the source of all my misfortunes! Your ladyship must recollect that we staid in town but a fortnight after our marriage, and then set off
 [ 129 ]
@@ -1904,43 +1875,45 @@ dictated the following reply: “Your lordship is exceedingly flattering!-- Howe
 and told me to touch it at my peril. I was vexed — the tears started in my eyes, and I said, your lordship may one time or other repent this treatment. “No threatening, madam, if you please, but reflect you are now my wife, not my mistress!” This was too much — I left the room with precipitation, and flew to my apartment. I rang for my woman to attend me, who informed me that my lord was writing, and had given orders for a few things to be put up, having told his servant he intended to spend a few days out. This intelligence alarmed me, I sent to him to know if I could speak with him before he
 [ 134 ]  
 went; but he bid the servant inform me that he was busy, and had rather dispense with my company. Four days passed without my hearing from him, and the fifth brought me two letters by the post, both which I shall enclose for your perusal.
-I immediately resolved upon quitting a house whose owner was now become hateful to me, and ordered my own woman (whom I knew I could trust) to hire a chaise-and-six, to be at the door by four o’clock in the morning: and I arrived in town, attended only
-by my maid, last night.--I left a few lines upon Lord Nassau’s dressing; table, informing him of the reason of
+
+I immediately resolved upon quitting a house whose owner was now become hateful to me, and ordered my own woman (whom I knew I could trust) to hire a chaise-and-six, to be at the door by four o’clock in the morning: and I arrived in town, attended only by my maid, last night.--I left a few lines upon Lord Nassau’s dressing; table, informing him of the reason of
 [ 135 ]
 my departure. — The worthy Lord and Lady Spencer received me with open arms, and have promised to shield me from any further insults from that horrid man. How thankful ought I to be that I have escaped the share he had laid for my virtue! He had frequently mentioned that he expected some friends, and desired I would receive them as such. Base man! — I wish I knew who to thank for my happy deliverance.
 Be so good as to present my best compliments to Fitzherbert, and excuse  the liberty I have taken in troubling you with my affairs— but the knowledge I have of your heart
 [ 136 ]
 assures me that you will — and that I may subscribe myself.
 
-Your affectionate
+> Your affectionate
 
-Nassau.
+>> Nassau.
 
 ---
 <a id="letters-to-lady-nassau" />
+
 ## Letters sent by post to Lady Nassau, and inclosed by her to Lady Maitland
 
 ### *I. To Lady Nassau.*
 
-London,
+<p align="right">London.</p> 
 
-A sincere wellwisher of Lady Nassau’s takes the liberty of sending her the enclosed.— He truly commiserates her unfortunate alliance with that vile man Lord N -- , and thinks
-the emergency of the cause will prove a sufficient excuse for his abruptness [ 137 ]
+A sincere wellwisher of Lady Nassau’s takes the liberty of sending her the enclosed.— He truly commiserates her unfortunate alliance with that vile man Lord N -- , and thinks the emergency of the cause will prove a sufficient excuse for his abruptness 
+[ 137 ]
 in opening her eyes to the share that is laid for her. He can take upon him to say (that if flight is necessary) Lady N -- will find a safe asylum in the house of Lord and Lady Spencer, who are still in town, and who will receive her with unabated affection. 
 
-> He begs leave to subscribe himself Her most obedient Humble servant,
+> He begs leave to subscribe himself Her most obedient Humble servant.
 
 ---
 
 ### *II. Lord Nassau to Sir Benj. Cotterill,*
 
-Berwick upon Tweed.
+<p align="right">Berwick upon Tweed.</p>
 
-CONFOUNDEDLY out of humour, Ben! I take up my pen to make thee my complaints. A fine
+Confoundedly out of humour, Ben! I take up my pen to make thee my complaints. A fine
 [ 138 ]
 job have I made of it! I every moment execrate myself for not having followed thy advice, then I should not have been encumbered with that plague, a wife! — A wife! — I absolutely shudder while my pen traces the odious word! Had it not been for her sixty thousand pounds, her sweet ladyship had certainly died a maid for me; but, Ben, I found the greatest part of that a very convenient sum to clear some debts of Honour that I had contracted at Stapleton’s and other fashionable places of resort;— and you know, in this life, we must compound to take the bitter with the sweet. But, alas! the latter (in this instance) greatly
 [ 139 ]
 overbalances the former, and I know not what I would not give to be unmarried again. Canst thou not, Ben, help me to some expedient whereby I may dissolve the Gordian knot, which, to tell you the truth, does not sit at all easy on thy poor friend’s shoulders, and who, I believe, makes the Devil of a husband. Do, set thy head to work to contrive some machination that may release both her and me, for I believe she hates me heartily.
+
 Come down, Cotteril, and enliven this dreary place with thy presence; and if thou canst prevail upon two or three of the junto to accompany thee to visit a Benedict, I shall be glad to
 [ 140 ]
 see them. Tell them I do not love my deary well enough to be jealous, that she is very handsome, and infinitely at their service. At all events, I do insist upon seeing thee, and shall, if thou dost not immediately obey my summons, scratch thee off the list of my friends. In the mean time, I must subscribe myself
@@ -1955,11 +1928,11 @@ see them. Tell them I do not love my deary well enough to be jealous, that she i
 
 ## LETTER XXXVII
 
-Miss Finch to Lady Maitland.
+*Miss Finch to Lady Maitland.*
 
-Bath.
+<p align="right">Bath.</p>
 
-CAN I hesitate one moment to obey my lovely Amelia’s commands? Write soon were the last words at parting that stowed from her persuasive tongue. I gladly obey its mandates, as I am of too selfish a nature to relinquish any part of the small portion of happiness that is allotted to us mortals, and hope I need not add, that the friendship of Amelia constitutes the greatest part of mine. I had the pleasure to find my dear Sir William and Lady Finch much better
+Can I hesitate one moment to obey my lovely Amelia’s commands? Write soon were the last words at parting that stowed from her persuasive tongue. I gladly obey its mandates, as I am of too selfish a nature to relinquish any part of the small portion of happiness that is allotted to us mortals, and hope I need not add, that the friendship of Amelia constitutes the greatest part of mine. I had the pleasure to find my dear Sir William and Lady Finch much better
 [ 142 ]
 on my return to Bath, where I arrived safe, without meeting with anything new or interesting. My amiable Baronet attended me on horseback. We were both at first rather in the pense-roso style, as it was natural we should, after parting with so many good friends. But when I reflected that I was hastening to meet the embraces of two fond parents, the thought revived  me, and gave me fresh animation. The divine Cockburn very soon suited himself to my humour, and the remainder of our journey was pleasant and agreeable. I did not leave the Fitzherberts until the day before they set off for Dover, where they went to
 [ 143 ]
@@ -1967,21 +1940,21 @@ meet Harriot’s friend, who is now married to the only man she ever loved. They
 [ 144 ]
 who wish to take a peep into the book of fate, may apply to the Right Hon. Lord Maitland, who possesses the art of divination in the most eminent degree, as his prophecies never fail.” In short, she intends to sound his praise through the trumpet of fame, for having so accurately foretold the events that were to befall her. Need I after this add, that the ring taken from her finger at a ball at General Slater’s has been restored to her by her amiable Fitzherbert.
 
-Has my dear Amelia thrown aside her London airs yet, and assumed the habit of an Arcadian shepherdess? I think the dress would mightily become
+Has my dear Amelia thrown aside her London airs yet, and assumed the habit of an Arcadian shepherdess? I think the dress would mightily 
 [ 145 ]
-her, and that she would handle the crook with a peculiar grace. I think I see the amiable Maitland reclined by your side on a bank of violets gazing on your charms with rapture, and adding to the melodious accents of your voice the soft strains of a well played flute. Have I not drawn a pretty picture of rural felicity? I am sure I sincerely sigh for the pastoral pleasures, and hope the day is not far distant that will transplant me in the happy spot of my nativity, as we think of leaving this horrid place very soon.
+become her, and that she would handle the crook with a peculiar grace. I think I see the amiable Maitland reclined by your side on a bank of violets gazing on your charms with rapture, and adding to the melodious accents of your voice the soft strains of a well played flute. Have I not drawn a pretty picture of rural felicity? I am sure I sincerely sigh for the pastoral pleasures, and hope the day is not far distant that will transplant me in the happy spot of my nativity, as we think of leaving this horrid place very soon.
 
 apropos— Cockburn has purchased your brother’s estate. — what a sly fellow,
 [ 146 ]
 not to acquaint us of it before. I hear that he has caused great alterations to be made there. I must leave my dear Lady Maitland for the present, as lady Finch sends to desire my attendance.
 
-Six o’clock. — Well, Amelia, I am returned to you, after having had a conversation of an hour and an half long with Sir William, Lady Finch, and Cockburn; the result of which is, that we leave this place in less than a week, and that I am this day fortnight to give my hand and heart to one who, I am sure, is deserving of it. Let me that day receive a letter from my Amelia, or I shall think my feli-
+Six o’clock. — Well, Amelia, I am returned to you, after having had a conversation of an hour and an half long with Sir William, Lady Finch, and Cockburn; the result of which is, that we leave this place in less than a week, and that I am this day fortnight to give my hand and heart to one who, I am sure, is deserving of it. Let me that day receive a letter from my Amelia, or I shall think my 
 [ 147 ]
-city incomplete. Remember me to the amiable Maitland. You and his lordship must excuse my using his name so freely; but friendship will sometimes exceed its bounds and take liberty, so believe me to be
+felicity incomplete. Remember me to the amiable Maitland. You and his lordship must excuse my using his name so freely; but friendship will sometimes exceed its bounds and take liberty, so believe me to be
 
-Sincerely your’s,
+> Sincerely your’s,
 
-Charlotte Finch,
+>> Charlotte Finch.
 
 ---
 
@@ -1989,9 +1962,9 @@ Charlotte Finch,
 
 *Lady Maitland to her Friend.*
 
-Havering Bower, Norfolk,
+<p align="right">Havering Bower, Norfolk.</p>
 
-ACCORDING to my calculation, my beloved Charlotte will receive this on the happy day that gives her to one of the worthiest of his sex. Propitious may it be,  and may she
+According to my calculation, my beloved Charlotte will receive this on the happy day that gives her to one of the worthiest of his sex. Propitious may it be, and may she
 [ 148 ]
 henceforward look back to it as the date of her felicity. May peace and pleasure wait upon her steps, and every revolving year be happier than the last. Maitland is everything that my fondest wish would have him — tender, generous, and sincere. — There is not a manly virtue but what inhabits his breast; and I doubt not but my happiness will be lasting, as it has religion for its basis; for it is no small comfort to me that my lord has morals, and does not affect to despise the first duty of a Christian. Poor Lady Nassau is with me. You must certainly have heard of her distressed story, although you omit mentioning it. I
 [ 149 ]
@@ -2003,8 +1976,8 @@ gave him to the object of his desires. May every blessing crown their happy nupt
 [ 152 ]
 in perfect health. Accept the kind congratulations of all under this roof, and believe me to be, at all times, and in all places,
 
-Your sincere and affectionate
+> Your sincere and affectionate
 
-Amelia Maitland
+>> Amelia Maitland
 
 FINIS.
