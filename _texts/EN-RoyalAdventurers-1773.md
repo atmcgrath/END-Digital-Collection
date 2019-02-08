@@ -32,7 +32,6 @@ toc:
 - Chap. XX.
 - Chap. XXI
 - Chap. XXII.
----
 
 ---
 
@@ -231,7 +230,7 @@ on hoard.*
 <a href="#chap-xix">CHAP. XIX.</a>
 *The happy meeting of Medor and Florina.
 —The prince informs her he is hound for
-Cecilia, she consents to go with him—-The
+Cecilia, she consents to go with him—The
 princess prevails on Medor to set the prize
 at liberty, in return for the indulgence
 shewn to her, which he complies with—
@@ -277,7 +276,7 @@ of their subjects.*
 
 > The birth of Thalmeno—At the age of fifteen he resolves privately to leave his father’s court.—Palmos is informed of his intention, and determines to accompany him. They elope together—embark on board a vessel—and land safely on the African shore.
 
-In the island of Cecilia, situated in the center of the Mediterranean sea, there reigned a monarch named DRUYNO, endued with every virtue that could adorn the prince; he swayed the regal scepter with the universal applauses of a grateful people; who, considering him as the guardian of their liberties, and the source of the tranquillity which they enjoyed under his government.—To his skill in martial affairs he had added a knowledge of every other science, that at once elevates and adorns the mind.—At this time peace blest his happy isle, and that he might contribute as much as possible to the happiness of his subjects, he constantly resided among them.
+In the island of Cecilia, situated in the center of the Mediterranean sea, there reigned a monarch named DRUYNO, endued with every virtue that could adorn the prince; he swayed the regal scepter with the universal applauses of a grateful people; who, considering him as the guardian of their liberties, and the source of the tranquillity which they enjoyed under his government.—To his skill in martial affairs he had added a knowledge of every other science, that at once elevates and adorns the mind. — At this time peace blest his happy isle, and that he might contribute as much as possible to the happiness of his subjects, he constantly resided among them.
 
 But alas! his own felicity was incomplete! for though he married when only eighteen years of age, he had no issue to succeed to his crown—and GRATIANA, his consort, was scarcely fourteen when she became the partner of the royal bed. His head, with age was almost silver’d o’er; the lily and the rose had faded on Gratiana’s cheeks, where once they triumphed blooming and unrivaled.
 
@@ -292,22 +291,20 @@ But alas! his own felicity was incomplete! for though he married when only eight
 {:.poetry}
 
 However, to the universal joy of the kingdom in general, and Druyno in particular, the queen’s pregnancy was announced, when all hopes of such an event had been totally given up; at length, the long wished-for blessing arrives; a prince is born—and nothing but acclamations are heard throughout the island.—The temples resounded with hymns of gratitude to the gods—their praises were chanted in every grove—and caroled through every street. Foreigners, who happened to be there, viewed with pleasure and surprize the magnificence with which they solemnized this auspicious day, when the subjects of so good a king seemed emulous
-
 [4]
-
 to excel each other in giving demonstrations of their joy. Without carrying our readers into the nursery, and informing them with what tenderness and assiduity parental fondness watched over his infantile years, we shall only observe that at a very early age, when others are amused with toys, THALMENO, (for so was the young prince named) had acquired an uncommon degree of skill in martial exercizes, which were his delight; and so great was his proficiency in this kind of study, that ere he attained the years of maturity, he gave the most flattering hopes of one day becoming an experienced and successful general; and in every respect worthy of his royal extraction.
 
 As he grew up, his person bespoke his dignity—his complexion was beautifully fair—his demeanour courteous—and for affability surpassed even Alexander himself; by nature formed to please, he took every
 [5]
 opportunity of improving prepossessions in his favour—from nature too he derived parts strong and lively, which, education had polished and improved.—From his tongue dropped the eloquent and enchanting phrases of his admired, Demosthenes. For his genius and learning, he soon acquired the reputation of the wife learned prince; for his manners, the character of the most amiable.
 
-Thus distinguished by nature and by art, who had each so largely contributed to form our young prince, no wonder if he was beloved.—Had Pallas heard of his merit, she could not have withheld her approbation and praises of his perfections. —Juno, if she had feen his person, would, have forsaken her Jupiter; and the Syrens themselves, had they fixed their eyes upon his features, would have withdrawn their melody from timorous Ulysses, and tuned their
+Thus distinguished by nature and by art, who had each so largely contributed to form our young prince, no wonder if he was beloved.—Had Pallas heard of his merit, she could not have withheld her approbation and praises of his perfections.—Juno, if she had feen his person, would, have forsaken her Jupiter; and the Syrens themselves, had they fixed their eyes upon his features, would have withdrawn their melody from timorous Ulysses, and tuned their
 [6]
 harmonious notes to hail only Thalmeno their favourite.
 
-The royal parents viewed their rising, hopes in the bloomy spring of life with extacy of joy; nor did their piety want any incitement to their gratitude towards heaven for so sweet a son.-—They daily rendered millions of thanks to the propitious deity had thus blest their declining years with the precious boon, while the happy citizens thronged to the temple of the goddess Fortune, to offer up their daily thanks for so inestimable a blessing as the young and gallant heir of their flourishing empire.
+The royal parents viewed their rising, hopes in the bloomy spring of life with extacy of joy; nor did their piety want any incitement to their gratitude towards heaven for so sweet a son.—They daily rendered millions of thanks to the propitious deity had thus blest their declining years with the precious boon, while the happy citizens thronged to the temple of the goddess Fortune, to offer up their daily thanks for so inestimable a blessing as the young and gallant heir of their flourishing empire.
 
-The herald had now proclaimed his sixteenth year—when, to improve his natural abilities and education—to experience what his princely fortunes might be-—and what events they might produce, he determines to travel.—The inclination was not to be opposed by any arguments
+The herald had now proclaimed his sixteenth year—when, to improve his natural abilities and education—to experience what his princely fortunes might be—and what events they might produce, he determines to travel.—The inclination was not to be opposed by any arguments
 [7]
 his mind suggested—the resolution was private.—As often as he attempted to repress his eager desires of visiting foreign nations, of feeing the manners of people, and the customs of different countries, he found the talk too arduous to effect; and when he had sometimes thought the wish half-smothered by due reflection on the risk he should run, the desire broke out, afresh, as it were out of the embers where it had only lain concealed, not extinguished—at length it flamed, collecting greater force from its being suppressed for a time.
 
@@ -321,9 +318,10 @@ a ship ready to sail, bound for Arabia, they instantly embarked, rejoicing that 
 [10]
 
 ---
+
 ## CHAP. II.
 
->After traveling through the Arabian deserts, they arrive at a castle inhabited by Florina, daughter of a Numidian king-, where making themselves known, their necessities are relieved, and furnished with means to pursue their travels
+> After traveling through the Arabian deserts, they arrive at a castle inhabited by Florina, daughter of a Numidian king-, where making themselves known, their necessities are relieved, and furnished with means to pursue their travels
 
 After a short and pleasant voyage, our royal adventurers attained the shore, and bountifully rewarding the crew, they betook themselves to their desperate adventures; where through the African deserts they so long had travelled, that at last, being destitute of food, and not finding wherewithal to suffice nature (these parts not being inhabited) passionately tracing these unknown groves, they exclaim upon the inhuman disasters of their miserable situation; but in vain; for they found no food to replenish their hungry
 [11]
@@ -337,9 +335,7 @@ means for her recovery, as their unskilful, though willing industry could afford
 
 “Gentlemen, for so your aspects invite me to call you; if you knew how divinely quiet I endured this deadly slumber into which I was entered, I absolutely know, or at least believe, that in equity you would have refrained from disturbing me, and permitted me to reap the benefit of my consolation; but since things past, cannot be recalled, I will, on condition you immediately depart, for this your first offence, not esteem you guilty. I have here wholly betaken myself to sorrowfulness, and have long since devoted my zeal to the shrine of disconsolation; my desire
 [14]
-is neither to see nor be seen, but rather to lead the pilgrimage of my life from the sight of any. This solitary place I have chosen for my habitation, and here, unless death prevent my meditations, I resolve to wait the return of a dear friend, which inconsistent fortune, for many months hath detained from me. In reality I hate the sight of any, and for his sake loath the prospect of all. Therefore, I beseech you, at the request of an
-
-unfortunate lady, immediately to depart, that, according to my accustomed manner, I may sincerely, upon the altar of his absence, devoutly sacrifice my affectionate sighs, in token, that till death, in the garden of my maiden amity, the resemblance of his self, and idea of his perfections, shall, to my everlasting comfort, immortally flourish.”
+is neither to see nor be seen, but rather to lead the pilgrimage of my life from the sight of any. This solitary place I have chosen for my habitation, and here, unless death prevent my meditations, I resolve to wait the return of a dear friend, which inconsistent fortune, for many months hath detained from me. In reality I hate the sight of any, and for his sake loath the prospect of all. Therefore, I beseech you, at the request of an unfortunate lady, immediately to depart, that, according to my accustomed manner, I may sincerely, upon the altar of his absence, devoutly sacrifice my affectionate sighs, in token, that till death, in the garden of my maiden amity, the resemblance of his self, and idea of his perfections, shall, to my everlasting comfort, immortally flourish.”
 
 The princes with attentive ears listened to the effect of her Speech, and making their
 [15]
@@ -378,10 +374,7 @@ the letter, found these lines contained in it.
 
 “Know, princes, my name is FLORINA, the only daughter of AGENOR, king of Numidia; attaining to the perfect age, I was fought for in marriage by many princes, both of Africa and Europe; and, as the king my father affected some for their private wealth, so others I hated for their public enormities. But, Cupid storming at my liberty, and Venus at my single estate, acknowledging that there was no life but love, nor no paradise but the pleasures of marriage, they so bent their invective ambition against my innocency, that at last, by the means of Fortune, who had likewise intruded herself in the union of their sympathy, they unexpectedly sent to my father’s court, a lovely young prince, named Medor, the son and heir of Orlando, king of Biafara; who, penetrated with the
 [22]
-flying report of my worthless psrson came to Numidia, to protest himself my
-servant; upon whose beautiful aSpect I no sooner fixed my eyes, than I immediately
-
-felt the flames of fancy sparkle within my tormented breast. On the other side, prince Medor, so often frequented our royal palace, that at last, if his protestations were unfeigned, he repoSed his bless in my beauty, and reaped his chiefest pleasure in enjoying my desired presence: in a short time, however, our affections were so firmly united, that I became the mistress of his thoughts, and he master of my imaginations.”
+flying report of my worthless psrson came to Numidia, to protest himself my servant; upon whose beautiful aSpect I no sooner fixed my eyes, than I immediately felt the flames of fancy sparkle within my tormented breast. On the other side, prince Medor, so often frequented our royal palace, that at last, if his protestations were unfeigned, he repoSed his bless in my beauty, and reaped his chiefest pleasure in enjoying my desired presence: in a short time, however, our affections were so firmly united, that I became the mistress of his thoughts, and he master of my imaginations.”
 
 
 “But now despiteful destiny began to display part of his infidelity; our familiarity being noised throughout the court, soon reached the ears of the king, my father, who, raging at this unexpected event, resolved, to nip the blossoms of our tender affections; therefore, sending for the
@@ -393,29 +386,26 @@ the young prince, he not only checked him with thundering threats and invective 
 ardent affection which I bear prince Medor, I firmly resolve, either here to attend his expected arrival, or else to finish my days in manifestation of my fidelity. Therefore, dear princes, attribute my disobedience to my parents as the impulse of love, bestowing on it a favourable censure, and I resolve, that what my will prescibeth, my capacity shall perform; that is, immortally to remain faithful to my lover, or everlastingly unfriendly to myself.
 [25]
 
-
 ---
-## CHAP III.
->They arrive at the palace of Folly—a dwarf appears, and prevails on them to quit the palace, which they have no sooner done, but the whole building is swallowed up.
 
+## CHAP. III.
+
+>They arrive at the palace of Folly—a dwarf appears, and prevails on them to quit the palace, which they have no sooner done, but the whole building is swallowed up.
 
 They had no sooner perused the paper, but pitying the fate of the unhappy lady, they resolved to range the confines of Africa in search of Medor, her lost lover; that, by their friendly diligence, Florina might be delivered from her deplorable condition: by virtue of which heroic resolution, raising themselves from the verdant grass, with familiar amity, prosecuted their journey in such a manner, that after traveling a few days, they espied a verdant tent, on whose lofty turret a snow-white ensign flourished in the air; they no sooner approached this delightful object, but they perceived it to be
 [26]
-
 an eglantine bower, decked with columbines and damask roses. Being desirous to survey every part of it, they resolutely entered, where a showy beagle, with Argus eyes, vigilantly saluted them with his shrill barking notes.--A nymph being roused from her repose at this unexpected alarm, began to tear through the bower.
 
 But Venus and Diana having metamorphosed their malice to a future sympathy, so ordained it, that her amber locks should be entangled in the eglantine briars.--The princes taking hold of her loose garments, notwithstanding her force, compelled her to stay; but the nymph, thinking them to be Apollo and Jove, who had descended from heaven to ravish her virginity on earth, bitterly cried out, and tore the tresses of her hair: which our princes perceiving, with fair speeches began to appease her aggravation, requesting her only to conduct them to some adjoining
 [27]
 cottage, where, for that night, they might assuredly rest in some peaceful tranquillity. The nymph, fully satisfied, raised herself from the earth, and very freely conducted them through the woods and forests, where many troops of light-footed satyrs ran before, as triumphant heralds to proclaim their passage; at last, she brought them to a sumptuous palace, whose pyramids and towers loftily presumed to elevate their tops in the azure skies; the walls were of glittering alabaster, the gates of pure crystal, the pavement of black jet, intermixed with azured marble, the battlements of refined gold, the windows of transparent diamonds, and the roof of vermilion coral wrought with orient guards of silver; the interior lineaments owed nothing in correspondence to the outward edifice; for the portals and galleries were of white ivory, the bedsteads
 [28]
-of clarent amber, the coverlids and curtains of green damask embossed with emeralds, and the the tapestry of crimson velvet embroidered with amethysts and
-pearl. In the spacious court and delicious bowers which Flora had adorned with the
+of clarent amber, the coverlids and curtains of green damask embossed with emeralds, and the the tapestry of crimson velvet embroidered with amethysts and pearl. In the spacious court and delicious bowers which Flora had adorned with the
 treasures of her painted drapery, were likewise many curious fountains; some conveyed thither by the instinct of nature, and others erected by the ingenuity of art. Upon the borders of these fountains were growing many fruitful trees, whereon were artificially arranged divers harmonious birds. In short, there wanted no ornament to make this sumptuous palace a terrestrial paradise: it was impaled with lofty cedars, fenced draw-bridges, and impregnable bulwarks; likewise circumferenced with many curious rivers. Our two princes, with their nymphs, being arrived to this dignified place, were forthwith met by an
 [29]
 ancient matron, who, seeming to be the lady thereof, very kindly gave them a welcome. Her habit was of a fable hue, having her showy hair hanging down her face; her beauty seemed to be nipped by age; yet, in the lineaments of her complexion, lay furrowed the anatomy of an indifferent countenance; the arches of her sorrowful eyes were over-veiled with a crimson dye, from out of whose conduits it appeared many brinish tears had had their issue. After some conversation with her unexpected guests, perceiving the zeal of their youthful resolutions were devoted to travel, she, with a faint voice, delivered herself to the following effect:
 
-“Courteous friends, for such I hope you are, fear not to enter this palace, but
-advance with freedom ; for your eyes shall be presented with such delightful
+“Courteous friends, for such I hope you are, fear not to enter this palace, but advance with freedom; for your eyes shall be presented with such delightful
 [30]
 objects as shall please your contemplations.”
 
@@ -426,7 +416,7 @@ that Vesta, nay Venus herself, could scarce have refrained from blushing, at the
 
 But neither their deceitful melody, their venomous glances, nor their alluring lascivious gestures could charm the genius of the princes, or enchant their generosity to range beyond the bounds of, modesty; but like two religious pilgrims, they fought against vicious concupiscence, and ardently devoted their zeal, to the shrine of virtue; not regarding their smiles, they resolutely thrust them out of their chamber, and after securing the door, they betook themselves to rest.
 
-But Morpheus had nor long detained their spirits in delicious slumber, but having contracted his influence with the instinct of celestial deity, they were in the depth of their nocturnal sleep alarmed by a hideous clamour, which rattled in the palace with such a thundering noise, as if the whole foundation was subject to a sudden revolution; grievous groans were plenty, cries were common, and all diverted to such
+But Morpheus had nor long detained their spirits in delicious slumber, but having contracted his influence with the instinct of celestial deity, they were in the depth of their nocturnal sleep alarmed by a hideous clamour, which rattled in the palace with such a thundering noise, as if the whole foundation was subject to a sudden revolution; grievous groans were plenty, cries were common, and all diverted to
 [33]
 such a tempestuous confused chaos, as if the atlas of the world, had, in the vivacity of his fury, summoned the confines of the earth to the dreadful day of judgment. At this the young princes instantly left their beds, when behold, there appeared to them a delectable dwarf dressed in crimson, who, with an angelical voice, desired them to depart the place, and follow the paths of virtue.
 
@@ -452,7 +442,6 @@ The young princes were greatly astonished at what they had seen, and on opening 
 > 3. Conceal thy secrets in the closet of thy breast, lest rashly displaying them to others, thou produce the prejudice of thine own tranquillity.
 
 > 4. Fly ambition, as the poison of the sense, and detest envy as the canker of thy contemplations.
-
 [37]
 
 > 5. Gaze not on beauty lest it engender repentance, but loath a lascivious courtesan as the scourge of iniquity.
@@ -464,11 +453,12 @@ The young princes were greatly astonished at what they had seen, and on opening 
 > 8. Detest vain glory as the venom of sin, and abolish superstition as the cloak of ungodliness.
 
 ---
+
 [38]
 
 ## CHAP. IV.
 
->By the sound of music, they are drawn into a forest, where they find an aged father, seated in a fragrant bower.-—He informs them, at their request, why he lives that retired life.-—At their departure he gives them the necessary instructions for their journey.
+>By the sound of music, they are drawn into a forest, where they find an aged father, seated in a fragrant bower.—He informs them, at their request, why he lives that retired life.—At their departure he gives them the necessary instructions for their journey.
 
 Having perused the contents of the paper, and knowing the sacred influence thereof tended to the establishing of their celestial tranquility, they imprinted it in their memories, that it might serve for a fenced circumference, to retain them in the confines of piety; and triumphing that fortune had presented them with so sacred an instance, they joyfully departed.
 
@@ -478,10 +468,10 @@ of transplendent Phoebus, then the young princes again prepared themselves for a
 
 Directing their course towards the grove, they came to the prospect of a fair valley, in the midst of which ran most leisurely a silver stream, whose banks in equal 
 [40]
-distance were beset with fruitful lemon trees: which delightful prospect so pleased their youthful imaginations, that they immediately bent their course to the aforesaid arbor.—-On their entrance, they saw a beautiful little boy crowned with a laurel-garland seated on a flowery bank close by the river side.—-While they were listening to his youthful melody, they saw an aged father seated in a fragrant bower, who, by the furrows of his face, had in their tender years endured many calamities—his habit was of black fables—-his vissage pale and wan-—and his white beard descended almost to his middle—-in his hand he held a staff, which was the feeble supporter of his withered age.—-Being anxious to know the cause of his disconsolate retirement, they immediately went to the bower, and interrupting him from his earnest study, Palmos thus addressed himself to him.
+distance were beset with fruitful lemon trees: which delightful prospect so pleased their youthful imaginations, that they immediately bent their course to the aforesaid arbor.—On their entrance, they saw a beautiful little boy crowned with a laurel-garland seated on a flowery bank close by the river side.—While they were listening to his youthful melody, they saw an aged father seated in a fragrant bower, who, by the furrows of his face, had in their tender years endured many calamities—his habit was of black fables—his vissage pale and wan—and his white beard descended almost to his middle—in his hand he held a staff, which was the feeble supporter of his withered age.—Being anxious to know the cause of his disconsolate retirement, they immediately went to the bower, and interrupting him from his earnest study, Palmos thus addressed himself to him.
 [41]
 
-“Venerable father, if our arrival has disturbed your study, or our presence, your patience, we beseech you to pardon the first, though a rash attempt, and excuse the latter, as being an unwilling enterprise.—-Travelers are, you well know, lovers of novelties-—therefore, aged Sir, we beg you to relate to us the occasion of this retirement, and the motive which induced you to embrace this austere life.”
+“Venerable father, if our arrival has disturbed your study, or our presence, your patience, we beseech you to pardon the first, though a rash attempt, and excuse the latter, as being an unwilling enterprise.—Travelers are, you well know, lovers of novelties—therefore, aged Sir, we beg you to relate to us the occasion of this retirement, and the motive which induced you to embrace this austere life.”
 
 The ancient father was well satisfied with this apology for the fredom they had taken, and judging, by their appearance, that they were of noble extraction, very freely, but with a gravity which seemed to embellish his speech, made them this friendly reply:
 
@@ -489,113 +479,106 @@ Your, arrival hath neither disturbed my study, nor your presence prejudiced my p
 [42]
 of the other at leisure, therefore you are both welcome; and, as a friendly demand deserveth a familiar reply, know that this bower is my retiring place, when passionate fancies begin to surround my distempered sense.—oThis boy I have instructed in music, that when my eyes dazzle with much reading, he may, with his melody, rouse my spirits from the thoughts of slumber, and also put me in mind of the accustomed duty which I owe to the sorrowful shrine of my dead faint, which, whilst she lived, I affected more dearly than myself; and being dead, will honour with such ardent fidelity, that future ages shall acknowledge, that till death, and after, to my fair Ismena, I remained completely constant; in remembrance of whom, at the end of this grove, in a fragrant valley, I have, as duty and love prompted me, erected a tomb, whereunto, till the period of
 [43]
-my days, I have vowed daily to offer her my throbbing sighs, as repentant witnesses of my calamity: therefore, gentlemen, if you please to walk thither, your eyes will be made spectators of that which I have with grief and aggravation discovered to you.—-I will likewise give you such instructions for your travels, that doubtless you will find them very profitable to you, and in your adventures no way prejudicial.”
+my days, I have vowed daily to offer her my throbbing sighs, as repentant witnesses of my calamity: therefore, gentlemen, if you please to walk thither, your eyes will be made spectators of that which I have with grief and aggravation discovered to you.—I will likewise give you such instructions for your travels, that doubtless you will find them very profitable to you, and in your adventures no way prejudicial.”
 
-The princes returned him thanks for his civility-—and walking through ranks of lofty cedars, which, with their ver-dent branches beautified the adjoining silver stream, they arrived to the sacred chapel.-—Having viewed the tomb, they returned to find out the ancient mourner, who purposefully attending their coming, took them by the hand, and with tears in his eyes continued his discourse
+The princes returned him thanks for his civility—and walking through ranks of lofty cedars, which, with their ver-dent branches beautified the adjoining silver stream, they arrived to the sacred chapel.—Having viewed the tomb, they returned to find out the ancient mourner, who purposefully attending their coming, took them by the hand, and with tears in his eyes continued his discourse,
 [44]
+“Gentlemen, my grief is such, that I loath my life—and were it not too offensive to my soul I could willingly be instrumental to my own untimely death—but alas!—I know that that would be a sacrifice too abominable in the sight of heaven, which is the only rein that withholds me from executing my resolutions.”
 
-“Gentlemen, my grief is such, that I loath my life—-and were it not too offensive to my soul I could willingly be instrumental to my own untimely death-—but alas!—I know that that would be a sacrifice too abominable in the sight of heaven, which is the only rein that withholds me from executing my resolutions.”
+—Here he was interrupted by Thalmeno, who addressed himself as follows:
 
+“Venerable Sir, the effects of amorous contemplation, should now, I think, thro’ age be purged from your memory, and the remembrance of past pleasures buried I in oblivion—it is not for you, who are ready to salute the grave, to sacrifice sighs to Cupid—therefore, Sir, consider with yourself, that that fair excellence whom you adore, is now no more, and cannot by any mortal means be revived."
 
--—Here he was interrupted by Thalmeno, who addressed himself as follows:
-
-“Venerable Sir, the effects of amorous contemplation, should now, I think, thro’ age be purged from your memory, and the remembrance of past pleasures buried I in oblivion-—it is not for you, who are ready to salute the grave, to sacrifice sighs to Cupid—therefore, Sir, consider with yourself, that that fair excellence whom you adore, is now no more, and cannot by any mortal means be revived.’’
-
-
-Delmon perceiving he was answered rather sharply, wept afresh—-however,
+Delmon perceiving he was answered rather sharply, wept afresh—however,
 [45]
-comforting his sorrowful muse with patience, with tears in his eyes, he requested them to enter his homely habitation, and to accept of such fare as his poverty could afford them, to which they willingly complied.—-The repast being over, and the princes ready to depart, with as much freedom as his passion would permit, gave them these following instructions:—-
+comforting his sorrowful muse with patience, with tears in his eyes, he requested them to enter his homely habitation, and to accept of such fare as his poverty could afford them, to which they willingly complied.—The repast being over, and the princes ready to depart, with as much freedom as his passion would permit, gave them these following instructions:
 
-“Finding your resolutions are bent on travel, I must inform you, that at the court of BRILION king of Zanfara some few leagues from hence, there are always resident men who esteem discretion a chief point of valour, and no way backward in venturing their lives for the establishing of their fame; their senators also are both grave, politic, and provident; therefore, gentlemen, if you direct your course thither, you will generally see
-
-each live by the fertility of his own land-—each reap the fruit of his own vine—-
+“Finding your resolutions are bent on travel, I must inform you, that at the court of BRILION king of Zanfara some few leagues from hence, there are always resident men who esteem discretion a chief point of valour, and no way backward in venturing their lives for the establishing of their fame; their senators also are both grave, politic, and provident; therefore, gentlemen, if you direct your course thither, you will generally see each live by the fertility of his own land—each reap the fruit of his own vine
 [46]
-and content sit smiling in every, corner.—-There you may behold the fragrant fields adorned with their verdant vestures, the lofty trees with their gay garments, and the fruitful arbors with the treasure of Flora—-likewise their mountains covered with show-white flocks, their meadows with the riches of Ceres, and their valleys with the choicest flowers.-—In their parks you will find regiments of fallow deer, and on every bush, harmonious birds warbling forth their melody.”
+and content sit smiling in every, corner.—There you may behold the fragrant fields adorned with their verdant vestures, the lofty trees with their gay garments, and the fruitful arbors with the treasure of Flora—likewise their mountains covered with show-white flocks, their meadows with the riches of Ceres, and their valleys with the choicest flowers.—In their parks you will find regiments of fallow deer, and on every bush, harmonious birds warbling forth their melody.”
 
 Perceiving that Delmon had finished his speech, and transported with the report, of so flourishing a kingdom, they gave him many thanks for their kind entertainment, praised him, for his virtuous exhortations, and humbly took their leave.
 
 
 ---
+
 [47]
 
 ## CHAP. V.
 
->They arrive at the court of Zanfara——and enter into the king's service—changing their names from Thalmeno to Thalmo, and from Palmos to Plivio-—Thalmo is appointed preceptor to the king’s daughter-—and Plivio appointed governor of Ithaca castle.
+> They arrive at the court of Zanfara——and enter into the king's service—changing their names from Thalmeno to Thalmo, and from Palmos to Plivio—Thalmo is appointed preceptor to the king’s daughter—and Plivio appointed governor of Ithaca castle.
 
 After traveling through an unknown country, they at last arrived to the chiefest city of Zanfara where the court then was—and taking up their lodging at the best inn which the place afforded, they remained three days to refresh themselves of their dangerous travels and fatigues.—Recollecting they were now in a kingdom far from their native home, and that it was necessary to settle their proceedings upon the main of some
 [48]
-resolution to avoid future misfortunes, they determined to set apart all delays, and offer their service to the king, justifying themselves to be knights of Arabia; and changing their names from Thalmeno to Thalmo, and from Palmos to Plivio, they dispatched a letter to the king, which was no sooner received, but he commanded the two foreign knights to be
-brought to his presence, and after receiving them in a manner suitable to his dignity, courteously accepted of their voluntary service.---During their stay at this court, their gallant actions, courteous behavior, and princely wisdom, conquered the affections, not only of the king, but of the nobility and gentry likewise.—-The king, as a token of his esteem, appointed Thalmo preceptor to the princess ATHELIA, his daughter, and Plivio governor of Ithica castle, where the princess MERSiLA, daughter to SAMOR
+resolution to avoid future misfortunes, they determined to set apart all delays, and offer their service to the king, justifying themselves to be knights of Arabia; and changing their names from Thalmeno to Thalmo, and from Palmos to Plivio, they dispatched a letter to the king, which was no sooner received, but he commanded the two foreign knights to be brought to his presence, and after receiving them in a manner suitable to his dignity, courteously accepted of their voluntary service.—During their stay at this court, their gallant actions, courteous behavior, and princely wisdom, conquered the affections, not only of the king, but of the nobility and gentry likewise.—The king, as a token of his esteem, appointed Thalmo preceptor to the princess ATHELIA, his daughter, and Plivio governor of Ithica castle, where the princess MERSiLA, daughter to SAMOR
 [49]
-king of Bohemia was confined prisoner.—-Leaving Plivio and Mersilva to Fortune’s protection, we shall for a while speak of Thalmo and the fair Athelia.
+king of Bohemia was confined prisoner.—Leaving Plivio and Mersilva to Fortune’s protection, we shall for a while speak of Thalmo and the fair Athelia.
 
 ---
+
 [50]
 
-## CHAP. VI
+## CHAP. VI.
 
->Thalmo goes to the forest and unexpectedly meets with Athelia,— He determines to discover his passion. The lady treats him with great contempt, and departs abruptly.
+> Thalmo goes to the forest and unexpectedly meets with Athelia,— He determines to discover his passion. The lady treats him with great contempt, and departs abruptly.
 
-Early in the morn  before the pearled dew was exhaled by the shining rays of golden Phoebus, when the fragrant flowers were displaying the pride of their beauty, and the melodious birds on the swelling bushes, warbling forth their melody, it chanced that Thalmo, captivated with the beauty of Athelia, betook himself to the fields, not only to refresh his tormented mind, but to make the flowery meadows acquainted with his amorous fancies.—-
+Early in the morn  before the pearled dew was exhaled by the shining rays of golden Phoebus, when the fragrant flowers were displaying the pride of their beauty, and the melodious birds on the swelling bushes, warbling forth their melody, it chanced that Thalmo, captivated with the beauty of Athelia, betook himself to the fields, not only to refresh his tormented mind, but to make the flowery meadows acquainted with his amorous fancies.
 [51]
 
-Directing his course to the verdant forests, he came to a spacious grove, whose branches expelling the darts of Titan, made a beautiful shade for retired passengers.—This retirement corresponding with his desires, he cast himself on a bank of flowers; and, having vented his passions, and made the forests echo with his malady, he resolved to return.—At his departure, fortune so ordained it, that the princess Athelia with her attendant ladies, were coming to the grove.—-Pleased with this unexpected sight, and elevating his resolutions upon the wing of honour, he resolved to present her with the idea of his affection—-and finding her sequestered from her attendants (within a myrtle bower) after the ceremonies due to her royal birth, he thus addressed himself to her.
+Directing his course to the verdant forests, he came to a spacious grove, whose branches expelling the darts of Titan, made a beautiful shade for retired passengers.—This retirement corresponding with his desires, he cast himself on a bank of flowers; and, having vented his passions, and made the forests echo with his malady, he resolved to return.—At his departure, fortune so ordained it, that the princess Athelia with her attendant ladies, were coming to the grove.—Pleased with this unexpected sight, and elevating his resolutions upon the wing of honour, he resolved to present her with the idea of his affection—and finding her sequestered from her attendants (within a myrtle bower) after the ceremonies due to her royal birth, he thus addressed himself to her.
 [52]
 
-“Madam, When, by the aid of Fortune, I saw so much beauty, I immediately felt my tender breast inspired with a lover’s paSsion; and to such a degree, that ever since, I have firmly sworn my fidelity to the service of your superior excellence—-at the appearance of so many charms, my senses are so much captivated, that all I am now capable of, is to admire you.-—My birth is such, that, if known to you, might plead much in my behalf—therefore, dear madam, if my sighs might disclose, my tears explain, or my passions discover what a zealous flame my heart possesses in your favour, I think you would not only recompense my desert, but also repay my fidelity with your affection; and here I determine, till the period of my pilgrimage,
+“Madam, When, by the aid of Fortune, I saw so much beauty, I immediately felt my tender breast inspired with a lover’s paSsion; and to such a degree, that ever since, I have firmly sworn my fidelity to the service of your superior excellence—at the appearance of so many charms, my senses are so much captivated, that all I am now capable of, is to admire you.—My birth is such, that, if known to you, might plead much in my behalf—therefore, dear madam, if my sighs might disclose, my tears explain, or my passions discover what a zealous flame my heart possesses in your favour, I think you would not only recompense my desert, but also repay my fidelity with your affection; and here I determine, till the period of my pilgrimage,
 [53]
 to remain as constant to the princess Athelia, as I with she should be affable to the perplexed Thalmo.”
 
 The princess, (being unacquainted with such amorous encounters sharply returned him this answer.
 
-“Why Thalmo, said she, hath my kindness made thee so arrogant, or my underserving favour so presumptuous, that thou shouldst discourse to me of love —-hath my affability emboldened thee to aspire so high, as to declare thy affection to one so much thy superior? Hath idleness in my service, taught thee to adorn thy tongue with flattery ?—-And is there no other object for thee to aim at but me?-—As for thy birth, I disdain it as nothing, and thyself as less:—-if thou hast sacrificed sighs, or shed tears for my sake,
+“Why Thalmo, said she, hath my kindness made thee so arrogant, or my underserving favour so presumptuous, that thou shouldst discourse to me of love —hath my affability emboldened thee to aspire so high, as to declare thy affection to one so much thy superior? Hath idleness in my service, taught thee to adorn thy tongue with flattery ?—And is there no other object for thee to aim at but me?—As for thy birth, I disdain it as nothing, and thyself as less:—if thou hast sacrificed sighs, or shed tears for my sake,
 [54]
 why do you expect a recompense where there is no satisfaction to be made?—To be brief, refrain from prosecuting thy folly, or I will use such means that the king, my father, shall be made acquainted with your presumption.”
 
-This decisive answer might doubtless have made a soldier retire for fear—-but
-
-Thalmo, disdaining to quit the siege for the first repulse, earnestly continued his discourse.
+This decisive answer might doubtless have made a soldier retire for fear—but Thalmo, disdaining to quit the siege for the first repulse, earnestly continued his discourse.
 
 “If you conjecture, Madam, that in discovering my affections, I flatter your merits with a show of derision, you greatly wrong my honour—therefore, dear Madam, for my faithful affection, do not term me an ungrateful servant; if my affections were predestinated for yourself alone, disdain not him, Madam, which in
 [55]
 heart, hath long since vowed to adore you, and to whom he dedicates his whole devotions, and reward not that passion with scorn, whose firmness you cannot doubt.”
 
-“Thalmo, replied the princess, if thy affection were equal to the tenor of thy words, I think you should at my request, bury the repetition thereof in the grave of silence, and not be guilty of so great a presumption.-—My resolution can never be diverted from reaping the enjoyment of a single life ; therefore, since my mind cannot be subject to servile love, let my commands be a mediatrix to cause thee to bid a final adieu to thy
-peevish enterprise.”
+“Thalmo, replied the princess, if thy affection were equal to the tenor of thy words, I think you should at my request, bury the repetition thereof in the grave of silence, and not be guilty of so great a presumption.—My resolution can never be diverted from reaping the enjoyment of a single life ; therefore, since my mind cannot be subject to servile love, let my commands be a mediatrix to cause thee to bid a final adieu to thy peevish enterprise.”
 
 The princess was going to depart, but Thalmo continuing his discourse, she seated
 [56]
-seated herself again: “ Madam, said he, if my words could decipher my passion, or my tongue express my affection, I should think myself most happy; though now I esteem myself of all men the most unfortunate.—-Unfortunate I may well fay, that my fidelity should be obscured in the midst of incredulity; which if you would but sincerely weigh in the balance of reason, I assure myself, my constancy would remove the residence of your mistrust, and inform you, that my ardent flame, (which none but yourself can extinguish) springs from true felicity. That harsh determination of living a recluse life, I beseech you to recall; for the possessing your presence, and the obtaining of your commands would yield me the satisfaction of my trembling desires-—my merit, perhaps, may in time acquire more favour from your princely goodness, as I am resolved to
+seated herself again: “ Madam, said he, if my words could decipher my passion, or my tongue express my affection, I should think myself most happy; though now I esteem myself of all men the most unfortunate.—Unfortunate I may well fay, that my fidelity should be obscured in the midst of incredulity; which if you would but sincerely weigh in the balance of reason, I assure myself, my constancy would remove the residence of your mistrust, and inform you, that my ardent flame, (which none but yourself can extinguish) springs from true felicity. That harsh determination of living a recluse life, I beseech you to recall; for the possessing your presence, and the obtaining of your commands would yield me the satisfaction of my trembling desires—my merit, perhaps, may in time acquire more favour from your princely goodness, as I am resolved to
 [57]
-to live and die in your service, and to attend on your person with such fidelity, affection, and submissive loyalty, that your fair self with your royal father, shall one
-day bless the hour of my arrival.
+to live and die in your service, and to attend on your person with such fidelity, affection, and submissive loyalty, that your fair self with your royal father, shall one day bless the hour of my arrival.
 
 The princess well noting with what fervency he vented his passion, began to show some motion of compassion; but that he should not conceive any spark of hope, where there was no performance meant to be effected, made him this sharp reply:
 
 “Thalmo, your obstinate opinion will constrain me hereafter to loath thy company, it is now high time to put a period to this conference, because the tediousness of it tires my senses in understanding it. What I have said I mean to perform, and leave you to your passionate folly; as your
 [58]
-request is to continue in my service, I cheerfully comply, provided your desires aspire not to my prejudice.-—Consider with yourself what the king, my father, will say, when he hears of your presumption.-—Therefore, Thalmo, take my advice, think better of what you have said, recall your follies, and be penitent for your offence.” Perceiving that the princess had finished her cruel oration, he immediately said to her;
+request is to continue in my service, I cheerfully comply, provided your desires aspire not to my prejudice.—Consider with yourself what the king, my father, will say, when he hears of your presumption.—Therefore, Thalmo, take my advice, think better of what you have said, recall your follies, and be penitent for your offence.” Perceiving that the princess had finished her cruel oration, he immediately said to her;
 
-“Is it possible, madam, that so much beauty and cruelty can dwell together? and is it possible, that each being the other’s enemy, they should both seek my ruin:-—Consider, princess, the purity of my pretense, and the desire of my expectation! and think, that if Thalmo lives, he must love the fair Athelia:—- Dear madam, distill into your heart the gentle
+“Is it possible, madam, that so much beauty and cruelty can dwell together? and is it possible, that each being the other’s enemy, they should both seek my ruin:—Consider, princess, the purity of my pretense, and the desire of my expectation! and think, that if Thalmo lives, he must love the fair Athelia:— Dear madam, distill into your heart the gentle
 [59]
 drops of pity, and amidst the showers-of your anger, let the resplendent fun of favour evaporate your wrath! let the dew of patience soften your cruelty, that I may, at last, reap that happiness I have so long desired.”
 
-“Thalmo,” said the princess, “I see that thou art a servant to folly; and, it is in vain to dissuade, where senseless absurdity doth command.-—I am sorry that I have remained with you so long, as thou art blinded with a frivolous humour, that springeth rather from a fond understanding, than from a tormented spirit.”
+“Thalmo,” said the princess, “I see that thou art a servant to folly; and, it is in vain to dissuade, where senseless absurdity doth command.—I am sorry that I have remained with you so long, as thou art blinded with a frivolous humour, that springeth rather from a fond understanding, than from a tormented spirit.”
 
 The princess, to conceal her passion, immediately departed; and directed her steps towards the court, where we shall leave her for a while with her royal parents.
 [60]
 
 ---
+
 ## CHAP. VII.
 
->Thalmo is enraged at Athelia’s abrupt departure. He resolves to write to her.—-The princess determines to correspond with Thalmo, and acknowledges her love for him alone.
+> Thalmo is enraged at Athelia’s abrupt departure. He resolves to write to her.—The princess determines to correspond with Thalmo, and acknowledges her love for him alone.
 
 Thalmo feeing the princess depart so unexpectedly, changed his pleasant countenance to a pale complexion ; continually crying out upon cruel, destiny, and often sighing as-if his heart would break; falling from sighs to tears, and then from tears to sigh again; then calling on Athelia, as if that name had I ravished his senses with divine cogitations;at length, he retired to his closet, and resolved to write to her; that he might in some measure ease his tormented mind.
 [61]
 
 As soon as he had finished his epistle, he hasted to a lady of the princess Athelia, and requested her to deliver it to the princess, to which she readily consented and finding her alone in her chamber, with an humble reverence, effected her promise. The princess, at first, was unwilling to receive it, not knowing from whence it came; however, she took the letter, which she had no sooner opened than she saw the name of Thalmo, and commanding her woman to depart, she locked her chamber door, and read the contents: this brought to her remembrance the doleful sighs, and passionate agonies, which, as messengers of faithful constancy, he sent to witness the miseries he endured: she forgot not the proud repulses, sharp answers, bitter threats, and obstinate denials that she gave his enter-prize; which, when considered, made her burn
 [62]
-with anger. Indeed, she confessed (relinquishing obstinate coyness) her passion was then magnanimous for Thalmo, although modesty would not permit her to discover it; and that she adored him, as the sacred image to whom she paid her devotions. “Thalmo,” said she “and none but him, shall live in my remembrance, and none but him alone can boast of such a conquest: though pride at first seemed to reign in my breast, when I refused his precepts, I will now be as affable; in accepting his affection; though then pertinacious in denying his requests, yet now as willing to agree to his petitions; and though then refractory in not being attentive to his desires, yet now as tractable to his demands;—-but, whether Athelia, dost thou wander? what lunatic folly doth possess thy Senses? or whither runs thy wits a wandering without their guide,
+with anger. Indeed, she confessed (relinquishing obstinate coyness) her passion was then magnanimous for Thalmo, although modesty would not permit her to discover it; and that she adored him, as the sacred image to whom she paid her devotions. “Thalmo,” said she “and none but him, shall live in my remembrance, and none but him alone can boast of such a conquest: though pride at first seemed to reign in my breast, when I refused his precepts, I will now be as affable; in accepting his affection; though then pertinacious in denying his requests, yet now as willing to agree to his petitions; and though then refractory in not being attentive to his desires, yet now as tractable to his demands;—but, whether Athelia, dost thou wander? what lunatic folly doth possess thy Senses? or whither runs thy wits a wandering without their guide,
 [63]
 discretion? Hath an amorous passion so soon transported thy mind with fancies, or lovely toys so instantly obscured thy reason, with absurdity, that without regard to modesty, thou proclaims thy simplicity;—is she who was so long courted, now become an oratory suitor? and must she plead to him for love, who petitioned her for affection?—Such, Athelia, is thy fate; and therefore contradict not that which the gods have already decreed; satisfy thyself with what is contingent to thee, and hereafter seek, by some favourable means, to correspond with thy beloved Thalmo, to the end, that his presence may expel those mists of sorrow, that now intoxicate thy senses.”
 
@@ -603,7 +586,7 @@ The queen, her mother, wondering at her long absence from the court, ordered Lev
 [64]
 out; who, knowing where she left the princess, went directly to her chamber, and acquainted her that the queen desired her presence at the palace.—Athelia, perceiving the time had deceived her, and clearing up her countenance the best she could, failed not, according to her duty, to hasten to the queen, where, contrary to her expectations, she received this severe check.
 
-“Athelia, said the queen, hath too much freedom made you forget yourself ? or has some extraordinary affair retained you so long from our presence? was you with your tutors, lady Florina, or whence came you.”
+“Athelia, said the queen, hath too much freedom made you forget yourself or has some extraordinary affair retained you so long from our presence? was you with your tutors, lady Florina, or whence came you.”
 
 “May it please your majesty,” replied the princess, “I have long since been invited to see the lady Fulvia’s chamber, and
 [65]
@@ -613,10 +596,13 @@ With this reply the queen was satisfied; and leaving Athelia in her presence, we
 [66]
 torments might be compared to the tortures of Ixion, only with this exception, that he had a fairer deity in Athelia, than Ixion had in Proserpina; when he waked the image of Athelia stood before him, whose beauty he adored, as the only comfort of his heart’s content. When in his study, pensively passionate, he would suddenly arise, and ask, who was there? as if the princess had been knocking at the door: at other times he would direct his course towards the fields, and there, to the senseless trees, decipher forth the manner of her cruelty; and from the fields to his melancholy habitation, where we will leave him to the fancy of his affections, and return to the almost-forgotten Plivio.
 
-[67]---
+[67]
+
+---
+
 ## CHAP. VIII.
 
->Plivio resolves in the absence of the governor to visit the fair captive, and to set her at liberty,—The prince discovers his passion for her, which the lady, for the present pays no regard to.
+> Plivio resolves in the absence of the governor to visit the fair captive, and to set her at liberty,—The prince discovers his passion for her, which the lady, for the present pays no regard to.
 
 
 Plivio having been appointed by the king deputy-governor of Ithica castle, where Mersilva was kept prisoner, could not brook the treatment which that princess received from PORUS, the governor. The king allowed her a decent chamber, pleasant walks, a table answerable to her person, and a woman to attend her; on the contrary, Porus abridged her of these privileges, and placed her in an obscure dungeon, where the thoughts of so detestable a place might have
@@ -654,41 +640,42 @@ despair, being now by your unexpected goodness inspired with consolation, doth f
 
 Plivio, rejoiced at her condescension, and perceiving her inclination to go, took her by the hand, and conducted her thro’ the castle, and from thence to the gardens; where they ranged from bank to bank, and from fountain to fountain; whose walls of shining marble, gave such grace to Mersilva’s eyes, that her spirits, at so pleafant a prospect, received the long looked for motion of delightful contentment. On the tops of these fountains stood
 [76]
-stood two female images, curiously painted, representing Minerva and Diana, each holding in their hands a little vane, and supporting the third grace crowned with an Olympian garland.—
+stood two female images, curiously painted, representing Minerva and Diana, each holding in their hands a little vane, and supporting the third grace crowned with an Olympian garland.
 
 Whilst Mersilva, was viewing these delightful gardens, Plivio ordered a banquet to be prepared, to which he invited the princess and spared no pains to make the entertainment agreeable to his royal captive. In this manner for a while, they deluded the time; and Plivio never failed to cast his eyes on the object of his wishes, which Cupid observing, immediately bent his bow, and let fly an arrow headed with desire and feathered with affection, which had such an effect on him, that he fainted at the stroke, so that he acknowledged no goddess but Cytherea, no faint but Venus, nor no lord but love; after
 [77]
 conducting Mersilva to the castle, he hasted to his own apartment, and passedthe rest of the day in amorous contemplations.
 
-What, Plivio ! (said he) art thou at last vanquished in the field of beauty! or hath Cupid such influence at the first approach to penetrate thy breast with affection  Can thy resolutions which were devoted to Bellona now stoop to Venus? and though to thy prejudice devote thyself a sacrifice to love’s altar? Beware Plivio! the Syrens have sweet voices, yet are deceitful, the Panthers fair skins, yet infectious, and the Amazons beautiful faces, yet are mere dissemblers.—Though Helen was fair, she was petulant; Thais was lovely, but lewd; and Semiramis, though curious, was a courtesan: but alas! one example makes not a maxim,
+
+"What, Plivio! (said he) art thou at last vanquished in the field of beauty! or hath Cupid such influence at the first approach to penetrate thy breast with affection  Can thy resolutions which were devoted to Bellona now stoop to Venus? and though to thy prejudice devote thyself a sacrifice to love’s altar? Beware Plivio! the Syrens have sweet voices, yet are deceitful, the Panthers fair skins, yet infectious, and the Amazons beautiful faces, yet are mere dissemblers.—Though Helen was fair, she was petulant; Thais was lovely, but lewd; and Semiramis, though curious, was a courtesan: but alas! one example makes not a maxim,
 [78]
-nor doth fore-past crimes include general actions: for speak without partiality, and thy conscience will tell thee, that as there hath been a wanton Helen, so there was a wife Calliope; a lewd Thais, so a chaste Lucretia ; a vicious Semiramis, yet a virtuous Susanna; therefore, retire not with pusillanimity, but advance with fortitude, for, as the poet says,
+nor doth fore-past crimes include general actions: for speak without partiality, and thy conscience will tell thee, that as there hath been a wanton Helen, so there was a wife Calliope; a lewd Thais, so a chaste Lucretia; a vicious Semiramis, yet a virtuous Susanna; therefore, retire not with pusillanimity, but advance with fortitude, for, as the poet says,
 
->A faint heart never pluck’d fruit from the tree of love.
+> A faint heart never pluck’d fruit from the tree of love.
 
-Consider with thyself what Mersilva is, by descent a princess, of qualities a queen, of beauty an angel, and of perfection the phoenix of her sex. Who then but could esteem such a virgin ? Who then but could love such a matchless paragon? Nay, who but would sacrifice his life in behalf of such a saint.””
+Consider with thyself what Mersilva is, by descent a princess, of qualities a queen, of beauty an angel, and of perfection the phoenix of her sex. Who then but could esteem such a virgin? Who then but could love such a matchless paragon? Nay, who but would sacrifice his life in behalf of such a saint.”
 [79]
 
 After these amorous contemplations, he remained so restless that no object could please him but the idea of the fair Mersilva; no thought could content him unless sprung from her virtue; nor no imagination delight him, unless derived from her perfections; and burning with desire to display his passion, at length, with a trembling resolution, he wrote the following letter; which, by a trusty messenger, he sent to the fair Mersilva.
 
->>Madam,
+>> Madam,
 
->“The passion which I have discovered in my breast is so great, that none but your gracious self is able to appease: having fixed my eyes on your beauty, I am bent to direct my devotions on the altar of your flourishing charms; since I repose the first fruits of my inclinations on the
+> “The passion which I have discovered in my breast is so great, that none but your gracious self is able to appease: having fixed my eyes on your beauty, I am bent to direct my devotions on the altar of your flourishing charms; since I repose the first fruits of my inclinations on the
 [80]
->the idea of your divine perfections, I hope a favourable answer will be the reward of my constant fidelity,
+> the idea of your divine perfections, I hope a favourable answer will be the reward of my constant fidelity,
 
->>>Plivio.”
+>>> Plivio.”
 
 Mersilva received the letter, and guessing from whence it came, opened it with a blushing countenance; which having read, she fetched a deep sigh, and found her senses surrounded with many agreeable notions of Plivio’s perfections; every line seemed to make a smooth path for Cupid’s entrance; however, after a little reflection, (considering the favours
 he had before shown her) she resolved to send him an answer,
 
->>Sir,
+>> "Sir,
 
->I received yours without much dish difficulty, thinking only to hear of your
+> I received yours without much dish difficulty, thinking only to hear of your
 [81]
->welfare; and contrary to my expectation, find it full of amorous fancy; considering the former favours received from you, I thought it agreeable to return an answer; the purport whereof is to request, that you bid a solemn adieu to your enterprise, for the thought of affection cannot harbour in my breast; therefore, forbear to trouble me any more on the subject; and cease your solicitations to her, who intends not to be won by any:—-not omitting thanks for your kind indulgence, I remain your friend,
+> welfare; and contrary to my expectation, find it full of amorous fancy; considering the former favours received from you, I thought it agreeable to return an answer; the purport whereof is to request, that you bid a solemn adieu to your enterprise, for the thought of affection cannot harbour in my breast; therefore, forbear to trouble me any more on the subject; and cease your solicitations to her, who intends not to be won by any:—not omitting thanks for your kind indulgence, I remain your friend,
 
->>>MERSILVA.”
+>>> MERSILVA.”
 
 Having finished her letter, she was doubtful whether she shouldaSend it, lest it might redound to the prejudice of her fame; however, founding the depth of her affection, by the mutability of her fancies,
 [82]
@@ -702,10 +689,9 @@ The princess no sooner heard the condition of her lover, but she expressed great
 [84]
 conference. Supper being ended, they betook themselves to their bed; where both, but especially Mersilva, slept with watchful countenance. But Aurora, the joyful messenger of Phoebus, had no sooner conquered the vestal night, and given the fable clouds an overthrow, than Mersilva arose, leaving Athelia in bed;—directing her course towards the fields, she came to a lofty mountain, and finding that the spring presented her with a delicious umbrage, she laid her down on the verdant grass: casting her eyes round, she saw Plivio making towards the bank whereon she sat, and immediately prepared to receive him: being arrived at the happy spot, though affection had a long time silenced his tongue, with a trembling voice he thus addressed himself to her;
 [85]
-
 “Madam, my eyes no sooner reflected on your divine beauty, but my heart was made your captive; and those troublesome lines which you received, were but messengers of my mind, and an earnest of my entire affections: I am now come to present you with the original, and to inform you, madam, that my passion is of such extent, as none but that beauty which created it can give it limits: therefore, I beseech you, decline not my affection, but let me enjoy your favours, that I may bid despair farewell.”
 
-Mersilva replied,  It is proper time to put an end to this conversation, since the theme whereon you descant proceeds
+Mersilva replied, "It is proper time to put an end to this conversation, since the theme whereon you descant proceeds
 [86]
 from folly; for if you imagine that my thoughts will condescend to love’s embraces, you deceive your hopes with a vain absurdity: what I outwardly speak, proclaims my secret intentions; therefore bury your speeches in the grave of silence, and presume not to present her with your love, that can make you no return.”
 
@@ -713,21 +699,22 @@ Plivio, greatly perplexed, was framing an answer but Mersilva perceiving by his 
 [87]
 
 ---
+
 ## CHAP. IX.
 
->The king refuses to match his daughter to Medor.—Florina is sent from court.— Medor resolves to travel.—In his passage is forced by a storm into a port in Africa; where he takes up his residence—Resolves to visit the court of Zanfara.—In his journey he finds a solitary habitation where he takes up his residence, and disguises himself like an hermit.
+> The king refuses to match his daughter to Medor.—Florina is sent from court.— Medor resolves to travel.—In his passage is forced by a storm into a port in Africa; where he takes up his residence—Resolves to visit the court of Zanfara.—In his journey he finds a solitary habitation where he takes up his residence, and disguises himself like an hermit.
 
 Medor, as you have before heard, having acquired the love of the princess Florina, and grounded his affections in her memory, was frustrated in the consummation of his bliss by Agenor, her father, who positively denied to march his daughter with him, on account of an ancient antipathy between the prince’s
 [88]
 father and himself. Perceiving he could not obtain his desire, nor so much as confer with the princess, as her father had commanded her to retire into the country, he resolved to travel, hoping that the influence of time would erase out the kings indignation; and therefore determined to take a voyage to the isle of Madagascar, to pay his duty, and offer his service, to his uncle, the duke of Alphonso: before he departed, lest Florina might think him guilty of ingratitude, he sent her the following letter:
 
->>“Madam,
+>> “Madam,
 
->“Destiny having resolved to metamorphosed our pleasures into psinveness, hath doubtless instigated your royal father to exercize his invective malice against our innocency; therefore, I am forced to depart,
+> “Destiny having resolved to metamorphosed our pleasures into psinveness, hath doubtless instigated your royal father to exercize his invective malice against our innocency; therefore, I am forced to depart,
 [89]
 > and to leave behind me that transcendent pledge of my affection; live I cannot but in torment, being deprived of the sight of you.—But, Madam, in what desolate place forever I find a residence, my contemplations shall dwell upon the idea of your beauty, and my mind ruminate upon your divine perfections; therefore, be not dismayed, for the gods who have made this decree, may in time revoke their sentence.— Committing you to the power of the divine protection, I remain your constant servant
 
->>>MEDOR.
+>>> MEDOR.
 
 
 This letter he delivered to an intimate friend to convey to the princess, and without waiting for an answer, finding a ship ready, he embarked for Madagascar. In the passage they were overtaken by
@@ -741,18 +728,18 @@ world, and devoted his soul to the only enjoyment of celestial felicities.—The
 
 ## CHAP. X.
 
->Thalmo sues in vain to gain the affections of Athelia.—He receives a challenge from Albion, a Zanfarian prince, and promises to meet him.—Instead of meeting with the challenger, he is beset by a gang of ruffians placed there on purpose to destroy him,—But is timely relieved by Plivio.
+> Thalmo sues in vain to gain the affections of Athelia.—He receives a challenge from Albion, a Zanfarian prince, and promises to meet him.—Instead of meeting with the challenger, he is beset by a gang of ruffians placed there on purpose to destroy him,—But is timely relieved by Plivio.
 
 Thalmo finding that the fair Athelia always devoted to cruelty, and concluding within himself, that she triumphed over his misfortunes, seeing her in the next arbor, after a small compliment, he addressed himself to her in these few words:
 [93]
 
->>“Madam,
+>> “Madam,
 
->It is my misfortune to love unpitied, charmed with that excellent beauty which you posses, I am come to learn whether I shall be happy or miserable.”
+> It is my misfortune to love unpitied, charmed with that excellent beauty which you posses, I am come to learn whether I shall be happy or miserable.”
 
 Athelia surprised to find Thalmo near her when she least expected him, yet shadowing her affection under the protection of nicety, sharply replied,
 
-“Thalmo, I still am what I professed; —and if you approve of it, as you came unlocked for, so when you please you may depart.”
+“Thalmo, I still am what I professed;—and if you approve of it, as you came unlocked for, so when you please you may depart.”
 
 “Why, Madam, replied the prince, so harsh a sentence? Should I, who have been ever faithful to you, now become inconstant?
 [94]
@@ -769,22 +756,22 @@ the court; upon which he immediately posted thither, where he no sooner arrived,
 
 <p align="center">ALBION to THALMO.</p>
 
->>Sir,
+>> Sir,
 
->“Being timely acquainted with your aspiring affections for the princess Athelia, whom the world knows none can claim to so high a favour as myself, I have sent you this defiance, to meet me singly under the castle wall after dinner, there to dispute my right with thy sword, where I will severely chastise thy insolence in crossing my affections, and make thee sensible that thou hast insulted thy superior.
+> “Being timely acquainted with your aspiring affections for the princess Athelia, whom the world knows none can claim to so high a favour as myself, I have sent you this defiance, to meet me singly under the castle wall after dinner, there to dispute my right with thy sword, where I will severely chastise thy insolence in crossing my affections, and make thee sensible that thou hast insulted thy superior.
 
->>>ALBION.
+>>> ALBION.
 
 [96]
 Thalmo was greatly surprised at this unexpected challenge, and disdaining to be outdone by a Zanfarian prince, by his own page returned him the following answer
 
->>“Sir,
+>> “Sir,
 
->“Understanding by the letter I have just received, that for the duty I pay to the princess Athelia, you have undertaken to correct me for that which you yourself cannot avoid; I must inform you, sir, my nature is such, that I desire to live no longer, when once deprived the sight of the fair yet cruel Athelia; at the time and place appointed, my sword shall demonstrate that my affection is such, that I will live and die in her service; and that neither thy valour, nor
+> “Understanding by the letter I have just received, that for the duty I pay to the princess Athelia, you have undertaken to correct me for that which you yourself cannot avoid; I must inform you, sir, my nature is such, that I desire to live no longer, when once deprived the sight of the fair yet cruel Athelia; at the time and place appointed, my sword shall demonstrate that my affection is such, that I will live and die in her service; and that neither thy valour, nor
 [97]
->the fear of death, shall tear her idea from my memory,
+> the fear of death, shall tear her idea from my memory,
 
->>>THALMO.”
+>>> THALMO.”
 
 As soon as the messenger was dispatched, he hasted to his apartment, in order to prepare for the reception of this unexpected rival:——the time being come, Thalmo, according to his promise, failed not to present himself, where, instead of meeting his challenger, he was treacherously encountered by a desperate gang of ruffians, placed in ambuscade to murder him.—Seeing them approach, he immediately put himself in a posture of defense to receive their fury; and dealt such blows among them, that at first they were forced to retreat: after reassuming their strength, they attacked him a second time, and Thalmo, not able to withstand their
 [98]
@@ -799,37 +786,35 @@ to a skillful surgeon; and on being informed that there was none mortal, he post
 
 ## CHAP. XI.
 
->Plivio acquaints Athelia of Thalmo’s misfortune.—At this dreadful news the princess avows her love for him.—She fends to Thalmo by his cousin—and afterwards visits him at his apartments.>
+> Plivio acquaints Athelia of Thalmo’s misfortune.—At this dreadful news the princess avows her love for him.—She fends to Thalmo by his cousin—and afterwards visits him at his apartments. 
 
 PLIVIO was no sooner arrived at the palace than he hasted to the princess’s apartments; and with great concern related to her the dangers that Thalmo had undergone, and his present, unhappy situation.—Athelia, could now no longer conceal her passion, and continued weeping for his misery, being sensible that the love he bore her, had induced him to so hazardous an enterprise.—
 [101]
 
 However, she resolved, by his friend Plivio, to fend him a few lines, as a manifestation of her affection, which were to this effect:
 
+>> “Dear Prince,
 
->>“Dear Prince,
+> “Thy misfortunes have obliged me to put pen to paper; and so overwhelmed my senses with grief, that there is not a word herein contained, but hath been washed with a tear; therefore, as Athelia is the original cause of thy misfortunes, I will, to the utmost of my power, recompense thy constant love; recommending my sorrows to your favourable censure, I remain for ever your’s,
 
->“Thy misfortunes have obliged me to put pen to paper; and so overwhelmed my senses with grief, that there is not a word herein contained, but hath been washed with a tear; therefore, as Athelia is the original cause of thy misfortunes, I will, to the utmost of my power, recompense thy constant love; recommending my sorrows to your favourable censure, I remain for ever your’s,
-
->>>ATHELIA.”
-
+>>> ATHELIA.”
 
 Thalmo soon received the letter from Plivio, and found, by experience,
 [102]
 that the distemper of the mind, far exceeds that of the body; for it wrought such miracles upon his cure, that, in a few days, he was perfectly recovered; and contemplating upon the favourable epistle his dear Athelia had sent him, he returned her this answer:
 
->>“Madam
+>> “Madam
 
->“The honour you were pleased to bestow on your unworthy servant, has wrought such wonders upon my distemper, that no physician but yourself could have effected ; the virtue thereof, being so well applied, that the powerful charm has had its full operation: therefore, madam, on the idea of your divine perfections, I will for ever six my memory; never forgetting my kind persever, but continually offer up my thanks for the receipt of so great a blessing, and unfeignedly
+> “The honour you were pleased to bestow on your unworthy servant, has wrought such wonders upon my distemper, that no physician but yourself could have effected ; the virtue thereof, being so well applied, that the powerful charm has had its full operation: therefore, madam, on the idea of your divine perfections, I will for ever six my memory; never forgetting my kind persever, but continually offer up my thanks for the receipt of so great a blessing, and unfeignedly
 [103]
->remain, your’s, now and for ever,
+> remain, your’s, now and for ever,
 
->>>THAMLO.”
+>>> THAMLO.”
 
-The princess was much pleased with the news of Thalmo’s recovery, yet could not be satisfied with the copy, without seeing the original;—and finding an opportunity when the king and queen were absent, taking Levina with her, she went to the lodge where Thalmo resided; and being conducted to his apartment, she beheld him walking alone, with his arm bound up in a handkerchief. —At the sight of Athelia he was transported beyond measure, and forthwith embraced her, and kissed her hands:— their eyes attracted each other’s sight, and like ambassadors of love, they Seemed to ratify a mutual alliance.
+The princess was much pleased with the news of Thalmo’s recovery, yet could not be satisfied with the copy, without seeing the original;—and finding an opportunity when the king and queen were absent, taking Levina with her, she went to the lodge where Thalmo resided; and being conducted to his apartment, she beheld him walking alone, with his arm bound up in a handkerchief. —At the sight of Athelia he was transported beyond measure, and forthwith embraced her, and kissed her hands:—their eyes attracted each other’s sight, and like ambassadors of love, they Seemed to ratify a mutual alliance.
 [104]
 
-Thalmo, said the princess, you may well wonder at my unexpected arrival, and yet you may imagine that the news of your misfortune brought me hither;——. however, not to keep you any longer in suspense, I am now come, in some measure, to retaliate your affection, though, before I thought it not convenient to take it so soon in consideration  but since the gods have so decreed it, there is no resisting the divine powers; therefore, you may place your happiness where your kind stars direct you.”
+Thalmo, said the princess, you may well wonder at my unexpected arrival, and yet you may imagine that the news of your misfortune brought me hither;—. however, not to keep you any longer in suspense, I am now come, in some measure, to retaliate your affection, though, before I thought it not convenient to take it so soon in consideration  but since the gods have so decreed it, there is no resisting the divine powers; therefore, you may place your happiness where your kind stars direct you.”
 
 The prince perceived, by the fervency of her words, that she uttered no more than love induced her; and taking her by the hand, returned her this obliging answer:
 [105]
@@ -839,17 +824,18 @@ The prince perceived, by the fervency of her words, that she uttered no more tha
 “Your words have so much divinity in themselves, that they carry power with them to whom they are directed, and are a high cordial to afflicted spirits; the operation hath caused my breast to triumph over my sickness, which, I believed, would not only have conquered my mind, but also cut off the thread of my life.—But whither wander my sense, that I forget myself so much, as not to gratify your love with reciprocal affection?—but pardon me, dear madam, and attribute the defects of my reason to the distemper of my weakness;—for I resolve, both now and ever, to honour and adore you as the eternal goddess of my prosperity; and esteem you as the sacred image of my felicity.”
 [106]
 
-To which Athelia answered, “Where there is no offence committed, of consequence the excuse ceaseth :—thy actions being cleared from imputation, be not timoronu, for thy pardon is sealed;—therefore advance in love;—proceed in amity, and I will correspond in friendship:—for, the approbation of which, here, take my heart and hand, as the stedfast seal of immortal constancy; vowing before the imperial throne of heaven to take only Thalmo for my lord and husband
+To which Athelia answered, “Where there is no offence committed, of consequence the excuse ceaseth :—thy actions being cleared from imputation, be not timoronu, for thy pardon is sealed;—therefore advance in love;—proceed in amity, and I will correspond in friendship:—for, the approbation of which, here, take my heart and hand, as the stedfast seal of immortal constancy; vowing before the imperial throne of heaven to take only Thalmo for my lord and husband."
 
-With amorous ceremonies they firmly contracted themselves;—and in such an affectionate manner, that neither the frowns of fortune, the treachery of time, or the flattery of insinuation, could check their friendship, or once daunt their immoveable fidelity. Having now brought this
+With amorous ceremonies they firmly contracted themselves;—and in such an affectionate manner, that neither the frowns of fortune, the treachery of time, or the flattery of insinuation, could check their friendship, or once daunt their immoveable fidelity. Having now brought 
 [107]
 this couple to a sacred union, we will for a while leave them, and discourse of the strange accidents that befell the princess Florina.
 [108]
 
 ---
+
 ## CHAP. XII.
 
->Florina is ordered to the court by her father —She refuses to comply.—He sends a guard to force her, and she escapes to the seaside, where she is protected by an aged fisherman.—They are taken prisoners by a Turkish Xebeque.—Florina is detained, and the rest set at liberty.
+> Florina is ordered to the court by her father—She refuses to comply.—He sends a guard to force her, and she escapes to the seaside, where she is protected by an aged fisherman.—They are taken prisoners by a Turkish Xebeque.—Florina is detained, and the rest set at liberty.
 
 Florina, after a long banishment, was by the king her father, commanded to repair immediately to the court;—and being apprehensive it would hinder her from paying that respect due to the prince her lover, she positively refused to comply.—The king being in-formed of her obstinacy, immediately dispatched a messenger to force her to a
 [109]
@@ -858,21 +844,17 @@ compliance;—of this she was timely acquainted, and consulted with herself how 
 Florina being invited to see the shepherds lead their flocks to the fragrant fields, in the close of the evening, when the golden fun was declining, as she was returning home in company with a shepardess, they were unexpectedly met by a swain, who brought the following message to Florina.
 [110]
 
->>“Madam,
+>> “Madam,
 
->“I am sent on purpose to beg that you instantly hide yourself in some secret grove;—their is just arrived at my father’s cottage, four or five ruffians in search of you, who have desperately wounded my father for concealing you;—-if you value your own preservation, make no delay; and since the laws of nature and humanity I oblige us to assist all in distress, I will, if you think proper, conduct you with safety through the woods, where you may remain with most assured privacy,
-
-Florina, surprised at her father’s cruelty, yet pleased with the shepherd’s civility, and pondering with herself what course to take in this exigency, at last determined to take the youth’s advice.—The shepherdess
+> I am sent on purpose to beg that you instantly hide yourself in some secret grove;—their is just arrived at my father’s cottage, four or five ruffians in search of you, who have desperately wounded my father for concealing you;—if you value your own preservation, make no delay; and since the laws of nature and humanity I oblige us to assist all in distress, I will, if you think proper, conduct you with safety through the woods, where you may remain with most assured privacy, Florina, surprised at her father’s cruelty, yet pleased with the shepherd’s civility, and pondering with herself what course to take in this exigency, at last determined to take the youth’s advice.—The shepherdess
 [111]
-resolving to bear her company, they directed their course to the sea side, which in two days they attained without interruption.
+resolving to bear her company, they directed their course to the sea side, which in two days they attained without interruption."
 
 Walking upon the borders of the sea, they came to a little creek, where they saw an aged fisherman repairing his nets.—Having given him the time of the day, they asked him, if for recreation, he would take them a league on the ocean:—the fisherman demanded a recompense, to which they willingly complied, and with a pleasant breeze they put to sea.
 
-In this manner they passed away the time till night gave them a summons to return.—However, before they reached the shore, Florina informed the old man
-of her deplorable situation; and likewise begged of him, with tears in her eyes, to
+In this manner they passed away the time till night gave them a summons to return.—However, before they reached the shore, Florina informed the old man of her deplorable situation; and likewise begged of him, with tears in her eyes, to
 [112]
-lend her his assistance in her great distress; and for her safery to convey her every day
-on the sea.—The fisherman moved to compassion by her outward sorrow, and instigated by her liberality, condescended to her reasonable request.
+lend her his assistance in her great distress; and for her safery to convey her every day on the sea.—The fisherman moved to compassion by her outward sorrow, and instigated by her liberality, condescended to her reasonable request.
 
 This course they continued many days, with as much satisfaction to Florina as if she had been triumphing in her former dignity.—At last, fortune resolved to add more misery to her affliction, and caused her unexpectedly to fall within the labyrinth of a greater misfortune.
 
@@ -882,26 +864,25 @@ they were commanded to come on board, which greatly alarmed their little crew, e
 
 The captain of the ship admiring the beauty of Florina, by her modest aspect, conceived she was a person of noble extraction; therefore he discharged therest, and retained her only, whom he commanded
 [114]
-to be entertained with all the respect and favour the nature of her situation would allow; and the better to effect his orders, he fosook his cabin, and lodged her in it, charging his servants to attend, her with as great diligence as on himself; so that she might perceive, as they entertained her with civility, so they likewise honoured and respected her, by never once attempting to violate her chastity, which , she esteemed more precious than her life.
+to be entertained with all the respect and favour the nature of her situation would allow; and the better to effect his orders, he fosook his cabin, and lodged her in it, charging his servants to attend, her with as great diligence as on himself; so that she might perceive, as they entertained her with civility, so they likewise honoured and respected her, by never once attempting to violate her chastity, which, she esteemed more precious than her life.
 
 Notwithstanding this unexpected indulgence, she could not forget her lost Medor :—she wept, as if his absent idea had a regal prerogative to create her tears, and lamented the unfortunate accident that had lately befallen her.—In her contemplations she ruminated upon his absence, and her own present misery,frequently bursting into public exclamations.
 [115]
 
-The captain perceiving her distress, used his best endeavors to sooth her sorrows; telling her at the same time, that no proceedings should be exercized against her, and that such respect should paid her, as her truth and constancy deserved; she having previously made the captain acquainted with her whole history. Leaving the princess in the captain’s possession,
-making the best of his way for Constantinople, we shall return to Plivio and Mersilva,
+The captain perceiving her distress, used his best endeavors to sooth her sorrows; telling her at the same time, that no proceedings should be exercized against her, and that such respect should paid her, as her truth and constancy deserved; she having previously made the captain acquainted with her whole history. Leaving the princess in the captain’s possession, making the best of his way for Constantinople, we shall return to Plivio and Mersilva.
 [116]
 
 ---
+
 ## CHAP. XIII.
 
-*Plivio being acquainted with Thalmos success with the princess Athelia, resolves to
-renew his suit.—He goes to the court for that purpose, and hearing that Mersilca, with the queen and her attendants, were taking the diversion of hunting, he determines to join the chase.—By some accident Mersilva loses sight of the company, and is overtaken by a young lord, named Blithion, one of the party; he attempts her virtue, but is unexpectedly defeated in hisbrutal attempt by the arrival of Plivio, from whom he meets his death.*
+> Plivio being acquainted with Thalmos success with the princess Athelia, resolves to renew his suit.—He goes to the court for that purpose, and hearing that Mersilca, with the queen and her attendants, were taking the diversion of hunting, he determines to join the chase.—By some accident Mersilva loses sight of the company, and is overtaken by a young lord, named Blithion, one of the party; he attempts her virtue, but is unexpectedly defeated in hisbrutal attempt by the arrival of Plivio, from whom he meets his death. 
 
-PLIVIO being informed of his cousin Thalmo’s proceedings, and of the success he had met with in his amours, began to conceive some hope that by the
+Plivio being informed of his cousin Thalmo’s proceedings, and of the success he had met with in his amours, began to conceive some hope that by the
 [117]
 intercession of the princess Athelia, he should obtain his beloved Mersilva.—Upon which he hasted to the court in order to renew his suit; and on being informed that the princess, with the queen, Athelia, and their attendant lords and ladies were hunting in the forest, he immediately repaired thither in order to join the royal company; being fond of the diversion, though, at this time, particularly so, that he might behold the beauty of the fair Mersilva.
 
-In the midst of the forest, it happened, that the stag escaped from their sight, which caused the company to take different routs in order to find him out, and to renew the chase.-—-Among the rest, there was a young lord named Blithion, that had long conceived a passion for the princess Mersilva, but could never get
+In the midst of the forest, it happened, that the stag escaped from their sight, which caused the company to take different routs in order to find him out, and to renew the chase.—Among the rest, there was a young lord named Blithion, that had long conceived a passion for the princess Mersilva, but could never get
 [118]
 an opportunity of disclosing his affection.
 
@@ -909,11 +890,11 @@ It so happened, that the princess lost sight of the company, and ranging discont
 
 “Madam,
 
-“I have a long time laboured under many perplexities which your divine beauty has been the cause of;—and since fortune is now so favourable to me, I beseech you, let us enjoy the present opportunity; therefore, madam, stand not so much
+I have a long time laboured under many perplexities which your divine beauty has been the cause of;—and since fortune is now so favourable to me, I beseech you, let us enjoy the present opportunity; therefore, madam, stand not so much
 [119]
 on your punctilios of disdain, but consider with yourself where you now are;—the time,—the place.—At present you are destitute of assistance, and your life and honour are at my disposal;—I will not be denied with refusals, nor deluded by delays;—for in spite of fortune, I must satisfy my love, and reap the enjoyment of my long desired expectation.
 
-—To prevent the consequences that may ensue readily consent, otherwise you will oblige me, after enjoyment, to use you with such barbarity as my nature would scarce offer to your lovely sex, much less to you, madam, whom I have ever adored.
+To prevent the consequences that may ensue readily consent, otherwise you will oblige me, after enjoyment, to use you with such barbarity as my nature would scarce offer to your lovely sex, much less to you, madam, whom I have ever adored.
 
 Mersilva, astonished at his brutal behaviour, began to weep,—and sighing as if her breast would rend asunder with insupportable grief, called on the divine powers
 [120]
@@ -921,7 +902,7 @@ to preserve her innocence, and to shelter her from the rapine of this cruel lord
 
 “If, Sir, you had ever been trained up in the school of virtue, you would have tempered your words with discretion, and not presumed to offend a chaste lady’s ear with such obsdenity; and since your tongue has uttered that which cannot be recalled, know, thou tyrant, that I despise thy threats;—I am myself the guardian of my honour, and will protect it with my life; —therefore, with speed depart, and bid adieu to your barbarous designs.
 
-“ Madam,” said he, “it is in vain to resist where there is none to rescue you; yet
+“Madam,” said he, “it is in vain to resist where there is none to rescue you; yet
 [121]
 were Hercules himself present, he should not debar me from my purpose.”
 
@@ -934,11 +915,11 @@ came unexpectedly to her assistance; which the princess perceiving, cried out, �
 Plivio perceiving it to be his dear Mersilva, enflamed with revenge, he stew to the spoiler, and plunged his sword into his breast; where, receiving his reward, he fell to the ground, and instantly expired.
 [123]
 
-
 ---
+
 ## CHAP. XIV.
 
->The princess Mersilva recovers from the fight, and, with Plivio, immediately join the company, to whom they relate their adventure.—The queen informs the king of Plivio’s generous behaviour to the princess.—The king rewards him with a command in the army.—He renews his suit to the princess, but meets with little encouragement.
+> The princess Mersilva recovers from the fight, and, with Plivio, immediately join the company, to whom they relate their adventure.—The queen informs the king of Plivio’s generous behaviour to the princess.—The king rewards him with a command in the army.—He renews his suit to the princess, but meets with little encouragement.
 
 The princess, after returning thanks to her deliverer, related to him the whole proceedings; which, when he understood, he thanked the stars for making him the happy instrument of her delivery.—Mersilva being pretty well recovered, he again mounted her on her milk-white steed, resolving to find out the queen;—to whose presence they were no sooner arrived, than he gave a relation of this adventure, which Mersilva verified
 [124]
@@ -961,7 +942,7 @@ The prince was overjoyed to see her in so facetious a humour, and resolved to co
 
 “Sir,
 
-“I little thought your proceedings would have been so peremptory !— for had I but once judged your actions would have been of so large an extent, my absence should have given you an utter denial.”
+I little thought your proceedings would have been so peremptory !— for had I but once judged your actions would have been of so large an extent, my absence should have given you an utter denial.”
 
 The prince seeing her patience a little moved, thought to balance his offence, with an humble answer; and replied,
 
@@ -980,16 +961,17 @@ so far, and that the subject whereon she had grounded her anger was so small, sh
 [130]
 
 ---
+
 ## CHAP. XV.
 
->The princess returns to Plivio—Having obtained sufficient proofs of his constancy and affection, she acknowledges her passion for him, and meets with a suitable return.
+> The princess returns to Plivio—Having obtained sufficient proofs of his constancy and affection, she acknowledges her passion for him, and meets with a suitable return.
 
-PLIVIO was greatly astonished at her ungenerous treatment, yet determined to wait for her return;—and taking a book in his hand, he sat himself down to read, in order to divert his melancholy.—In a short time, however, the princess returned, and pretending astonishment to see him present, forgetting her former behaviour, asked him pleasantly, what wind brought him thither?—To which, with a deep sigh, he replied;——
+Plivio was greatly astonished at her ungenerous treatment, yet determined to wait for her return;—and taking a book in his hand, he sat himself down to read, in order to divert his melancholy.—In a short time, however, the princess returned, and pretending astonishment to see him present, forgetting her former behaviour, asked him pleasantly, what wind brought him thither?—To which, with a deep sigh, he replied;—
 [131]
 
 “Madam,
 
-“It is your cruelty that hath created my sorrows, and if you did not triumph over my misery, you would, with justice, pity my unhappy situation;—therefore, madam, I beseech you, be not prolix in those favours you are pleased to bestow on me, but rather let me know my destiny, whether 1 shall live your admirer, or die your martyr.”
+It is your cruelty that hath created my sorrows, and if you did not triumph over my misery, you would, with justice, pity my unhappy situation;—therefore, madam, I beseech you, be not prolix in those favours you are pleased to bestow on me, but rather let me know my destiny, whether 1 shall live your admirer, or die your martyr.”
 
 The princess observing with what fervent zeal he pleaded, instantly returned him this answer:
 
@@ -997,10 +979,9 @@ The princess observing with what fervent zeal he pleaded, instantly returned him
 [132]
 hitherto refrained discovering my affections, impute it not to the defect of my benevolence, but rather to the zeal which I had to make proof of your constancy.—But now I call the gods to witness, that, from my heart, I adore none but Plivio, the morning star of my felicity.”
 
-“The prince was now completely happy, and thought himself over-paid for all his former anxieties.--“Divine Mersilva,” said he, “ if my tongue could express, or my mind discover the never-dying fidelity which is imprinted in my breast, I should acknowledge myself bound to nature, and indebted to art, for enduing me with so great a felicity.—Yet, I beseech you to believe, that I have grounded my constancy upon so sure a foundation, and my fidelity upon so firm a
+The prince was now completely happy, and thought himself over-paid for all his former anxieties.-“Divine Mersilva,” said he, "if my tongue could express, or my mind discover the never-dying fidelity which is imprinted in my breast, I should acknowledge myself bound to nature, and indebted to art, for enduing me with so great a felicity.—Yet, I beseech you to believe, that I have grounded my constancy upon so sure a foundation, and my fidelity upon so firm a
 [133]
-a resolution, that neither the alluring events of prosperity, nor the terrifying threats of misfortune, can either extenuate by flattering shadows, or extinguish by frowning substance; let the memory of our tender affections, break the waves of discontent; and let the novelty of our friendship, triumph over insinuating disconsolation;—the gods seem to sympathize
-our amity, and Fortune herself delights to crown our friendship.—Despair is the path to destruction;—therefore, cheer up your spirits, and let a pleasant countenance gild the face of day; and to retaliate your affection, take my heart and hand, as a pledge of my immortal constancy.
+a resolution, that neither the alluring events of prosperity, nor the terrifying threats of misfortune, can either extenuate by flattering shadows, or extinguish by frowning substance; let the memory of our tender affections, break the waves of discontent; and let the novelty of our friendship, triumph over insinuating disconsolation;—the gods seem to sympathize our amity, and Fortune herself delights to crown our friendship.—Despair is the path to destruction;—therefore, cheer up your spirits, and let a pleasant countenance gild the face of day; and to retaliate your affection, take my heart and hand, as a pledge of my immortal constancy."
 
 Mersilva was well-pleased with the return of his affection, and comforted herself with the assurance of his fidelity.—
 [134]
@@ -1012,17 +993,18 @@ Having passed the day in amorous parly, and given a mutual exchange of vows, Pli
 
 “Dear Mersilva
 
-“I must now be constrained sot leave you to your contemplations; but I will immediately repair to my closet, andthere contrive the means of establishing our future tranquillity:—therefore, till I am again made happy by enjoying your company, I take my sorrowful leave.
+I must now be constrained sot leave you to your contemplations; but I will immediately repair to my closet, andthere contrive the means of establishing our future tranquillity:—therefore, till I am again made happy by enjoying your company, I take my sorrowful leave." 
 [136]
 
 ---
+
 ## CHAP. XVI.
 
->Plivio informs his cousin Thalmo of his success with the princess Mersilva.—Thalmo mentions his desire to return home.—Plivio consents to go with him.—They discover to the ladies their birth and parentage, with their real names, and their intentions of leaving the court of Zanfara.—The ladies resolve to join their company.—They depart the next night without molestation
+> Plivio informs his cousin Thalmo of his success with the princess Mersilva.—Thalmo mentions his desire to return home.—Plivio consents to go with him.—They discover to the ladies their birth and parentage, with their real names, and their intentions of leaving the court of Zanfara.—The ladies resolve to join their company.—They depart the next night without molestation
 
-PLIVIO having now attained the love of Mersilva, he went immediately to his cousin Thalmo, to whom he related the event of his proceedings, and the prosperous conclusion of his amorous enterprize.-——Thalmo was well pleased
+Plivio having now attained the love of Mersilva, he went immediately to his cousin Thalmo, to whom he related the event of his proceedings, and the prosperous conclusion of his amorous enterprize.—Thalmo was well pleased
 [137]
-pleased with his success, and asked him, “if his lady was contented to leave the court, and travel with him.”—He told him he had mentioned it to her, and her reply was very effectual that she would accompany me as far as confines of the world would permit, or I desire.”
+pleased with his success, and asked him, “If his lady was contented to leave the court, and travel with him.”—He told him he had mentioned it to her, and her reply was very effectual that she would accompany me as far as confines of the world would permit, or I desire.”
 
 “Why then,” replied Thalmo, “the princess Athelia and Mersilva, sympathize in one agreement; and hath vowed no more than Athelia desires to perform—To reside here is but folly; and as we have long been absent from our native country, it is now time to think of returning; therefore, let us hasten our departure, lest our loves be discovered, and our hopes crossed by envy, in the blossoms of their maturity.—To avoid future consequences, let us, in private, convey
 [138]
@@ -1032,9 +1014,9 @@ Plivio listened attentively to his cousin’s advice, and approved of the design
 [139]
 affection, and being desirous to leave the court of Blithion as soon as possible, they agreed to set out the next night, between twelve and one, from the outer gate of the palace, and there to wait the arrival of the ladies; which warning, though short, seemed agreeable to all parties.
 
-The hour being come, they failed not to be in readiness to receive the ladies, and waited their arrival with the utmost impatience.—The ladies, on their part, came at the time and place, appointed, where they were received with open arms; no words could they utter, because their tongues, by the power of love, were devoted to silence.—-Just at their arrival, an alarm was given in the palace, which so amazed them, that they knew
+The hour being come, they failed not to be in readiness to receive the ladies, and waited their arrival with the utmost impatience.—The ladies, on their part, came at the time and place, appointed, where they were received with open arms; no words could they utter, because their tongues, by the power of love, were devoted to silence.—Just at their arrival, an alarm was given in the palace, which so amazed them, that they knew
 [140]
-not how to save themselves, nor where to convey the ladies;—however, as they had gone so far, they were determined to escape, or perish in their enterprize.—The alarm increasing, and Thalmeno finding their affairs desperate, and perceiving that he must either lose his own life, or that of his dear Athelia’s, which he esteemed far more precious, reassuming his courage, said to Plivio, ‘This is no time for dallying, therefore, with courage, lead forth your lady, and if any presume to stop your passage, instantly make way with your sword, but do not shed unnecessary blood;—for you, fair ladies, fear nothing, your virtues are a sufficient bulwark for your preservation.”
+not how to save themselves, nor where to convey the ladies;—however, as they had gone so far, they were determined to escape, or perish in their enterprize.—The alarm increasing, and Thalmeno finding their affairs desperate, and perceiving that he must either lose his own life, or that of his dear Athelia’s, which he esteemed far more precious, reassuming his courage, said to Plivio, "This is no time for dallying, therefore, with courage, lead forth your lady, and if any presume to stop your passage, instantly make way with your sword, but do not shed unnecessary blood;—for you, fair ladies, fear nothing, your virtues are a sufficient bulwark for your preservation.”
 
 This said, they went hand in hand through the outer gate, without interruption; where they found their pages, each with
 [141]
@@ -1042,9 +1024,10 @@ with a horse, ready to attend them. After rewarding them for their fidelity, and
 [142]
 
 ---
+
 ## CHAP. XVII.
 
->Messengers are dispatched in search of the ladies, who are supposed to be taken away by Thalmeno and Palmos, but without effect—Travelling through a forest, they find a cottage, where they alight for refreshment, and find it inhabited by prince Medor, mentioned in the former part of this book—Thalmeno acquaints him of Florina’s retirement, and offers to conduct him to her, which he readily accepts of.
+> Messengers are dispatched in search of the ladies, who are supposed to be taken away by Thalmeno and Palmos, but without effect—Travelling through a forest, they find a cottage, where they alight for refreshment, and find it inhabited by prince Medor, mentioned in the former part of this book—Thalmeno acquaints him of Florina’s retirement, and offers to conduct him to her, which he readily accepts of.
 
 Athelia, and her companion, the princess Mersilva, not appearing the next day as usual, caused a general alarm throughout the palace—their apartments were starched—their intimates and acquaintances questioned—and a general hue and cry was spread
 [143]
@@ -1055,19 +1038,18 @@ By this time the adventurers were got many leagues from Zanfara; and no
 longer under any apprehensions of being pursued:—as they were riding by a forest’s fide, they saw a pleasant cottage, which both Athelia and Mersilva were desirous to enter, and requested their princes to alight, and accompany them; who chearfully complied, being glad of the opportunity, of getting them refreshment,
 
 On entering the forest, they directed their way to the cottage, and were no sooner entered, than they beheld a young man. Seemingly overcome with grief, numbering on a green bank, with a book, pen, ink and paper close by him. At the sight of these unexpected visitors, he raised himself from the bank, whereon he lay, and thus addressed himself to them:
-
 [145]
 
 “Gentle Strangers,
 
-“Admire not my sorrows, nor wonder at my disconsolateness, as fortune hath invested me with this miserable calamity;— but to extirpate his tyranny, and to triumph over his usurpation, I have solitarily taken myself to this grove, to live, though not so well contented as I could wish:—my rural cottage affords no dainties, but poverty  yet, such as it is, if you please to accept it, I shall think myself honoured —and in whatever it comes short of your expectation, I will supply in freeness of service and thanks.”
+Admire not my sorrows, nor wonder at my disconsolateness, as fortune hath invested me with this miserable calamity;— but to extirpate his tyranny, and to triumph over his usurpation, I have solitarily taken myself to this grove, to live, though not so well contented as I could wish:—my rural cottage affords no dainties, but poverty  yet, such as it is, if you please to accept it, I shall think myself honoured —and in whatever it comes short of your expectation, I will supply in freeness of service and thanks.”
 
 The ladies perceiving his good humour, and the nature of his kind offers, thought themselves far indebted to his bounty and Palmos returned him this friendly answer :
 [146]
 
 “Sir,
 
-“The friendship which in our travels you are pleased to afford us, are of that extent, that we absolutely confess ourselves so much your debtor, and we must own our weakness to be such, that we cannot repay you with a just recompence for your unmerited favours; however, we return you our hearty thanks for your extraordinary humanity, assuring you, at the fame time, that if ever any favourable subject prsents itself, wherein we can retaliate your civility, you will find us so willing that the effects thereof shall not tax us with ingratitude.”
+The friendship which in our travels you are pleased to afford us, are of that extent, that we absolutely confess ourselves so much your debtor, and we must own our weakness to be such, that we cannot repay you with a just recompence for your unmerited favours; however, we return you our hearty thanks for your extraordinary humanity, assuring you, at the fame time, that if ever any favourable subject prsents itself, wherein we can retaliate your civility, you will find us so willing that the effects thereof shall not tax us with ingratitude.”
 
 He had no sooner finished his speech, than the stranger took the ladies by the hand, and requested them with their companions
 [147]
@@ -1075,7 +1057,7 @@ to enter another apartment, where he presented them with such refreshment, as hi
 [148]
 while his guests continued with him, he withdrew to a private part of the garden, that his tears might not disturb the happineSs which they Ssemed to enjoy.
 
-Athelia perceiving him at a distance, ruminating on his unhappy lot, began to surmise that he was in love with some lady, whose cruelty was the cause of his suffering; and pondering on his grief by her own sorrow, bewailed his misfortune, and compassionated his affliction.—They plainly perceived that their arrival had renewed his grief, and lamented to bring that afresh to his memory which proved his torment.—At length the ladies returned to the cottage, and in the way found a paper that contained the following words :
+Athelia perceiving him at a distance, ruminating on his unhappy lot, began to surmise that he was in love with some lady, whose cruelty was the cause of his suffering; and pondering on his grief by her own sorrow, bewailed his misfortune, and compassionated his affliction.—They plainly perceived that their arrival had renewed his grief, and lamented to bring that afresh to his memory which proved his torment.—At length the ladies returned to the cottage, and in the way found a paper that contained the following words:
 
 “The idea of Florina shall never depart my memory.”
 [149]
@@ -1084,15 +1066,14 @@ After perusing the paper, they immediately thought Florina to be the object of h
 
 “Sir,
 
-“I beseech you to satisfy me whether you are acquainted with the princess Florina, daughter to the king of Numidia, and whether you know prince Medor, son to the king of Biafara.”
+I beseech you to satisfy me whether you are acquainted with the princess Florina, daughter to the king of Numidia, and whether you know prince Medor, son to the king of Biafara.”
 [150]
 
 He was greatly surprized at this question, and told the prince, that he once had the happiness to be acquainted with the person he named, and was the unfortunate Medor he enquired after;—unfortunate he called himself in being so long absent from from Florina, the memory of whose-divine beauty, had, for many months, been the subject of his devotions.—He therefore begged him to ease his tormented mind, by giving him all the information he could respecting his long lost princess.
 
-Thalmeno replied, “Virtuous prince, as you have received us with such uncommon civility, I will no longer conceal from you those who are your debtors:—know, then, my name is Thalmeno, son and heir to the king of Cicilia; and this prince my cousin, son to the king of Egypt.—
+Thalmeno replied, “Virtuous prince, as you have received us with such uncommon civility, I will no longer conceal from you those who are your debtors:—know, then, my name is Thalmeno, son and heir to the king of Cicilia; and this prince my cousin, son to the king of Egypt.
 [151]
-
-Some two years since, we resolved to travel, and privately departed from my father’s court.—Directing our course to Africa, and journeying three days alone, destitute of a guide, and unskilful of the country, by chance we strayed into an unknown desart;-—but fortune, willing to intermix our bitter sorrows with some pleasures, conducted us to a lonely castle:—on our entrance we found the princess Florina, the desolate inhabitant thereof, who, having forsaken her father’s court, vowed there to remain, until the joyful return of your princely self. She relieved our wants, and made us welcome to what her habitation afforded, (without whose timely succour, we must inevitably have perished) and furnished us with means to pursue our travels.—This, sir, is all the information I can give you;—however, if you will honour us with your company, as we are
+Some two years since, we resolved to travel, and privately departed from my father’s court.—Directing our course to Africa, and journeying three days alone, destitute of a guide, and unskilful of the country, by chance we strayed into an unknown desart;—but fortune, willing to intermix our bitter sorrows with some pleasures, conducted us to a lonely castle:—on our entrance we found the princess Florina, the desolate inhabitant thereof, who, having forsaken her father’s court, vowed there to remain, until the joyful return of your princely self. She relieved our wants, and made us welcome to what her habitation afforded, (without whose timely succour, we must inevitably have perished) and furnished us with means to pursue our travels.—This, sir, is all the information I can give you;—however, if you will honour us with your company, as we are
 [152]
 are bound for Cicilia, immediately upon our arrival, we will, with chearfulness, conduct you to the place of her solitary retirement.”
 
@@ -1100,11 +1081,12 @@ The prince was overjoyed at this un-expected news, and thanking him for his inte
 [153]
 
 ---
+
 ## CHAP. XVIII.
 
->Medor conducts them to the sea side, where they meet with a ship, and sail immediately for Cicilia—In their voyage they fall in with a Turkish xebeque—and after an obstinate engagement she surrenders to them—Prince Medor is sent on hoard to take the command of her, and, to his great surprize, finds his lost Florina, a captive on board.
+> Medor conducts them to the sea side, where they meet with a ship, and sail immediately for Cicilia—In their voyage they fall in with a Turkish xebeque—and after an obstinate engagement she surrenders to them—Prince Medor is sent on hoard to take the command of her, and, to his great surprize, finds his lost Florina, a captive on board.
 
-As Medor had offered to be their I guide, they immediately prepared for their departure, and were safely conducted through the vineyards to the seaside ;—where they were no sooner arrived, but they fortunately met with a ship that
+As Medor had offered to be their I guide, they immediately prepared for their departure, and were safely conducted through the vineyards to the seaside;—where they were no sooner arrived, but they fortunately met with a ship that
 [154]
 had been forced to harbour there by tempestuous weather—glad of this unexpected opportunity, they agreed with the master for their passage, and in a few days, with a favourable wind, sailed for Cicilia.
 
@@ -1112,7 +1094,7 @@ At the entrance of the Mediterranean sea, they were becalmed in such a manner, t
 [155]
 nor their ladies received any hurt; the ladies indeed, as may easily be suspected, were much frightened, which the captain perceiving, gave them what comfort he could in their distressed situation, and advised them to be chearful; telling them, the danger was mostly over, and that by the morning, he did not doubt of being conqueror.—But, for their lovers, they behaved with undaunted courage during the whole engagement.
 
-The prize proved to be a Turkish xebeque; and as soon as her colours were struck, the captain prepared to fend an officer on board.-----------  Thalmeno offered his service, and Palmos declared he would not stay behind—however, Medor feeing his companions in contention, resolved that they should both stay on board with their ladies; for, if the
+The prize proved to be a Turkish xebeque; and as soon as her colours were struck, the captain prepared to fend an officer on board.-----------Thalmeno offered his service, and Palmos declared he would not stay behind—however, Medor feeing his companions in contention, resolved that they should both stay on board with their ladies; for, if the
 [156]
 captain was agreeable, he was ready and willing to go himself.
 
@@ -1129,10 +1111,12 @@ He was no sooner aquainted with this circumstance, but desirous to know who his 
 
 She remembered his voice, though they had been so long separated, and immediately raised herself from her bed of sorrow; and perceiving it was Medor that pronounced the welcome sentence, she put aside her veil, and, to his great surprize, discovered to him his long-lost Florina.—A second view confirmed his belief, and with open arms went and embraced her.
 [160]
+
 ---
+
 ## CHAP. XIX.
 
->The happy meeting of Medor and Florina.—The prince informs her he is hound for Cecilia, she consents to go with him—-The princess prevails on Medor to set the prize at liberty, in return for the indulgence shewn to her, which he complies with—They return on hoard his own ship, where the lady is joyfully received by his princely associates.
+> The happy meeting of Medor and Florina.—The prince informs her he is hound for Cecilia, she consents to go with him—The princess prevails on Medor to set the prize at liberty, in return for the indulgence shewn to her, which he complies with—They return on hoard his own ship, where the lady is joyfully received by his princely associates.
 
 “Dear Florina,” said he, taking her by the hand, “could I finish my days in thy embraces, or sacrifice the remainder of my life before thy divine deity, I should esteem myself most happy;—being, at last, freed from the chains of bondage, and from the fetters of despair,
 [161]
@@ -1142,7 +1126,7 @@ Florina no sooner heard these words, than with an amiable, yet sorrowful voice, 
 
 “Dear Prince,
 
-“Were I acquainted with that friendly power that hath given thee freedom, and reconducted thee to my presence, my sincere congratulation should inform you with what constancy I attended your coming, and with what sincerity I honour thy arrival:—since thy departure, my life has been a continual round of unhappiness; yet
+Were I acquainted with that friendly power that hath given thee freedom, and reconducted thee to my presence, my sincere congratulation should inform you with what constancy I attended your coming, and with what sincerity I honour thy arrival:—since thy departure, my life has been a continual round of unhappiness; yet
 [162]
 in enjoying once more thy presence, I bury the memory of all my former griefs in the grave of oblivion; invincible affection hath so captivated my spirits, that I live now only to respect you;—and, in spight of Fortune’s effects, resolve to die in the league of your desired friendship.”
 
@@ -1152,14 +1136,14 @@ as we arrive, I will most willingly solemnize our nuptials, and fix the utmost l
 
 Florina was well pleased with this fresh proof of his affection, and said, “Think not, dear prince, that having devoted myself to you, I repent me of my enterprize ;—I beseech you, on the contrary, lofs no time, but continue your course, that we may reciprocally enjoy the desired object of our immortal affections.”
 
-The prince being uneasy till he had made his princely associates acquainted with his good fortune, requested the princess to make ready for her departure, that they might pursue their voyage to Cecilia. —To Cicilia! said Florina, with astonishment,
+The prince being uneasy till he had made his princely associates acquainted with his good fortune, requested the princess to make ready for her departure, that they might pursue their voyage to Cecilia.—To Cicilia! said Florina, with astonishment,
 [162]
 which Medor observing, desired to know the occasion of that sudden surprize:—to which she replied—since first I heard you mention the name of Cicilia, my present joys hath called to my remembrance my former miseries:—having, for your sake, sequestered myself from all company, and taken up my residence in a desolate castle, there unexpectedly came two strangers from Cicilia at whose earnest request, I informed them of the reason why I had cloistered myself from the world ;—they admired my constancy;—and, in return for some small favours that I afforded them, they protested solemnly to search you out; at least, if you were to be found in the confines of Africa.”
 
 “And have you not,” replied Medor, “since heard of their adventurous proceedings?”
 [165]
 
-—No, “said Florina, “which much troubles me, as they were so commpassionate for my sorrows, and admirers of my affections.”
+"No, “said Florina, “which much troubles me, as they were so commpassionate for my sorrows, and admirers of my affections.”
 
 After making each other acquainted with their sufferings, Florina declared her resolution of accompanying him to Cicilia, or to any part of the world, rather than return to her father’s court. “Come, dear prince, said she, let us go from hence, and crown our miseries with the triumph of content—Fortune, you know, is variable, therefore let us lose no time, while an opportunity presents itself—this favour, likewise, I do request, that these staves, who are made your prisoners, may without prejudice, have permission to depart freely, in return for the care and civility shewn me whilst I was their captive.”
 [166]
@@ -1168,26 +1152,26 @@ The prince commended her for desiring the grateful return; and fending for the c
 
 On his entrance, he conveyed Florina to his cabin; and then enquired for the princes, and being conducted to them, they congratulated his safe return, and asked him what success:—to which he replied,
 [167]
-
 “Instead of a rich prize, I have met with an inestimable jewel, the value of which cannot be cast up by the whole industrious science of arithmetic!”—“No, (said Athelia) why then I suppose you have taken all the mint of Mexico, or engrossed the minerals of Peru.” Indeed, ladies, I have not, (said the prince) and yet I divinely rejoice in possessing so sacred a present.”
 
 The company was at a loss to guess what this valuable jewel could be; however Thalmeno told him, “that he supposed he had received some intelligence of the princess Florina, or seen the idea of her beautiful perfections.”—At the name of Florina, he could not help smiling, and stepping to his cabin, and stepping to his cabin, where he had left her, in a few minutes, he presented her to them:—at the first sight
 [168]
-the princes conjectured her to be his long lost princess; but not able to justify their suspicion, looking at one another, they did not care to congratulate her by the name of Florina.—On the other hand, the lady remembered their faces perfectly well, and knew them to be Thalmeno and Palmos,—which they perceiving, immediately congratulated her on the happy event that had restored her to her favourite Medor. After receiving their congratulations, the prince introduced her to the ladies in these few words :
+the princes conjectured her to be his long lost princess; but not able to justify their suspicion, looking at one another, they did not care to congratulate her by the name of Florina.—On the other hand, the lady remembered their faces perfectly well, and knew them to be Thalmeno and Palmos,—which they perceiving, immediately congratulated her on the happy event that had restored her to her favourite Medor. After receiving their congratulations, the prince introduced her to the ladies in these few words:
 
 “Fair princesses, this lady, which I now present to you, is my admired Florina, whom I honour and adore as the goddess of my felicity.”—
 
 Athelia and Mersilva hearing this, monstrated by their smiling countenances,
 [169]
-that their hearts were inwardly filled with joy and gladness, and returned him this answer:——
+that their hearts were inwardly filled with joy and gladness, and returned him this answer:
 
-“Prince Medor, we heartily congratulate you, on this unlooked-for happiness, and rejoice that Fortune hath at last smiled upon you in the happy arrival of your beloved Florina;”—whereupon they saluted her, and gave them a happy welcome.
+“Prince Medor, we heartily congratulate you, on this unlooked-for happiness, and rejoice that Fortune hath at last smiled upon you in the happy arrival of your beloved Florina;”—whereupon they saluted her, and gave them a happy welcome."
 [170]
 
 ---
+
 ## CHAP. XX.
 
->The Royal Adventurers relate the most extraordinary and interesting circumstances of their travels—are interrupted by a violent storm arising—a scene of horror and confusion, but productive of the severest trial of love and friendship.
+> The Royal Adventurers relate the most extraordinary and interesting circumstances of their travels—are interrupted by a violent storm arising—a scene of horror and confusion, but productive of the severest trial of love and friendship.
 
 Words cannot describe the complacency that sat on the countenance, or the joy that reigned in the breast of each hero and heroine at this unexpected interview — which naturally led them to reflect on their romantic excursion, and furnished a converzation at once interesting and entertaining.
 
@@ -1205,29 +1189,25 @@ Pitying the fate of the disconsolate fair, we determined, noble Medor, as errant
 passion—Though young and inexperienced, we had the resolution to withstand the allurement of its female inhabitants, and shun those impure embraces which lead to disease and infamy—The venerable matron, just before she vanished from our sight, lest her salutary counsel should not make a due impression and effectually influence our future conduct, left with us a summary of religion and morality, which we preserve as an invaluable treasure; and by which we are determined to regulate our lives and actions.
 
 Time, and along and tedious course of travel, at length brought us to the spot wherein I received my first wound from the shaft of Cupid, and fell a victim to his piercing dart. But I found, to my extreme mortification, an ineffable pain;
-
 [175]
-that the pangs of despised love, are by much more intolerable than the keenest stroke from the little god—
+that the pangs of despised love, are by much more intolerable than the keenest stroke from the little god. 
 
 To love and not be loved—no tongue can express! no heart can conceive the piteous situation, but those on whom fate has entailed the curse—At length, the concealed passion burst forth involuntary, cheared my desponding spirits, and opened a dawn of hope that I should yet be happy—time confirmed my expectation, banished every thought, and accomplished my felicity. The beauteous Athelia professed her love, and the adventurous Thalmeno was more than blessed.—We now await the consummation of our happiness, and hope shortly to share in the general joy of a respective union.
 
-Thus spake Thalmono, while the rest, but especially Florina, was all attention.
+Thus spoke Thalmono, while the rest, but especially Florina, was all attention.
 
 [176]
-
-—Palmos confirmed the narrative and remarks of his companion; observed the similarity of their situation respecting the course of their love, and fervently joined in wishing the accomplishment of their general bliss. The late captive, but now the happy Florina, then begged leave to reply; being desirous to contribute to the pleasure and entertainment of the company, and pass the time agreeably during their confinement on ship-board,
+Palmos confirmed the narrative and remarks of his companion; observed the similarity of their situation respecting the course of their love, and fervently joined in wishing the accomplishment of their general bliss. The late captive, but now the happy Florina, then begged leave to reply; being desirous to contribute to the pleasure and entertainment of the company, and pass the time agreeably during their confinement on ship-board,
 
 “Noble princes, and no less royal fair ones (continued Florina) I rejoice to find, by this favourable incident, that we have been respectively rewarded in our love, for which we have undergone the greatest anxiety of mind, as well as bodily dangers and inconveniencies—fortune seems to have been peculiarly inteterested in our behalf, and to have directed
 [177]
-our course, once so remote from each other to one point, so that our joys are concentered. We have been adventures, and fortunate; brave, and obtained the prize; opposed dangers, and are crowned with the summit of our desires. I want language to express my feelings, when under the due apprehension of falling a prey to the Turkish slaves, I was so happily delivered by my faithful Medor, who like a guardian angel, rescued me from ignominy, and changed a scene of gloom and despair, into a refulgent paradise of joy and consolation.
+our course, once so remote from each other to one point, so that our joys are concentered. We have been adventures, and fortunate; brave, and obtained the prize; opposed dangers, and are crowned with the summit of our desires. I want language to express my feelings, when under the due apprehension of falling a prey to the Turkish slaves, I was so happily delivered by my faithful Medor, who like a guardian angel, rescued me from Ignominy, and changed a scene of gloom and despair, into a refulgent paradise of joy and consolation.
 
 Whilst Florina was thus descanting on the grateful theme, the ship’s company were alarmed by a dreadful squall, winch carried away the main top mast before they had time to take in their sails. This squall was succeeded by
 [178]
 a hurricane as boisterous as was ever known to the oldest mariners on board. The hatches were now nailed down, the dead lights put up, and every preparation made to secure them from the danger of a turbulent sea, the lofty surges of which threatened immediate death. It is natural to conceive that such a scene of horror and confusion must cause our female adventurers to tremble, and not a little affect even the heroes themselves.
 
-So violent was the storm, that it struck a general terror and consternation, and nought was apprehended but immediate death. To confirm their fears, in the space of about an hour, through the violent concussion of the vessel, from the boisterous surges of a most disturbed sea, she sprung a leak, and the only probable means of safety was an incessant plying of
-
-the chain pumps. One set of men followed
+So violent was the storm, that it struck a general terror and consternation, and nought was apprehended but immediate death. To confirm their fears, in the space of about an hour, through the violent concussion of the vessel, from the boisterous surges of a most disturbed sea, she sprung a leak, and the only probable means of safety was an incessant plying of the chain pumps. One set of men followed
 [179]
 the other in a constant succession ; and so toilsome was the labour, that for the sake of relief, and strengthening each other for the indispensable duty, not a male on board was exempted from his turn. Our Adventurers, royal as they were, most chearfully acquiesced with the necessary injunction, and became an example to the crew of alacrity and resolution.
 
@@ -1239,20 +1219,20 @@ Palmos would recapitulate to his beloved Mersilva; the danger he had undergone i
 [181]
 was given in the palace: Medor, to sooth the anguish of his constant Florina, recalled to her perplexed mind, the many proofs of their miserable attachment; that love was greatly enhanced by danger and difficulties, and that future hours of dalliance might be sweetened by the present most calamituous scene.
 
-But all they could obtain from the respective objects of their desires, was a heart-felt sigh, and a look portraying at once, love and despair.—Finding all their efforts incapable of assuaging their grief and anguish: they therefore desisted from farther troubling them, and with the true spirit of heroism armed their minds for the uncertain event.—Nor was it long before the exigency of their cafe, called for the exertion of all their magnanimity.-—
+But all they could obtain from the respective objects of their desires, was a heart-felt sigh, and a look portraying at once, love and despair.—Finding all their efforts incapable of assuaging their grief and anguish: they therefore desisted from farther troubling them, and with the true spirit of heroism armed their minds for the uncertain event.—Nor was it long before the exigency of their cafe, called for the exertion of all their magnanimity.—
 
 The water encreased prodigiously in the hold;
 [182]
 notwithstanding their incessant toiling at the pumps, gave proof of the most imminent danger, and it was therefore resolved to take to the boats, and throw themselves entirely on the protection of heaven.—This being agreed to, the long-boat was first hoisted out, and some debate arising concerning precedency, the Royal Adventurers, with their drawn swords in hand, insisted, that the fair passengers should first be put on board, with v all possible decency; determined to oppose, at the hazard of their lives, any resolution that might be carried to the contrary.—But there was no occasion for the exertion or so laudable a Spirit; for the wind abating considerably, the danger was consequently less: the boat was therefore hoisted in again; and they all agreed to betake themselves to pumping. In about six hours, the face of things was reversed;
 [183]
-
 the tempest subsiding, and being succeeded by fine moderate weather: This scene, however, with respect to the royal lovers, tended to confirm a very trite maxim; that circumstances of distress and danger, are the genuine, the only genuine test of love and friendship.
 [184]
 
 ---
+
 ## CHAP. XXI
 
->Our adventurers after this scene of distress, are favoured with the continuance of a fair wind; and with a pleasant gale reached the Cicilian shore, to the mutual Joy of every party.—Druyno recognizes his lost son with paternal affection, and Thalmeno, his royal father with filial duty.
+> Our adventurers after this scene of distress, are favoured with the continuance of a fair wind; and with a pleasant gale reached the Cicilian shore, to the mutual Joy of every party.—Druyno recognizes his lost son with paternal affection, and Thalmeno, his royal father with filial duty.
 
 The billows of the boisterous main thus assuage, and the regions of Neptune having assumed a pleasing aspect; the countenance of every one on board was happily reversed from horror and despair, to joy and complacency. The adventurous lovers reflected with pleasure on their delivery from a past scene of distress, and looked forward with
 [185]
@@ -1272,7 +1252,7 @@ At length they came to an anchor, and a boat was immediately sent on board; when
 [188]
 and received him with all the loyalty due to his dignified rank, and exalted virtue.
 
-Nor was he wanting in a suitable and becoming return, but received their caresses with a most engaging air, and winning affability.—The news had by this time reached the palace bf Messina, and a splendid retinue was dispatched to effort the prince and his companions to the royal presence.-—On the approach of their darling offspring, the king and queen,, at- '' tended by a brilliant train of courtiers,, went out to meet them, and received them in-a manner becoming their dignity.
+Nor was he wanting in a suitable and becoming return, but received their caresses with a most engaging air, and winning affability.—The news had by this time reached the palace bf Messina, and a splendid retinue was dispatched to effort the prince and his companions to the royal presence.—On the approach of their darling offspring, the king and queen, attended by a brilliant train of courtiers, went out to meet them, and received them in a manner becoming their dignity.
 
 After the ceremonies and congratulations, usual on such occasions were over, they proceeded to the palace of Druyno, who having, ordered all to retire but his son
 [189]
@@ -1297,7 +1277,7 @@ The, good old king having most attentively listened to his son, with tears of jo
 
 ## CHAP. XXII.
 
->The nuptials of Thalmeno and Athelia, are magnificently solemnized, at the court of Messina, in preference of their royal companions, who are sumptuously entertained by Druyno. At length they depart for their respective kingdoms, and are made mutually happy, by the marriage union, and an entire possession of the hearts of their subjects.
+> The nuptials of Thalmeno and Athelia, are magnificently solemnized, at the court of Messina, in preference of their royal companions, who are sumptuously entertained by Druyno. At length they depart for their respective kingdoms, and are made mutually happy, by the marriage union, and an entire possession of the hearts of their subjects.
 
 Thalmeno having given the king his father, a concise, but striking detail of his adventures; and enlarged particularly on the extraordinary qualifications of the princess Athelia,
 [194]
@@ -1324,7 +1304,6 @@ dear Mersilva, embarked for Egypt, in order to advance to the palace of his fath
 
 When they had a little recovered from the toil and fatigue of their journey from the sea coast, which was very long and tedious, the prince presented the lovely
 [200]
-
 Mersilva to his royal parents; recounting to them her many rare endowments; that he had protected her virtue, and conducted her person, at the hazard of his life, and therefore solicited their approbation of his choice, and concurrence in his design of espousing her according to the rites and ceremonies of his country.
 
 The king then interrogated the lady as to her opinion concerning the request of his son; and on her blushing consent, confirmed the proposed union, and fixed the morrow for perfecting the happiness of the adventerous pair—who, impatient of awaiting the long anticipated joy, counted each hour, each minute, each moment of the tardy-gaited night, till Aurora dispelled the fable cloud, and ushered in the
