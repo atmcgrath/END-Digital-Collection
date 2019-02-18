@@ -434,7 +434,6 @@ a cloud over-veiling her in his embraces, she immediately vanished.
 
 The young princes were greatly astonished at what they had seen, and on opening the paper found the following rules contained in it:
 
-
 > 1. Build the foundation of thy faith upon purity and piety, that thy zeal be not eclipsed with the contagion of idolatry, but rather perfumed with the sweet incense of sincerity.
 
 > 2. Let devout prayers be a mediatrix between heaven and thyself, for it is the most assured step to obtain felicity.
@@ -458,7 +457,7 @@ The young princes were greatly astonished at what they had seen, and on opening 
 
 ## CHAP. IV.
 
->By the sound of music, they are drawn into a forest, where they find an aged father, seated in a fragrant bower.—He informs them, at their request, why he lives that retired life.—At their departure he gives them the necessary instructions for their journey.
+> By the sound of music, they are drawn into a forest, where they find an aged father, seated in a fragrant bower.—He informs them, at their request, why he lives that retired life.—At their departure he gives them the necessary instructions for their journey.
 
 Having perused the contents of the paper, and knowing the sacred influence thereof tended to the establishing of their celestial tranquility, they imprinted it in their memories, that it might serve for a fenced circumference, to retain them in the confines of piety; and triumphing that fortune had presented them with so sacred an instance, they joyfully departed.
 
