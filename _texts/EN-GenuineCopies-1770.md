@@ -393,18 +393,21 @@ I have you know, by your permission, a right to use the above familiar phrase. H
 
 It is an age, my charmer, since I had the honour of a note from your fair hand; and I know not what cruel destiny it is, that will deprive me of a sight of your dear person for some time longer. I must repair to Portsmouth to-morrow.—— Would to heaven your seat lay in the road to that place. But I must submit to my fate, and since I cannot have the honour of taking a personal leave of you, must beg you will accept my warmest wishes, and all possible assurance, that I will be ever
 
-Yours,
+> Yours,
 
-C———.
+>> C——
+
+---
 
 ## CARD.
 I have just received your —— ——s’s last favour. You are going to Portsmouth to-morrow, I to ——-shire. Farewell, till I see or hear from you again.
-
 [25]
+
+---
 
 ## LETTER XXII.
 
-Most lovely of women !
+Most lovely of women!
 
 I am this instant returned from Portsmouth, where I hope I have performed my duty as became a good subject and an officer; nor could I let a moment pass before I acquainted you with my arrival. I know it is possible some disagreeable consequences may arise from dispatching this to your country-feat: but true love braves all dangers. If you receive this letter safe, we have nothing to fear; but, lest it should happen otherwise, I have written in the fictitious hand.
 
