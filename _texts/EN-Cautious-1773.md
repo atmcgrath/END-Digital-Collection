@@ -1,160 +1,175 @@
+---
+layout: narrative
+title: "The cautious lover; or, the history of Lord Woburn. By a young gentleman of Oxford. In two volumes."
+author: Anonymous
+editor: Ina Chen
+rights: Public Domain
+source: UPenn Digital Collection of British and American Fiction, 1660-1830
+publication-date: 2019
+toc:
+- Title Page
+- Letter I.
+- Letter II.
+- Letter III.
+- History of Letter IV.
+- Letter V.
+- Letter VI.
+- Letter VII.
+- Letter VIII.
+- Letter IX.
+- Letter XI
+- Letter XII.
+- Letter XIII.
+- Letter XIV.
+- Letter XV.
+- Letter XVI.
+- Letter XVII.
+- Letter XVIII.
+- Letter XIX.
+- Letter XX.
+- Letter XXI.
+- Letter XXII.
+- Letter XXIII.
+- Letter XXIV.
+- Letter XXV.
+- Letter XXVII.
+- Letter XXVII.
+- Letter XXVIII.
+- Letter XXIX.
+- Letter XXX.
+- Letter XXXI.
+- Letter XXXII.
+- Letter XXXIII.
+- Letter XXXIV.
+- Letter XXXV.
+- Letter XXXVI.
+- Letter XXXVII.
+- Letter XXXVIII.
+- Letter XXXIX.
+- Letter XL.
+- Letter XLI
+- Letter XLII.
+- Letter XLIII.
+- Letter XLIV.
+- Letter XLV.
+- Letter XLVI.
+- Letter XLVII.
+- Letter XLVIII.
+- Letter XLIX.
+- Letter L.
+- Letter LI.
+- Letter LII.
+- Letter LIII.
+- Letter LIV.
+- Letter LV.
+- Letter LVII.
+- Letter LVII.
+- Letter LVIII.
+- Letter LIX.
+- Letter LX.
+- Letter LXI.
+- Letter LXII.
+- Letter LXIII.
+- Letter LXIV.
+- Letter LXV.
+- Letter LXVII.
+- Letter LXVII.
+- Letter LXVIII.
+- Letter LXIX.
+- Letter LXX.
+- Letter LXXI.
+- Letter LXXII.
+- Letter LXXIII.
+- Letter LXXXIV.
+---
 
-THE 
-f 
-CAUTIOUS LOVER. 
-m 
-V O L L 
-0 
-jr 
-« 
-» 
-4 
-- - -, : C ■- — ■. ' ' v' 
-'‘ ■ • ■'. j 
-'I ' S ' S 0 ‘ Ctj 
-* i * ■ ' - ■ - V.. ' 
-'. _ • - ‘ oi L' 'c; ' 
-'V.. .' ■- ^ ^ 
-■ : >., ■, 
-- .'' ' V - ■ ' ^ «. ' ’■ - 
--■-.. ^ ■ ••■; ■ -, - y' ' '. ... •....,.. .., > A ■ - •.. yp, 
-., :. raa V -- w vy f ri,. ■ ■, 
-C * ' V‘ y ri ■ ■ ' - ■ ^ 
-‘ ■-. ". ^ ■ .h; _. ■ • ' ' i •; - ' .' -■ - ic; V - viu • i;; 
-£’ ■•^' '* *0. >./•:.. ^'■ ■'••. “•?-: \ -^ ’ -' •. “: C •. ■ • ■ • ' ' ' ‘ •. •. ahinffiv h ' c ^ i 
-id. bd '■ ^ '', 
-d. ri. - V 
-'■ • ’ r.. L • « 
-____^ ^ V' • * • ci’' ' \ avkw 
-^ rv ■ •«*» f ■: ^. ^- y - ■ ^ '; ■. ■. 
--- -■, 'j, \ ' ■v. .f i C V - i 1 V 0. t /■. 
--'*.. .5 ^ ra, -• -- - 
-‘~V'K •, • • / *.. ^ • ■ 
--- LV - .i... ''... • ' • 
-i: : ^ ''■'*' ^ - ■■; • ^ 
-V ■.- ' • .0 ■ '- ' V ■ - 
-i y, 0 •. N; ■. -.. ^ - 
-., i • - 
-■ V ' 
-■.••.•-■ ■»=?■ .f". p. *- r; yo '?, V V ' *.., *•' • tsv ' i ^ i. ‘A.VA f'v.f l' ^arivra^ri\ 
-ri • -. y -; yo' y VN' ' 'S O V V, V. ■ 
-^ - V *•■'■',. r ■ 
-"vv; ’: ... ■. .........yyg 
-; ■ ro i ■': i ' /. : S 
-1 ^ o. y ^-. - -- ‘. • ' 
-•. 
-r'',;, *•■■■ ■'. ✓. ' 
-'^ '... t 
-. V - '. ■ ■ ^ 
-■>: i,, '. •,, ■- ■ • \ ■. ■ '■. ' •' 
-■' - -' - - ■ ' '• ■: ^ ' "S' ' ■■ Ni 
-'■-■•■ ■ ' ■ - V V ',. ^ yr : ': 
-THE 
-CAUTIOUS LOVER; 
-OR, .THE 
-HISTORY 
-o F 
-LORD WOBURN. 
-Sy a Young Gentleman of Oxford, 
-S N TWO VOLUMES.’ 
-# 
-/ 
-y o L I. DUBLIN? 
-Printed for J A M E S W I L L IA M S, at No, 5. in Skinner row. 
-•- in' • - ■ ^ L A: 
-■% ’ ' ’ ''A '*' ■ • .•■ te 
-^ ^ ‘ ■- ■. ■ ^ ■ 
-•. ' ' ■■ ' \ V. iiv ■’ 
-\ - • 
-'. ' ■ is ri' ' 
-']" " ^, #- y A : 
-ic C cy ■;. ■•■. ^ ■ : r: ■■#'-.. C ’ 
-. ' ' y - ■ ^s'y, ■ IV ■' ' ^ 
-S.... ■, 
-.» ■ ’, 
-i; " cy ■. ‘ ■ ■ 
-''). ■ " ■ A, ^ y'y : i 
-/ ■ _.. " r 
-- •■ • ' -, > ■ • i. 
-- ' - - - i .J, i • .• ' • •. 
-.^■'- i 
-/■- ^ '.r y 
-\ A ' ■ 
-'i 'a * ‘ 
-. t * 
-A; ■: • 
-'- - V ■■ ■. ■ ■ -; V 1 
-- -. ' s. 
-'• C ■.. '. ' • 'vva: teh^n 
-N' .f % ■ " V • ^.;. - A ja' ■< 
-» •,. '^ i.. ‘,, r i. ' isiii ■ 
-; : V '- ” io y Fif : vat V - h; C VI u u I i. - 
-... ■ /■'-. ......r 
-^^' '' ^ ^ ’^' ^^8 
-• s .- ■ ‘. ' ’ y': ' 
-‘, N i ■ O I ' ^ 
-, 'i iiiiii 
-V - V y. -. ' ' “- '^£-^- >^ i 4 -- •«>-'' '.^ ■ ► A C., <.iv* 
-V ■ : : '•' ■ ■;., ■, IV ■ ■ 
-- T ^ '? i r 
-nk'; V '.. ^ sv 1 IV J Ci,, : - ^ 
-s *■■ r « » "f? r f - r r r, /1 r; .’■ /, y *> r, V ‘■.'* 
-d.d. N,. j, U i.: .: ■... V / S t :. II I lot r, yi.o tx 
-T S • 
-# r O. •-«. /’.- J vt c4 Si... I 4^ 
-cdu— — ^ — -- -- -- -- -- -- — ^ 
-— w — — — — — i — W— — > — — — — a,, IH II — J— — — — I ■■ 
-l ■ -- r -- - - II - ■ ■ r I -- TI 
+---
 
-THE 
-CAUTIOUS LOVER. 
-©OOOOOiSOOSO000^'000000^ 
-LETTER I. 
-Lord Wo BURN to Mr. Wi L m o t. 
-0 
-And So you tell me that I am by Sar too nice, and of too resined a way of thinking to be happy. — My expedlations, you Say, are extravagant; perhaps they are; but till I See a probability of having those expectations answered, I Shall not add „ another Sool to the herd of miserable husbands— — - them talk till their tongues are weary about heirs j i can ado/>t whenever I please; I can dispose of my fortune extremely well without having any matrimo ^ 7iial connexions with that deceiver from the begin.. 
-; a woman. It is true, I cannot leave my title i to my adopted Son, nor insure him all my estate, but I can leave him enough to satissy a reasonable man; 
-V besides, what care I for posterity? I am quite ^ of the old lady’s mind, who, when presied to think ' about the people who were to come after her, Said, 
-V “pr’ythee be quiet; I wonder when we Shall See ' i posterity do anything Sorus.” — The lady was probably an Hibernian, but her reply was not altogether a bad one. — I have not the leasl aversion to the 
-« M I S T O R Y O F 
-Sex; no man loves them better, from constitution or from tasle. We were, undoubtedly, designed by Nature to encrease each other’s pleasures, but we certainly, by our political connedions, contrive to multiply each other’s cares— — perhaps, you expect me to run on with a heap of invectives against the marriage slate; isyou expect any Severities from me against it, you will be mistaken— — marriage state is, I am very willing to own with you, a heaven Tipon earth, when those who enter into it are Suitable to each other in every respeu; but the infernal xnatches which one Sees in the world So much outnumber the celejhal ones, that the encouragements to an indissoluble union are Sewer and sev/ er every day — The women are become fb intolerably corrupt, that a man mull be absolutely mad who encumbers himself with a wise. — I have not yet, in -- deed even ventured upon a mistress, being almost certain that a mistress “labouring in her vocation, ” will endeavour to impose upon me. -- You know how much J hate to be duped, you will not wonder at my appre fjenfons which naturally throw me upon my guard. 
-“By these apprehensions you punisli yoursels cruelly, for the most exquisite joys in life are only to be found, in, the arms of a fine woman.” Not So Salt, my friend j I enjoy, I asture you, all the raptures which the finest woman in the universe can bestow — with her personal charms; but as to the transports arising sr@m congenial Souls, from the delicious fatisfadtions of mutual friendship, Satisfactions Supe ♦ Sior to all other sensations, 1 give them up, firmly believing that I Shall never find a Semale capa: ble of Such an exalted attachment. 
-There are a thousand women, you will tellme, who, in point of understanding, are little inferior to men of the brightest intellects, and whose minds have been cultivated in the poiitest Style — who, by the oftness of their manners, the gentleness of their dis positions, and the charming vivacity of their conver 
-L O R D W O B U R N: $ 
-Table companions: — Granted — I chiefly, therefore, converse with such women. — Men are too apt to degenerate into brutes when left to their own mirth, mutually excited by coarse jokes, indelicate allusions, 
-and noisy impudence. ^^they are also inclined to 
-be ill humoured, and inhumane when they astociate only among themselves. — I therefore, always chuse a mixed company : the two lexes ever appear to most advantage when they meet together. -- But musl I tie myself to a woman for life, because I like her conversation? — No — certainly. — You will not, perhaps, be So violent an advocate for matrimony when you have been half a year united to your favourite Maria, 
-Adieu. 
-P, S. I am going to Spend a week or two with Sir Francis euston, at euston castle. — Let your next letter be directed to that place. — There will be a large party of us, I believe. 
-LETTER II 
-From the same to the Same. 
-I Thank you for So boldly taking up your pen in dc'. sense of women. — lamas much obliged to you for your panegyrics upon them, as they would be on hearing them because they give me an opportunity to vent my heterodox principles with the greater freedom. But I Shall not be contented merely to oppose my Sentiments to yours; I Shall illustrate the assertions I have thrown out by living examples — yet liow idly ilralli employ myself by dragging private delinquents from their retirements, and making a public exposure them, y/hen there are So many glaring probss of the falsehood and incontinence of women exhibited every day before .the world’s broad eye, of 
-4 inioivattiur 
-rity between the highest and the lowest statronsj * — that stmilarity may be, perhaps, easily accounted for — Xlat quantum of reputation in both is So extremely Small, that it is not worthy of their attention. People in the middle walks of life are only studious to keep up their characters— — many dutchestes, countesies, c;; .could I name, who, instead of being destrous of concealing their amours — same too rather plehaan^ — appear to glory in their disregard of decorum— — to a .country fair, or to a horse race, all the girls are common; as handsome as girls of the first fashion, though not So high bred, full as salse, as fickle, and as voluptuous. — The grand aim of thenj all, in Short, is to get as many men into their power as they can, and to change them as often as a capricious king changes his favourites— — after all. Jack, girls we mufl hare, but no wise; no mistress for me. I am for no tie upon earth; I live at large, and change my women as often as my clothes— — to Say truth, here are very handsoine ones in this part of the country— — mistake me j I do not mean millers wives and farmers daughters, but wcmen of distindlion, women who have Some of the best blood in the kingdom dancing in their veins, — I never was fond of your fine healthy fresh colcured blushing country girls 5 they are as know ing as the most accomplished women of quality can posfibly be, but are destitute of that elegance manner which is to me the irreftfiihle charm. 
-We have a strong party here; Sir Francis loves company, literally; he loves to have a crowd about him; and my lady who chuses to live like other people, invites eyery body Sire knows— — was, at first, loth to comply with their repeated invitations, but on their asturing me that I strculd not be teased with people, and that I strould live quite as I liked, I became flexible. 
-. You alk me whether I rank lady Euston among the number of bad women in my black catalogue, Slily 
-Sofftc are more weak than wicked : most earnestly, you may be assured, do I avoid the latter, and I certainly desire to have no connexions with the former. ^no, Wilmot, the woman vvhomt love must be elegantly handsome j her mind must be still more beaut i sul, irpoffible, than her person. — She must be god, but She must also be sensible, and politely accomstlisli ed 5 She must be gentle, modest, tender, nay, amorous I yet, at the Same time, as chaste as a vestal; She mult be faithful, generous, fmcere, and capable of the most rehned friendship for me. — 'In Short, I Should not, I believe, think a woman truly loved me, unless She would go as far as prior’s Emma; and yet there may be exceptions even against that character. 
-. — probably you will be of lady spilsbury’s mind about me : yesterday, after I had refused a dish of tea from her coarse hand, stre told ms, that I did not knovr what I would have. 
-You bid me Say Something to divert you im the ah' fence of your Maria. — W e have got a pretty widow here', young, handsome, in appearancedifcreet, and Seems inclined to attach herself to me more than to the rest of the men. — She was married young. By her father, to an old man who used her most horribly — No doubt She gave him Sufficient provocation — but this among ourselves— — has the finest pair of languistiing black eyes you ever beheld She has a pretty little mouth, and can look as demure as a qriaker."our apartments happen to lie contiguous — Strong temptation! — Heaven defend my virtue! — Should my little widows be importunate,.! Shall be a lost creature — as 1 have heard the women say. — But here is a celebrated toa$ expected here tomorrow, who has not been much seen in public, lady Charlotte Morden, daughter to 
-the late earl of G -- -- Oh the death of the countess 
-her mother stie went into the North with her guardian and his wife, Mr. and Mrs. Elliot (the former is her mother’s brother) and from thence to Spa. — She returned to England, and was presented while I was at 
-A 5 Pot l 
-Paris, So that I do not remember ever to have feea her. — They tell me that She is as aecomplislied and as good as She is beautiful — I Smiled at the monosyl lable, and replied, “All ladies are undoubtedly good.” - — “I am Sure you don’t think So, you wretch, ” cried lady spilsbury, tapping my Slioulder — “but you will be punislied one time or other for — ” 
-“For what.? ” answered I, “for thinking in So favourable a manner of the most lovely part of the creation .?” 
-“Oh! devil, devil! ’’ Said miss Freely, “jom know that I know you think quite otherwise.” 
-When once a woman comes to confess herself So very knowing. Jack, I have done with her. — Butidid not tell her So abruptly j — I am not ill natured, as the women tell me j I am, indeed, vain, insolent, indifferent Sometimes j — nay, 1 have been called insensible— — wish they were So j — however, I won’t abuse them — they are, after all, necessary evils j and So I will go and take a walk with my widow in the will derncss. 
-Adieu. 
-.......... ■' ..... ■ — " I % 
-LETTER IIL 
-From the same to the Same. 
-This lady Charlotte is come. — She is very handsome, but her pride is insupportable. — She is — faith, I can’t tell how to describe her j yet I have been looking at her above an hour, on purpose to give you her portrait exadtly. sshe is most insufferably haughty’ — Why Should a woman be So cursed proud hecause She happens to be particularly handsome? — And yet I think her features would have a great deal of Softness and sensibility in them, if She would depart a little from the unnecessary dignity of her appearance. ~ by keeping up a majestic air stw intends, doubtless, 
-to 
-to render herfels more attradtive; but a woman with the finest face in the world is not l»<vely in my eyes, in her beauty is not accompanied with affability and good nature- -- Charlotte, indeed, is not either ill-bred or ill humoured; Sire has a transparent complec tionj the glow of health in her cheeks outbiooms all the rouge of Paris; but there is a delicacy discoverable in. her whole frame, which Sliews that it would be injured m ith the least rough treatment. — Her eyes — no — i had better let them alone, for I'cannot, posiibly, do them any Sort of justice; nor, inded, can I inform you of what colour they are, but their glances Sometimes dart into your very Sou!. — Tis strange that She mult be So' haughty because Sire is So handsome j — and yeti don’t know whether She absolutely deserves that epithet nei therjsor there'is Such a dimple on each Side ofher rosy lips whenever She Smiles, that it makes her appear like Euphrosyne herself : — But then She dresses her hair in a manner calculated to give her a towering aspect— — hair is uncommonly thick and glossy;; eye la Slies are also beautiful beyond description, and She' has got a trick of throwing down her eyes on purpose I imagine, to exhibit their fringes to greater advantage. — She Is, adtuaily, monstrous handsome — yet this confounded pride. — I always had a mortal aversion to a haughty woman. — My pretty widow, Mrs, Mead, though not above half So tall as lady Charlotte, and not a quarter So loigh, is the more def ruble woman of the two: inperfon, to be Sure, stie carries all before her, but I am always, you knew, feratinizing into the hearts of the fair fexi, 
-A T.RTJ 
-LETTER IV 
-From the Same to the Same. 
-* 
-HOW one may be mistaken in people? I had taken a foolish fancy into my head that lady Charlotte was capricious, insenstb'e, nay cruel, — I cannot tell why, for stie is quite another creature — miss F reely lady euston’s stster correfted7v?/> thismorn~ ingwithfuch violence for Some misdemeanour which the little animal had committed -- by the way a lady’s dog has almost as bad a time as her lover -- that lady Charlotte interposed, asked her how She could be So inhuman as to beat the poor wretch for faults he could not help, Snatched the puppy from her, and began to make much of him by giving it Some cream in her own Saucer. — Now was not that a good-natured action?? — cannot imagine how snowy white her hand and arms locked, in opposttion to the little brute’s black back, as he lay in her lap. — Yet I do not like to See women fond of dogs, monkeys cc, there is folly, there is indelicacy in Such attachments. 
+## Digital editor's note
+This text has been OCRed and hand-corrected from the [digital surrogate](http://hdl.library.upenn.edu/1017/d/print/992006723503681) in Penn Libraries' Digital Collection of British and American Fiction. The original book is held by the Kislak Center for Special Collections (Penn Libraries, University of Pennsylvania).
+
+---
+
+---
+
+<a id ="half-title-page"/>
+<p class="centered">THE</p>
+<p class="centered large">CAUTIOUS LOVER.</p>
+<p class="centered">VOL. I.</p>
+
+---
+
+<a id ="title-page"/>
+<p class="centered">THE</p>
+<p class="centered large">CAUTIOUS LOVER.</p>
+<p class="centered">OR, THE</p>
+<p class="centered large">HISTORY</p>
+<p class="centered">OF</p>
+<p class="centered large">LORD WOBURN.</p>
+<p class="centered small">By a YOUNG GENTLEMAN of OXFORD.<br>IN TWO VOLUMES.<br>VOL. I.</p>
+
+<p class="centered small"><i>DUBLIN:</i></p>
+
+<p class="centered small">Printed for JAMES WILLIAMS, at<br>No. 5. in SKINNER-ROW.<br>MDCCLXXIII.</p>
+
+---
+
+<a id="body" />
+<p class="centered large">THE<br>CAUTIOUS LOVER.</p>
+
+---
+
+## LETTER I. 
+
+Lord Woburn to Mr. Wilmot.
+ 
+And so you tell me that I am by far too nice, and of too refined a way of thinking to be happy. - My expedlations, you say, are extravagant; perhaps they are; but till I see a probability of having those expectations answered, I shall not add another fool to the herd of miserable husbands - Let them talk till their tongues are weary about heirs; I can *adopt* whenever I please; I can dispose of my fortune extremely well without having any *matrimomial* connections with that deceiver from the beginning, a woman. It is true, I cannot leave my title to my adopted son, nor insure him all my estate, but I can leave him enough to satisfy a reasonable man; besides, what care I for posterity? I am quite of the old lady’s mind, who, when pressed to think about the people who were to come after her, said, "Pr'ythee be quiet; I wonder when we shall see posterity do anything for us.” - The lady was probably an Hibernian, but her reply was not altogether a bad one. = I have not the least aversion to the sex; no man loves them better, from constitution or from taste. We were, undoubtedly, designed by Nature to encrease each other’s pleasures, but we certainly, by our political connections, contrive to multiply each other’s cares. - Now, perhaps, you expect me to run on with a heap of invectives against the marriage-state; if you expect any severities from me against it, you will be mistaken. - The marriage state is, I am very willing to own with you, a heaven upon earth, when those who enter into it are suitable to each other in every respect; but the *infernal* matches which one sees in the world so much outnumber the *celestial* ones, that the encouragements to an indissoluble union are fewer and fewer every day - The women are become so intolerably corrupt, that a man must be absolutely mad who encumbers himself with a wife. - I have not yet, indeed even ventured upon a mistress, being almost certain that a mistress “labouring in her vocation,” will endeavour to impose upon me. You know how much I hate to be *duped*, you will not wonder at my *apprehensions* which naturally throw me upon my guard. 
+
+“By these apprehensions you punish yourself cruelly, for the most exquisite joys in life are only to be found, in, the arms of a fine woman.” Not so fast, my friend; I enjoy, I asture you, all the raptures which the finest woman in the universe can bestow - with her personal charms; but as to the transports arising from congenial souls, from the delicious satisfactions of mutual friendship, satisfactions superior to all other sensations, I give them up, firmly believing that I shall never find a female capable of such an exalted attachment. 
+
+There are a thousand women, you will tell me, who, in point of understanding, are little inferior to men of the brightest intellects, and whose minds have been cultivated in the politest style - who, by the softness of their manners, the gentleness of their dispositions, and the charming vivacity of their conversations are thoroughly qualified to be the most desirable companions - Granted - I chiefly, therefore, converse with such women. - Men are too apt to degenerate into brutes when left to their own mirth, mutually excited by coarse jokes, indelicate allusions, and noisy impudence. - They are also inclined to be ill humoured, and inhumane when they associate only among themselves. - I therefore, always chuse a mixed company: the two sexes ever appear to most advantage when they meet together. - But must I tie myself to a woman for life, because I like her conversation? - No - certainly. -You will not, perhaps, be so violent an advocate for matrimony when you have been half a year united to your favourite Maria, 
+
+> Adieu. 
+
+P. S. I am going to spend a week or two with Sir Francis Euston, at Euston castle. - Let your next letter be directed to that place. - There will be a large party of us, I believe. 
+
+---
+
+## LETTER II 
+
+From the same to the same. 
+
+I thank you for So boldly taking up your pen in defence of women. - I am as much obliged to you for your panegyrics upon them, as they would be on hearing them because they give me an opportunity to vent my heterodox principles with the greater freedom. But I shall not be contented merely to oppose *my* sentiments to yours; I shall illustrate the assertions I have thrown out by living examples - yet how idly shall I employ myself by dragging private delinquents from their retirements, and making a public exposure them, when there are so many glaring probes of the falsehood and incontinence of women exhibited every day before the world’s broad eye, of women fighting in the highest rank of life. - By the way, I have often observed a striking similarity between the highest and the lowest stations; - that similarity may be, perhaps, easily accounted for - the *quantum* of reputation in both is so extremely small, that it is not worthy of their attention. People in the middle walks of life are only studious to keep up their characters. - How many dutchesses, countesses, &c. &c. could I name, who, instead of being desirous of concealing their *amours — some* too rather *plebian,* appear to glory in their disregard of decorum. Go to a country fair, or to a horse race, all the girls are common; as handsome as girls of the first fashion, though not Sso high bred, full as false, as fickle, and as voluptuous. - The grand aim of the, all, in short, is to get as many men into their power as they can, and to change them as often as a capricious king changes his favourites. - Yet, after all, Jack, girls we *must* have, but no wife; no mistress for me. I am for no tie upon earth; I live at large, and change my women as often as my clothes - And, to say truth, here are very handsome ones in this part of the country. - Don't mistake me; I do not mean millers wives and farmers daughters, but wpmen of distinction, women who have some of the best blood in the kingdom dancing in their veins, - I never was fond of your fine healthy fresh-coloured blushing country girls; they are as *knowing* as the most accomplished women of quality can posibly be, but are destitute of that elegance of *manner* which is to me the *irresistible charm.*
+
+We have a strong party here; Sir Francis loves company, literally; he loves to have a crowd about him; and my lady who chuses to live *like other people,* invites eyery body she knows. I was, at first, loth to comply with their repeated invitations, but on their assuring me that I should not be teased with people, and that I should live quite as I liked, I became flexible. 
+
+You ask me whether I rank lady Euston among the number of bad women in my black catalogue, slily insinuating that I no women good. Out again; here are, undoubtedly, some less vicious than others; some are more weak than wicked: most earnestly, you may be assured, do I avoid the *latter,* and I certainly desire to have no connexions with the *former.* No, Wilmot, the woman whom I love must be elegantly handsome; her mind must be still more beautiful, if possible, than her person. - She must be *good,* but she must also be sensible, and politely accomplished; she must be gentle, modest, tender, nay, amorous; yet, at the same time, as chaste as a vestal; she must be faithful, generous, sincere, and capable of the most refined friendship for me. - In Short, I should not, I believe, think a woman truly loved me, unless she would go as far as Prior’s Emma; and yet there may be exceptions even against *that* character. - But probably you will be of lady Spilsbury’s mind about me: yesterday, after I had refused a dish of tea from her coarse hand, she told me, that I did not know what I would have. 
+
+You bid me say something to divert you im the absence of your Maria. - We have got a pretty widow here, young, handsome, in appearance discreet, and seems inclined to attach herself to me more than to the rest of the men. - She was married young. By her father, to an old man who used her most horribly - No doubt she gave him sufficient provocation - but this among ourselves. She has the finest pair of languishing black eyes you ever beheld;- she has a pretty little mouth, and can look as demure as a quaker. - our apartments happen to lie contiguous - Strong temptation! - Heaven defend my virtue! - Should my little widow be importunate, I shall be a lost creature - as I have heard the women say. - But here is a celebrated *toast* expected here tomorrow, who has not been much seen in public, lady Charlotte Morden, daughter to the late earl of C-----. On the death of the countess her mother she went into the North with her guardian and his wife, Mr. and Mrs. Elliot (the former is her mother’s brother) and from thence to Spa. - She returned to England, and was *presented* while I was at Paris, so that I do not remember ever to have seen her. - They tell me that she is as aecomplislied and as good as she is beautiful - I smiled at the monosyllable, and replied, "All ladies are undoubtedly *good*." - "I am sure you don’t think so, you wretch," cried lady Spilsbury, tapping my shoulder - "but you will be punished one time or other for - "
+
+"For what?" answered I, "for thinking in so favourable a manner of the most lovely part of the creation?"
+
+"Oh! devil, devil!" said miss Freely, "*you* know that I know you think quite otherwise."
+
+When once a woman comes to confess herself so very knowing,Jack, I have done with her. But I did not tell her so abruptly; - I am not ill-natured, as the women tell me I am, indeed, vain, insolent, indifferent Sometimes; - nay, I have been called *insensible* - I wish *they* were so; - however, I won’t abuse them - they are, after all, necessary evils; and so I will go and take a walk with my widow in the wildnerness.
+
+> Adieu. 
+
+---
+
+## LETTER III.
+
+From the same to the same.
+
+This lady Charlotte is come. - She is very handsome, but her pride is insupportable. - She is, faith, I can’t tell how to describe her yet I have been looking at her above an hour, on purpose to give you her portrait exacty. She is most insufferably haughty - Why should a woman be so cursed proud because she happens to be particularly handsome? - And yet I think her features would have a great deal of softness and sensibility in them, if she would depart a little from the unnecessary dignity of her appearance. -By keeping up a majestic air she  intends, doubtless, to render herself more attractive; but a woman with the finest face in the world is not lovely in my eyes, in her beauty is not accompanied with affability and good nature - Lady Charlotte, indeed, is not either ill-bred or ill humoured; she has a transparent complection; the glow of health in her cheeks outblooms all the *rouge* of Paris; but there is a delicacy discoverable in her whole frame, which shews that it would be injured with the least rough treatment. - Her eyes - no - I had better let them alone, for I cannot, possibly, do them any sort of justice; nor, indeed, can I inform you of what colour they are, but their glances sometimes dart into your very soul.- 'Tis strange that she must be sp haughty because she is So handsome; - and yet I don’t know whether she absolutely deserves that epithet neither; - for there is such a dimple on each side ofher rosy lips whenever she smiles, that it makes her appear like *Euphrosyne* herself: - But then she dresses her hair in a manner calculated to give her a towering aspect. Her hair is uncommonly thick and glossy; her eye lashes are also beautiful beyond description, and she has got a trick of throwing down her eyes on purpose I imagine, to exhibit their fringes to greater advantage. She is, actually, monstrous handsome - yet this confounded pride. I always had a mortal aversion to a haughty woman. - My pretty widow, Mrs. Mead, though not above half so tall as lady Charlotte, and not a quarter so *high*, is the more *desirable* woman of the two: in perfsn, to be sure, she carries all before her, but I am always, you knew, scrutinizing into the hearts of the fair sex. 
+
+----
+
+## HISTORY of LETTER IV. 
+
+From the same to the same. 
+
+How one may be mistaken in people! I had taken a foolish fancy into my head that lady Charlotte was capricious, insensible, nay cruel, - I cannot tell why, for she is quite another creature - miss Freely lady Euston’s sister correfted thismorn~ ingwithfuch violence for Some misdemeanour which the little animal had committed -- by the way a lady’s dog has almost as bad a time as her lover -- that lady Charlotte interposed, asked her how She could be So inhuman as to beat the poor wretch for faults he could not help, Snatched the puppy from her, and began to make much of him by giving it Some cream in her own Saucer. — Now was not that a good-natured action?? — cannot imagine how snowy white her hand and arms locked, in opposttion to the little brute’s black back, as he lay in her lap. — Yet I do not like to See women fond of dogs, monkeys cc, there is folly, there is indelicacy in Such attachments. 
 poshbly lady Charlotte exercised her humanity just at that time, and in that manner to be taken notice of. — However, Trip was extremely obliged to her. — Bdt why do I write So much about one thing? 
 When did you hear from Maria? You tell me that She has a large addition to her fortune by the death of her uncle : I hope such an acquisttion will make no change in her to your disadvantage j though certainly woman is a very mutableheing. 
 Mrs. Mead and I are not on Such good terms as we were j — stre took it into her head to be jealous of me, as if I mtist not look at or Speak to any woman except herself. — I told her, that if I was leis particular to her in public, my behaviour was governed by the regard I had for her reputation. Reputation !: cried Ihe, strongly pronouncing the word — then turned upon Irer bseh and left irre. 
@@ -165,7 +180,11 @@ yours’s, as usual.
 w —; 
 I * 
 P, S, Here is a Mr. Evelyn, who Seems to look upon lady Charlotte as upon a divinity indeed. 
-LETTER V 
+
+---
+
+## LETTER V 
+
 Lady Charlotte Morden to 
 Mrs. Bjlomes. 
 euston caslle. 
@@ -3203,12 +3222,10 @@ You may imagine how we all looked at each other on this piece of intelligence j 
 At our return we Sound Harry walking about his chamber. — Mrs. Downton was in the parlour, come to fetch her daughter, — — — The remainder in my next. 
 I 
 LED 
-^ ^ -- r w 
-0 
-» 
->. ■ « ' 
-,.. i 
-L E T T, E R LXXXIV 
+
+---
+
+## LETTER LXXXIV.
 '■ ‘ J f 
 From the Same to the Same. 
 AS Soon as I had vvelcomed Mrs. Downton, who is a very agreeable woman, I carried her up into your brother’s room with her daughter and my wife, telling her that we had been Wt too long absent from our patient. 

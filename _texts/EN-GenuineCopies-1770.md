@@ -40,12 +40,10 @@ toc:
 
 ---
 
-
 ---
 
 ## Digital editor's note
 This text has been OCRed and hand-corrected from the [digital surrogate](http://hdl.library.upenn.edu/1017/d/print/992006723503681) in Penn Libraries' Digital Collection of British and American Fiction. The original book is held by the Kislak Center for Special Collections (Penn Libraries, University of Pennsylvania).
-
 
 ---
 
@@ -400,7 +398,7 @@ It is an age, my charmer, since I had the honour of a note from your fair hand; 
 ---
 
 ## CARD.
-I have just received your —— ——s’s last favour. You are going to Portsmouth to-morrow, I to ——-shire. Farewell, till I see or hear from you again.
+I have just received your —— ——s’s last favour. You are going to Portsmouth to-morrow, I to ——shire. Farewell, till I see or hear from you again.
 [25]
 
 ---
@@ -411,31 +409,39 @@ Most lovely of women!
 
 I am this instant returned from Portsmouth, where I hope I have performed my duty as became a good subject and an officer; nor could I let a moment pass before I acquainted you with my arrival. I know it is possible some disagreeable consequences may arise from dispatching this to your country-feat: but true love braves all dangers. If you receive this letter safe, we have nothing to fear; but, lest it should happen otherwise, I have written in the fictitious hand.
 
+---
+
 ## LETTER XXIII.
 
-Oh my dear Sir !
+Oh my dear Sir!
 
 I still tremble through the apprehensions of what might have been the consequence of your sending your last letter in so unguarded a manner. If my lord had been at home, I had been ruined, fortunately he was not; but, for heaven’s sake, never make an attempt of this kind again.
 
-[26]
+[26]
 I have now good news for you; we shall leave this place for London on Friday next; I shall be at St. Alban’s on Saturday Evening, attended only by ——— and ———. I suppose I need say no more to a cavalier of your spirit and resolution. I propose to put up at the sign of the ——: but if you do not find me there, you know the other house. If no misfortune be the consequence of this meeting, I shall flatter myself that all danger is at an end, and that I may meet the man I love with less fearful apprehensions than have lately fallen to the share of
 
-Your most truly enamoured,
+> Your most truly enamoured,
 
-G——.
+>> G—
+
+---
 
 ## LETTER XXIV.
+
 I congratulate you, my charming girl, and I most sincerely congratulate myself, on the prospect before us. I will not fail to be at St. Alban’s at the moment of assignation; and be assured that I will elude the search of every other eye. Permit me to anticipate my happiness.
 
-Yours, wholly yours,
+> Yours, wholly yours,
 
-C——.
+>> C—
 
-[27]
+----
 
+[27]
 ## CARD.
 
 Alas my princess! the adventure of St. Alban’s will never be erazed from my mind. Keep up your spirits, I beseech you, and let not this accident rob you of your peace. All will be well: you cannot be more chagrined than I am: but you may be assured of the exertion of my best abilities, and the influence of all my power, and that of my friends, to prevent any fatal consequences arising from the detection.
+
+---
 
 ## LETTER XXV.
 
@@ -445,9 +451,11 @@ Pardon the tenderness of the expression, you are now dearer to me than ever. You
 [28]
 lordship’s disposition, I dare say he will carry matters to extremities. Let me hear from you frequently, I beseech you, as that will be all the consolation I can at present expect. I shall remove to-morrow to the new lodging in ——street, where I shall hope for the favour of your next letter.
 
-Adieu!——the inconsoleable
+> Adieu!——the inconsoleable
 
-——G——.
+>> G—
+
+---
 
 ## LETTER XXVII.
 
@@ -455,9 +463,13 @@ My sweet girl,
 
 Have patience under your afflictions, I beseech you all will yet be well; I have already taken measures to pacify his ———, and I have not a doubt but I shall succeed. Is there no method to be taken by which I could have the happiness of an interview with you? Perhaps we might, when together, concert some scheme, by which at once to extricate ourselves from the present difficulties: at least it would be some consolation to confer together on the
 [29]
-source of our misfortunes. Let me have an answer as soon as possible. I am, my dear G——-, yours,
+source of our misfortunes. Let me have an answer as soon as possible. I am, my dear G——, 
 
-C——
+> yours,
+
+>> C——
+
+---
 
 ## LETTER XXVII.
 
@@ -465,59 +477,72 @@ O my dear and thrice dear *****!
 
 I have but this moment received your letter, and cannot lose a moment in answering it. For heaven's sake think not of visiting me, for I am so closely watched	by his ————p’s agents, that such a step must needs be attended with the most fatal consequences. Abandon the thought therefore, I beseech you, and let not the wish to see me at present deprive me of the happiness of your company for ever.
 
-Adieu.
+> Adieu.
 
-Yours only,
+>> Yours only,
 
-G————.
+>>> G——
 
-[30]
+---
+
+[30]
 ## LETTER XXVIII.
-I yield, madam, to the injunctions contained in your last letter, though in so doing I offer the utmost violence to my own inclinations: besides, I cannot be wholly of your opinion: though a disguise has once failed us, it might not always do so; but I submit implicitly to your will, and as I cannot have, for the present, the honour of kneeling at your feet, I will make a short tour to Portsmouth, and parts adjacent, to try if travelling, and a perpetual succession of new objects, will console me, in any degree, for the loss of your company. But alas! I foresee the attempt will be vain, and that your dear image will haunt me whereever I go. To-morrow, before break of day, I will set off, and hope, at my return, to hear good news from my angel. I will not be absent more than a week, and if, in the mean time, you should have any thing to communicate, deliver your packet to my trusty *****, to whom I have given instructions where to find me
-[31]
+I yield, madam, to the injunctions contained in your last letter, though in so doing I offer the utmost violence to my own inclinations: besides, I cannot be wholly of your opinion: though a disguise has once failed us, it might not always do so; but I submit implicitly to your will, and as I cannot have, for the present, the honour of kneeling at your feet, I will make a short tour to Portsmouth, and parts adjacent, to try if travelling, and a perpetual succession of new objects, will console me, in any degree, for the loss of your company. But alas! I foresee the attempt will be vain, and that your dear image will haunt me whereever I go. To-morrow, before break of day, I will set off, and hope, at my return, to hear good news from my angel. I will not be absent more than a week, and if, in the mean time, you should have any thing to communicate, deliver your packet to my trusty -----, to whom I have given instructions where to find me
+[31]
 in every part of my tour. Adieu, my angel! Adieu for a week! Alas! it is a million of ages to one who loves like
 
-Your own ——
+> Your own ——
 
-C————
+>> C——
+
+---
 
 ## CARD.
 I am just arrived; what’s the news? I could learn nothing concerning you during my absence, except what came through the channel of the public prints; and in circumstances like ours, you know how little they are to be depended on. Expedite your answer, for I am in tortures till I receive it.
 
+---
+
 ## CARD.
-[32]
+[32]
 
 I have great news to tell you; but they must be the subject of a letter, which shall be ready against the evening. I will direct it to Mr. ———— to be left at the ——— coffee house ——cross.
+
+---
 
 ## LETTER XXIX.
 
 My dear ——
 
 The day after you left London, I received authentic intelligence that his lordship had determined to litigate the affair in ———— Commons. I knew not what step to take, and therefore patiently submitted to my fate. I knew that a week would make very little difference in an affair, which the gentlemen of the robe were to be concerned in; and therefore did not trouble you with any letter during your absence, unwilling as I was to disturb that repose which I hoped you would enjoy in the course of your tour. I hope it has not
-[33]
+[33]
 been a disagreeable one, and that you are returned in perfect health to London. I just now learn that his ———p is resolved to carry matters to the utmost extremity, and to take every advantage that the laws will afford him. In this conjuncture, therefore, I beg your advice, by which I will be wholly guided. I think it would not be prudent for you to attempt teeing me, or to send any more letters, except a final one, how you intend to act in this critical emergency.
 
-I am,
+> I am,
 
-with the warmest attachment,
+>> with the warmest attachment,
 
-unalterably yours,
+>>> unalterably yours,
 
-——G————.
+>>>> G——
 
-[34]
+----
+
+[34]
 ## LETTER XXX.
 
 My angel!
 
 Since his ————p is for a legal submission, we must submit; and we will see him out with resolution. He is determined to try the merits of the cause; be it so; the trial shall be attended with sufficient expence, and every chicanery which the law will admit of shall be put in force against him. Who knows, my charmer, we may yet come off conquerors: but be that as it will, we will riot in pleasures for the remainder of our lives. Favour me with a flight note, intimating that you have received this letter; and here let our correspondence drop for the present.
 
-Yours everlastingly,
+> Yours everlastingly,
 
-C———.
+>> C——
+
+---
 
 [35]
 ## CARD.
+
 I have the favour of your ——s’s last. I applaud your spirit, and I will endeavour to wait with chearfulness the event of the matter.
 
 FINIS.
