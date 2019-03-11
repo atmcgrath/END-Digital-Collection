@@ -367,78 +367,41 @@ You have been pleased to insinuate, that I am in love with this Charlotte; but I
 
 Lady Charlotte Morden to Mrs. Blomer.
 
-My suspicions are confirmed relating to Mrs. Mead: I am really concerned about her, as I found her the most agreeable person, in every re spedt, here. — There was a not unpleasing melancholy at times hanging over her features, which made me relish her company better than the Society of lady spilsbury and miss Facely, whose mirth is by far too boisterous for me. — They depress my Spirits, instead of contributing to enliven them, and I become weary of listening to the same kind of noisy nonsenfe. I never was one of those happy people,, who can laugh at everything, though I am very ready to acknowiedge, that they are as much witer as they are happier, because they are fo much more easily pleased— — what is this to Mrs. Mead ?” — great deal, my dear friend, because She great ’ ly attraued my attention by the gentleness of her manners, and I Strove to make myself agreeable to ' her, though Sire never, I think, appeared to like me. — Lately Sire Seemed not a little'displeased with me 5 but as I concluded that her displeasure arose from " the discovery of Some defect in me, I studiously endeavoured to divest myself of Several little foibles, and flattered'myself, that She would be more desirous of my friendsliip, when I was become more deserv -- ing of it.
-last night, having just escaped from lady spilsbu' ry, who had almost talked me to death, while I was enjoying one of the finest Summer evenings I ever •
-b s beheld
-beheld, in a particularly pleasant walk in the garden, I Saw Mrs. Mead cross the bottom of it. She. was met by lord Woburn, who would have pasted
-her, but fire Stopped him, and began to talk earneit ly to him, holding him by the arm. — On his trying to break from her, She Slipped a piece of paper into his hand, and left him. — just casting his eyes over it he tore if, and Scattered the fragments in the walk. — these proceedings having made me entertain Sentiments very unfavourable to them both, I intended to avoid them as much as poshble. -- -- When
-we all came in to ihpper, I Saw plainly that Mrs. Mead had been in tears; to make Some apology for the suspicious appearance ofher eyes, She complained of a cruel headache, which had tormented her all day.
-Lord Woburn Smiled contempt, while her looks vere expresiive of grief, and of a Smothered resentment— — must be a man very unworthy of the good opinion I had of him, • by using a woman. So apparently amiable as Mrs. Mead is, in the manner he does; he discovers a bad heart. — Such a man ought to meet with all posiible discouragement. — None of the people here Seem to See the necessity of keeping lord Woburn at a proper distance; — I will, therefore, lead the way. — Yet, J cannot help Saying, that I am both disappointed and concerned to find a man, whom I had reason, I thought, to esteem, So little deserving of my partiality in his favour. — But where Shall we Sind a perfect character? I confess, that being taken in by the specicusness of his behaviour, I treated him with more consideration than I did any other man, because he Seemed desirous of being distinguished by me j and really Stood a chance to be preferred, by me, to his whole Sex, by the deference and respedt with which he ever behaved to me. — Sometimes, indeed, I own, he attempted freedoms, which I thought impertinent
-and
-and improper; yet, as they were conducted with extreme delicacy, I could not, reasonably be offended at them, without affeuing the prude, a character i have always detested — I can never. Surely, merit the imputation of prudery, by Shunning a man fo very unfit to be trusted as lord Woburn certainly is — Yet,
-let me consider. -- Have I not been too iiasty.? May
-there not be an engagement of the tendered kind, between Mrs. Mead and lord Woburn which they wiilito conceal, for reasons with which I have nothing to d).? And may they not have had, like lovers, a little quarrel, which has occasioned the contemptuous glances of the one, and the looks full of resentment of the other? — Ht will, I think, be moult charitable to conclude, that a fracas has produced the carriage on both Sides, which gave birth
-to the above observations. -- -- Still, however, I ought
-to be very reserved in my behaviour to my lord'; for it is highly probable, that his little asiiduities were calculated to excite jealousy in Mrs. Mead, in order to bend her to his purpose— — will, therefore, make a total change in my carriage; I will double my attention to Mrs. Mead; — I will be quite inattentive to lord Woburn. — It I cannot forward a reconcilia -- tion, I will not widen the breach, between them.
-y
-r
-L E T
-LETTER XII
-Lord Woburn to Mr. Wilmot,
-YOU were but too much in the right, when you asterted that I was in love with this charming Charlotte : Hear I ana fo, indeed j and yet if I was absolutely certain of being in love with her, I Should be half ready to hang myself. — Sure I am, that She has made a total alteration in her behaviour to me. — I am distradted. — I am wild to know the reason
-of it. -- Now this looks devilish bad on my
-fide; — nothing can be more suspicious. — But then: again, if She is totally indifferent to me, why does Sire think it worth while to alter a carriage which was not in the least censurable.? Why does She think at all about me? I cannot account for the proceeding. I only know, that we were upon this moil agreeable intimate footing imaginable, before this same alteration. — She would walk with me, chat with me, read with me, nay, dance with me, even after ihe had refused other people, and Sit down with me when She had done— — would Suffer me to press her Snowy hand in mine, to touch her lovely hair, and to take a thousand other liberties, which gave me, infinite delight and could not possibly do her any harm, though they might not give her the pleasure which I was So eager to communicate. — ■ — She now studiously Slruns me every wdiere, and avoids every opportunity of Speaking to me alone j Sire pulls away her hand, in a hurry, whenever I offer to take hold of it, and Starts from iny touch, as if it was contagious. I cannot, for rrw soul, find out the meaning of all this. — I have Sometimes thought — make a little allowance for
-• .1. rt • -1 r TN T vr -- _ I it.
-L re L vvd u ts. i, 37
-fore a third person, and whom I know not how to
-Shake off. -- -- -- But I must be egregiously mifta
-jjgn.___in the first place, She cannot be jealous,
-without being in love; Secondly, She is become more attached to this very Mrs. Mead, than to any other woman, who, by the way, is grown So very Silly with her Suspicions, and So extremely indelicate with her favours,, that Sire is by no means a proper companion for lady Charlotte. — Coxcomb as I am! I thoueht lady Charlotte was purity itself j a character of the angelic kind. — -- Nevermore will I reckon
-upon the most favourable expression in the fairest
-face____the whole Sex are deceitful — Howe- --
-if la^iy Charlotte had behaved to me with her usual consderation, my doubts v/itli regard to female constancy would have been entirely removed j I Should have tried her, you may be assured— — —
-Severely tried her before I — -- -- But what am I
-saying?? — -- -- anxiety, my distradtion at this cruel
-change in her carriage, forces me to discover what i woulddesire to hide, not only from you, from myself
-__\do\ovt her -- -- There- -- -- -- -- the murder’s
-om .____iwishimay not repent of my pasiion for
-her as long as I breathe. were Tin my lasl agonies,
-the near approach of death would not give half So much disturbance to my mind, as the thoughts of being cozened by a woman. — No — She Shall never know her power over me. — don’t laugh at me Jack;
-could I have kept this diabolical Secret from you,
-you Should never have been acquainted with it. —
-I am to the lull degree, aslramed of myself; and, yet at the Same time, I could give up my life Sora ieturn of that felicity which | enjoyed in her Societ7 before thiscurfed goolnefs in her behaviour to me.,
-LET.
-JO i.i.xoiwrs.xvyi;
-«
-LETTER XIII
-From the Same to the same.
-IT is not to be endured. I must Speak or die; nothing can Save me. — This enchanting witch Still continues in the Same reserved Style of behaviour. — Yet, what can I Say? I have no right to demand a reason for carriage, without accounting for my
-own; — and I am determined not to explain the meaning of my deportment, even to lady Charlotte. I
-mutt, therefore, be Silent, be blind. Would to
-heaven I were deaf, dumb, anything rather than what I am. — But why all this diftress, you will say — is Sire lost, is She gone, has fire given herself to ano
-'there? -- No— — I take breath again — She
-has not yet doomed me to abfdlute despair, by any Such decisive proceeding against me : She has not even increased her civility to Evelyn; She behaves equally to us both, angel as She is; — and, yet, I am miserable, because She has deprived me of all the Sweet indulgencies I enjoyed before; — indulgencies, which if they were ever allowable, might, certainly, be now admitted, as I never, knowingly or designedly, abused them — 1 am mad to come at thecause of this Strange alteration in her. — 1 will Speak — ' will
-ass her to explain her motives. -- -- 1 have made
-two or three attempts to gratify my preslingcuriosity, but have always been interrupted, either by the breaking in of company upon us, or by her chilling comnesk She takes uncommon pains to avoid me;
-ffie is continually with Adrs. Mead -- -- What a
-grange, what an unnatural connexion! Surely the widow cannot have presumed to breathe a thought against
+My suspicions are confirmed relating to Mrs. Mead: I am really concerned about her, as I found her the most agreeable person, in every respect, here. - There was a not unpleasing melancholy at times hanging over her features, which made me relish her company better than the society of lady Spilsbury and miss Facely, whose mirth is by far too boisterous for me. - They depress my spirits, instead of contributing to enliven them, and I become weary of listening to the same kind of noisy nonsense. I never was one of those happy people, who can laugh at everything, though I am very ready to acknowledge, that they are as much wiser as they are happier, because they are so much more easily pleased. - "But what is this to Mrs. Mead?" - A great deal, my dear friend, because she greatly attracted my attention by the gentleness of her manners, and I strove to make myself agreeable to her, though she never, I think, appeared to like me. - Lately she seemed not a little displeased with me; but as I concluded that her displeasure arose from the discovery of some defect in me, I studiously endeavoured to divest myself of several little foibles, and flattered'myself, that she would be more desirous of my friendship, when I was become more desering of it.
 
-J, IX VY vy JJ VIX i. yy
-gainst me to her. -- -- If I had any Suspicions of
-that nature, I would make her retract, or blow her to the devil. 1 must, therefore, come to an eclair ciffement. — The Sooner the better. -- An intruder
-prevents me from going on.
-mmmm
-LETTER XIV
-Lady Charlotte Morden to Mrs.
-Bl OM E R.
-I HAVE acted jusl as I told you I would; my behaviour has had a good csfedt upon lord Woburn; he looks Sufficiently corrected;; as to poor Mrs. Mead, I cannot make anything of her. I am afraid, from her shyness, that She has Something at heart
-not quite fit to be communicated -- -- -- Be as
-sured, my dear Mrs. Blomer, I would not encourage Suspicions injurious to her, were I not almost certain, that She has put it into his lordsliip’s power to
-- treat her impertinently. -- -- The fault, then,
-you will naturally Say, is chiefly on his Side. — --
-It is So, 1 own; but what a miserable temper? What a bad heart must he pcstess, who can use a woman ill, merely, perhaps, for being too indulgent to him?
-— -- -1 have made Several offers of my friendsliip to
-her, by mentioning lord Woburn in a favourable manner, looking, at the Same time, as if 1 thought I
+Last night, having just escaped from lady Spilsbury, who had almost talked me to death, while I was enjoying one of the finest summer evenings I ever beheld, in a particularly pleasant walk in the garden, I saw Mrs. Mead cross the bottom of it. She was met by lord Woburn, who would have passed her, but she stopped him, and began to talk earnestly to him, holding him by the arm. - On his trying to break from her, She slipped a piece of paper into his hand, and left him. - Just casting his eyes over it he tore it, and scattered the fragments in the walk. - These proceedings having made me entertain sentiments very unfavourable to them both, I intended to avoid them as much as possible. - When we all came in to supper, I saw plainly that Mrs. Mead had been in tears; to make some apology for the suspicious appearance of her eyes, She complained of a cruel headache, which had tormented her all day.
+
+Lord Woburn smiled contempt, while her looks were expressive of grief, and of a smothered resentment. He must be a man very unworthy of the good opinion I had of him, by using a woman. So apparently amiable as Mrs. Mead is, in the manner he does; he discovers a bad heart. - Such a man ought to meet with all possible discouragement. - None of the people here seem to see the necessity of keeping lord Woburn at a proper distance; - I will, therefore, lead the way. - Yet, I cannot help saying, that I am both disappointed and concerned to find a man, whom I had reason, I thought, to esteem, so little deserving of my partiality in his favour. - But where shall we find a perfect character? I confess, that being *taken in* by the speciousness of his behaviour, I treated him with more consideration than I did any other man, because he seemed desirous of being distinguished by me; and really stood a chance to be preferred, by me, to his whole sex, by the deference and respect with which he ever behaved to me. - Sometimes, indeed, I own, he attempted freedoms, which I thought impertinent and improper; yet, as they were conducted with extreme delicacy, I could not, reasonably be offended at them, without affecting the *prude,* a character I have always detested - I can never, surely, merit the imputation of prudery, by shunning a man so very unfit to be trusted as lord Woburn certainly is - Yet,
+let me consider. - Have I not been too hasty? May there not be an engagement of the tendered kind, between Mrs. Mead and lord Woburn which they wish to conceal, for reasons with which I have nothing to do? And may they not have had, like lovers, a little quarrel, which has occasioned the contemptuous glances of the one, and the looks full of resentment of the other? - It will, I think, be most charitable to conclude, that a *fracas* has produced the carriage on both sides, which gave birth to the above observations. - Still, however, I ought to be very reserved in my behaviour to my lord; for it is highly probable, that his little assiduities were calculated to excite jealousy in Mrs. Mead, in order to bend her to his purpose. I will, therefore, make a total change in my carriage; I will double my attention to Mrs. Mead; - I will be quite inattentive to lord Woburn. It I cannot forward a reconciliation, I will not widen the breach, between them.
+
+---
+
+## LETTER XII.
+
+Lord Woburn to Mr. Wilmot.
+
+You were but too much in the right, when you asserted that I was in love with this charming Charlotte: I fear I am so, indeed; and yet if I was absolutely certain of being in love with her, I should be half ready to hang myself. - Sure I am, that she has made a total alteration in her behaviour to me. - I am distradted. - I am wild to know the reason of it. - Now this looks devilish bad on my side; nothing can be more suspicious. - But then again, if she is totally indifferent to me, why does she think it worth while to alter a carriage which was not in the least censurable? Why does she think at all about me? I cannot account for the proceeding. I only know, that we were upon this most agreeable intimate footing imaginable, before this same alteration. - She would walk with me, chat with me, read with me, nay, dance with me, even after she had refused other people, and sit down with me when she had done. She would suffer me to press her snowy hand in mine, to touch her lovely hair, and to take a thousand other liberties, which gave me, infinite delight and could not possibly do her any harm, though they might not give her the pleasure which I was so eager to communicate. She now studiously shuns me every where, and avoids every opportunity of speaking to me alone; she pulls away her hand, in a hurry, whenever I offer to take hold of it, and starts from any touch, as if it was contagious. I cannot, for my soul, find out the meaning of all this. - I have sometimes thought - make a little allowance for
+vanity - that she is jealous of Mrs. Mead, who has so indiscreetly discovered a fondness for me, even before a third person, and whom I know not how to shake off. But I must be egregiously mistaken. In the first place, she cannot be jealous,
+without being in love; secondly, she is become more attached to this very Mrs. Mead, than to any other woman, who, by the way, is grown so very silly with her suspicions, and so extremely indelicate with her favours, that she is by no means a proper companion for lady Charlotte. - Coxcomb as I am! I thoueht lady Charlotte was purity itself; a character of the angelick kind. - Nevermore will I reckon upon the most favourable expression in the fairest face. The whole sex are deceitful. However, if lady Charlotte had behaved to me with her usual consderation, my doubts with regard to female constancy would have been entirely removed; I Should have tried her, you may be assured, ay, severely tried her before I - But what am I saying? - My anxiety, my distraction at this cruel
+change in her carriage, forces me to discover what I would desire to hide, not only from you, from myself - I *do* love her - There - now the murder’s out. I wish I may not repent of my passion for her as long as I breathe. Were I in my last agonies, the near approach of death would not give half so much disturbance to my mind, as the thoughts of being cozened by a woman. - No - she shall never know her power over me. - Don’t laugh at me Jack; - could I have kept this diabolical secret from you, you should never have been acquainted with it. -
+I am to the last degree, ashamed of myself; and, yet at the same time, I could give up my life for a return of that felicity which I enjoyed in her society before this cursed goodness in her behaviour to me.
+
+---
+
+## LETTER XIII.
+
+From the same to the same.
+
+It is not to be endured. I must speak or die; nothing can save me. - This enchanting witch still continues in the same reserved style of behaviour. - Yet, what can I say? I have no right to demand a reason for *her* carriage, without accounting for my own; and I am determined not to explain the meaning of my deportment, even to lady Charlotte. I must, therefore, be silent, be blind. Would to heaven I were deaf, dumb, anything rather than what I am. But why all this distress, you will say - is she lost, is she gone, has she given herself to another? - No - there I take breath again - She has not yet doomed me to absolute despair, by any such decisive proceeding against me: she has not even increased her civility to Evelyn; she behaves equally to us both, angel as she is; and, yet, I am miserable, because she has deprived me of all the sweet indulgencies I enjoyed before; indulgencies, which if they were ever allowable, might, certainly, be now admitted, as I never, knowingly or designedly, abused them. I am mad to come at the cause of this strange alteration in her. - I *will* speak - *will* ask her to explain her motives. - I have made two or three attempts to gratify my pressing curiosity, but have always been interrupted, either by the breaking in of company upon us, or by her chilling coldness. She takes uncommon pains to avoid me; she is continually with Mrs. Mead - What a strange, what an unnatural connexion! Surely the widow cannot have presumed to breathe a thought against me to her. - If I had any suspicions of that nature, I would make her retract, or blow her to the devil. I must, therefore, come to an *eclair cissement*. - The sooner the better. - An intruder prevents me from going on.
+
+---
+
+## LETTER XIV. (47)
+
+Lady Charlotte Morden to Mrs. Blomer.
+
+I have acted just as I told you I would; my behaviour has had a good effect upon lord Woburn; he looks sufficiently corrected; but as to poor Mrs. Mead, I cannot make anything of her. I am afraid, from her shyness, that she has something at heart not quite fit to be communicated. Be assured, my dear Mrs. Blomer, I would not encourage suspicions injurious to her, were I not almost certain, that she has put it into his lordship’s power to treat her impertinently. - The fault, then,
+you will naturally say, is chiefly on his side. - It is so, I own; but what a miserable temper? What a bad heart must he possess, who can use a woman ill, merely, perhaps, for being too indulgent to him? - I have made several offers of my friendship to her, by mentioning lord Woburn in a favourable manner, looking, at the same time, as if 1 thought I
 Should make her happy by So mentioning him -- -- -- --
 After having produced only bluoies, Sighs, and tears, by my well meant officiousness, I ventured to ask her the other day, if lord Woburn, who really appeared anriable, could have posiibly given occasion to So much concern ?- — She replied, but with an increased confusion,
 
@@ -448,9 +411,13 @@ So. -- -- — Will you not condemn me, when I tell you --
 that I am very much mortified at not being ..able to learn from Mrst Mead, the cause ofher quarrel with
 my lord -- -- if they really have had a quarrel. -- -- --
 I wish to develbpe their conduct, with regard to each other J but as I can give not One good reason for my eagerness to be informed of what is no way interesting to’me, I must, ofcourfe, be prompted by an idle curiosity. — ^ — I wish myself a thousand times a day with you in Yorkshire; and, in Spite of all lady euston can say to thc' contrary, shall certainly' think of Setting out from hence, unless Mrs. Elliot Should accomplish her design of coming to London a* month Sooner than usual,
-L E T
-L E T T E R XV
-Lord' Woburn:, to Mr. Wilmot..
+
+---
+
+## LETTER XV.
+
+Lord Woburn to Mr. Wilmot.
+
 At last, with the greatesl difficulty, I have Seized" a moment to Speak to lady Charlotte. She
 was reading alone, in the parlour. -- -- -- -- -- -- She
 rdse, in order to leave the room, as soon as' I entered it. -- -- 1 caught her by the gown for Sire hastisy
