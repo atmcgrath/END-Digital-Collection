@@ -533,7 +533,7 @@ After what I have written, you will, I dare say, think it high time for me to le
 
 Lord Woburn to Mr. Wilmot.
 
-I have been in a mosl disagreeable Situation. Evelyn returned a few days ago in deep mourning for a lady who has left him all her fortune; a fortune large enough to justify his pretensions to lady Charlotte. -- He spoke, and was refused. — I leave you to imagine, for I cannot describe the agitation I felt before he made his overtures, and the joy which his departure from the castle gave me, in consequence
+I have been in a most disagreeable Situation. Evelyn returned a few days ago in deep mourning for a lady who has left him all her fortune; a fortune large enough to justify his pretensions to lady Charlotte. -- He spoke, and was refused. — I leave you to imagine, for I cannot describe the agitation I felt before he made his overtures, and the joy which his departure from the castle gave me, in consequence
 of his being repulsed as a lover. -- However, lady
 Charlotte and I have not yet mentioned fo important an event to each other, though we are upon the most friendly termsi — she goes to London in a few days. — I Seized a moment, when her Setting osfwas
 mentioned -- -- -- -- with Something like regret, if She is
