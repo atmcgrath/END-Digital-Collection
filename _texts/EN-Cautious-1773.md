@@ -410,8 +410,7 @@ you will naturally say, is chiefly on his side. -- It is so, I own; but what a m
 
 Lord Woburn to Mr. Wilmot.
 
-At last, with the greatest difficulty, I have seized a moment to speak to lady Charlotte. She was reading alone, in the parlour. -- She rose, in order to leave the room, as soon as I entered it. -- I caught her by the gown (for she hastily
-drew back her hand) and asked her, what I had done to make her so extremely shy of me?
+At last, with the greatest difficulty, I have seized a moment to speak to lady Charlotte. She was reading alone, in the parlour. -- She rose, in order to leave the room, as soon as I entered it. -- I caught her by the gown (for she hastily drew back her hand) and asked her, what I had done to make her so extremely shy of me?
 
 “You are quite out of the question, my lord; I have just finished my book, and am going up to my own apartment.”
 
@@ -556,55 +555,43 @@ Just come from a little romping-bout in the wood, lady Spilsbury and Harriot not
 
 From the same to the same. 
 
-She has made a downright quarrel of it -- that is, a dumb one, for she will not speak to me. This This must be all affectation, for I am sure she was pleased. -- I saw her satissadfion in her
-languishing eyes, I tasted it upon her balmy lips, I felt it in her trembling hands. However I mult let her have her own way a little, I Swear to you this coy ing it is of infinite Service to me; it keeps up a man’s appetite Surprisingly. — The womenwho au: in a contrary manner, don’t know their own interest. -- How fulsomely fond are spilsoury and Facely! Nay, indeed, my little widow was a coming one. It is aftonisliing to me, that, they don’t See, that by keeping us off, they only bring us on the faslter; but, in truth, the Sex in general are So intolerably forward
-that they disgust me. -- --
-I don’t at all like lady charlotte’s parting dissalis sled with me. — I die for art opportunity to make my peace with just the fellow kiss to that which tired my Soul. — But there are no hopes. — She pretends that She has received a letter, which will oblige her to Set out for Yorkshire directly— — this is not art. my fine lady, Thave done with you; that is, you have cut off all those hopes I had began to encour age of ycur being So much better than any other woman. -- -- Whether Sire is as virtuous and Sincere as
-Sire Seems to be, I will not prefnme to Say — I have
-Strong doubts J but I am Sure She is lovely, -^-
-and will make, as I told yen before, a delicious mis tress, Mad, hevrever, as I am to postefs htr, charmed
-j M s A Jk A A ^ ^ A jm
-ed with her person, and her manners, the one uncommonly beautiful, the other uncommonly bewitching, I Shall take no great trouble to gain her, — I Shall only behave to her in such a manner, as to let her see that She is thoroughly to my taste, and that She may make a conquesl of me whenever She pleases. — As to availing mysels of the customary arts of Seduction — I hold them in the utmosl deteslation; they are beneath a man of honour, or a man of sense; — they Sink hirri lower than the lowest of his Species. — we usiially call a fellow who degrades himself a brute; but too hastily— — brute who adls only agreeable to his nature, is a nobler animal than the man who abu seshis intelle«sts, by enaploying themio delude the fairest, though the weakest part of the creation, out of their virtue. — No, Wilmot, if you think that I wisli to take any improper advantages of any woman, you do me the grgateft injustice. — So far from making them worse, 1 wish to see them better than they are; if, indeed ihej fall, without my ujjiftance, I don’t tell you that I will not receive them with open arms. — ■ Into my heart would I receive this, adorable Charlotte, could I be astured — -- -- -- but She is going,
-and Scarce deigns to Savour me with a Single look— — this in niy humble opinion, is carrying things top far.
-LE .D
-7' • *
-L O R U w U b u K oi
-y
-Is E T T E R XXIIK
-Lady Charlotte M o r » e n td
-Mrs. B L o M E R.
-IH A VK just received a letter from Mr. Elliot, to inform'me that Mrs. Elliot is extremely ill. — ■ Imagine my trouble at this unwelcome news : I shall Set out immediately for Elliot place. — How is' my concern doubled when I think of your not being there! Yet, upon Second thoughts, if our dear friend is indeed So ill, you will not be dreadfully pained at the Sight of her in the midst of her fiifferings. — ■ — My eagerness to be in Yorkshire, prevents me from
-taking time to write a longer letter at present.
-You Shall hear from me as soon as I am arrived.
--- -- In the meanwhile believe me to be, as usual,
-that is,
-Your sinceresl friend,
-Charlotte mostdeni
-«
->
-L E r
-$9 H 1 S 1 O R Y O i‘
-LETTER XXIV
+She has made a downright quarrel of it -- that is, a dumb one, for she will not speak to me. This This must be all affectation, for I am sure she was pleased. -- I saw her satisfaction in her languishing eyes, I tasted it upon her balmy lips, I felt it in her trembling hands. However I must let her have her own way a little, I swear to you this *coying* it is of infinite service to me; it keeps up a man’s appetite surprisingly. -- The women who acts in a contrary manner, don’t know their own interest. -- How fulsomely fond are Spilsbury and Facely! Nay, indeed, my little widow was a coming one. It is astonishing to me, that, they don’t see, that by keeping us off, they only bring us on the faster; but, in truth, the sex in general are so intolerably forward that they disgust me. -- 
+
+I don’t at all like lady Charlotte’s parting dissatisfied with me. -- I die for an opportunity to make my peace with just the fellow kiss to that which tired my soul. -- But there are no hopes. -- She pretends that she has received a letter, which will oblige her to set out for Yorkshire directly. -- If this is not art, my fine lady, I have done with you; that is, you have cut off all those hopes I had began to encourage of ycur being so much better than any other woman. -- Whether she is as virtuous and sincere as
+she Ssems to be, I will not presume to say -- I have
+strong doubts; but I am sure she is lovely, -- and will make, as I told you before, a delicious mistress. Mad, hevrever, as I am to possess her, charmed with her person, and her manners, the one uncommonly beautiful, the other uncommonly bewitching, I shall take no great trouble to gain her. --  I shall only behave to her in such a manner, as to let her see that she is thoroughly to my taste, and that she may make a conquest of me whenever she pleases. -- As to availing myself of the customary arts of seduction -- I hold them in the utmost detestation; they are beneath a man of honour, or a man of sense; they sink him lower than the lowest of his species. -- We usually call a fellow who degrades himself a brute; but too hastily -- A brute who acts only agreeable to his nature, is a nobler animal than the man who abuses his intellects, by employing them to delude the fairest, though the weakest part of the creation, out of their virtue. -- No, Wilmot, if you think that I wish to take any improper advantages of any woman, you do me the greatest injustice. -- So far from making them worse, I wish to see them better than they are; if, indeed they *fall*, without my *assistance*, I don’t tell you that I will not receive them with open arms. Into my heart would I receive this, adorable Charlotte, could I be assured -- but she is going, and scarce deigns to savour me with a single look. -- Now this in my humble opinion, is carrying things too far.
+
+---
+
+## LETTER XXIII.
+
+Lady Charlotte Morden to Mrs. Blomer. 
+
+I have just received a letter from Mr. Elliot, to inform me that Mrs. Elliot is extremely ill. -- Imagine my trouble at this unwelcome news: I shall set out immediately for Elliot-Place. -- How is my concern doubled when I think of your not being there! Yet, upon second thoughts, if our dear friend is indeed so ill, you will not be dreadfully pained at the sight of her in the midst of her sufferings. My eagerness to be in Yorkshire, prevents me from taking time to write a longer letter at present. You Shall hear from me as soon as I am arrived. In the meanwhile believe me to be, as usual, that is,
+
+> Your sincerest friend,
+
+>> Charlotte Morden.
+
+---
+
+## LETTER XXIV.
+
 Lord Woburn to Mr. Wilmot.
-SH E is gone, the dear creature is gone; nor would Sire Suffer me to bid her adieu, in the manner I wislied. — Yeti luckily Seized a moment of privacy to Solicit my pardon, which was granted, indeed; but Sire behaved, at the Same time, with a coolness, with an indifserence, as if fire thought me not of consequence enough to engage her attention. I again entreated her permillion to visit her on her return to London, but She neither rejected nor complied With my request j you may be assured, therefore, that I Shall go.
+
+She is gone, the dear creature is gone; nor would she suffer me to bid her adieu, in the manner I wished. -- Yet I luckily seized a moment of privacy to solicit my pardon, which was granted, indeed; but she behaved, at the same time, with a coolness, with an indifference, as if she thought me not of consequence enough to engage her attention. I again entreated her permission to visit her on her return to London, but she neither rejected nor complied with my request; you may be assured, therefore, that I shall go.
+
 “She half consents who silently denies.”
-I have a Strong suspicion that I am not in the' least disagreeable to her; but She cannot bring herself to acknowledge her partiality for me. — Pride!
--- -- pride!! — have, indeed, hitherto only alksd the
-question with my eyesj ^ — by her extreme cautiousness about looking at me, I fancy She is afraid of making
-a reply too favourable to me -- -- Time will ihev/.
-— — But We may be Separated a great while, and
-a rival may be successful. -- -- -- -- I will hcpe for
-the belt. -- -- 1 Shall not, however, continue here,
-though She corresponds with lady euston. — — I am weary of the female part of the family, who, to make themselves ffill more odious, begin to teaxe
-me about lady Charlotte. -- -- -- Whatever I think,
-I Shall not make them my confidantes. — -- -- -- -- --
-i will accept of Sir george’s and my sister’s invitation to Spend a month with them at tluxiey park,
-LORD W O B U R N. 6^3
-LETTER XXV
->
-Lady Csarlotte Morden to Mrs. Blomer, at Dublin.
-I W AS happy enough, my dear friend, to Sind
-our dear Mrs. Elliot better when! arrived J but
+
+I have a strong suspicion that I am not in the least disagreeable to her; but she cannot bring herself to acknowledge her partiality for me. -- Pride! -- pride! -- I have, indeed, hitherto only asked the question with my eyes; by her extreme cautiousness about looking at me, I fancy she is afraid of making a reply too favourable to me -- Time will shew. But we may be separated a great while, and a rival may be successful. -- I will hope for the best. -- I shall not, however, continue here, though she corresponds with lady Euston. -- I am weary of the female part of the family, who, to make themselves still more odious, begin to tease me about lady Charlotte. -- Whatever I think, I shall not make them my confidantes. -- I will accept of Sir George’s and my Sister’s invitation to spend a month with them at Huxley-Park. -- By that time, possibly, lady Charlotte may be in town. 
+
+---
+
+## LETTER XXV.
+
+Lady Charlotte Morden to Mrs. Blomer, at Dublin.
+
+I was happy enough, my dear friend, to find our dear Mrs. Elliot better when! arrived J but
 bein delighted with my kind expedition. She has wearied herself with contriving amusements for me, in order to reward me, She says, for giving myfeif
 she trouble' of coming down on her account
 The pleasure I felt in Seeing her So much better on my arrival than I expected, from Mr. elliotv letter, is inexpressible.
