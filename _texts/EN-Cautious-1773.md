@@ -631,67 +631,58 @@ As soon as he had shut me in I first devoured with my eyes the letter which had 
 I not prompted by a criminal desire when I willed to dive into her private sentiments, which ought to have remained unviolated under the seal which was employed to guard them from the eye of impertinence. -- Love must be my apologist? -- instigated by love I forgot the dictates of honour. --  How contemptible have I rendered myself, to myself, by so scandalous a proceeding! -- After such a proceeding, can I ever deserve Charlotte? -- How would she justly despise me -- despise me, if she knew of this silly, ungenteel, unjustifiable action! I must conceal my folly from her with the utmost care; but I cannot conceal it from myself. -- The stings of self accusation! Faith! I feel horribly ashamed. -- My confusion is the only promising symptom about me at present. -- Should she really be, after all, everything I have so long wished to find in woman -- I shall not deserve her -- I am afraid; -- though I will make
 the utmost efforts in my power to merit her esteem. I will, positively say no more about her now; I shall write myself into a fever if I go on. -- To change the subject, therefore -- here is a pretty girl just come from the farthest part of the North. -- She is going to see London, -- that is, *to be seen*. -- Have you not been used to couple ignoranc and innocence together, when you heard of a *country girl?* -- No such creature now exists, my friend, as a country girl  and unknowing. The various avenues to the metropolis, from all parts of England, have been rendered So convenient and so pleasant by bridges and turnpikes, that you shall hardly find a girl, in the remotest corner of the kingdom, who is not as finished a flirt, by nature and education, as if she had frequented the politest assemblies in London. -- Dress is the first passion, admiration their second; and those united, give birth to a train of vices and follies, in the exhibition of which they frequently put girls bred up even in the purlieus of St. James’s out of countenance, and out of humour.
 
-Bell Forbes is, in fact, the wildest little devil you ever met with. 'Tis impossible I believe, absolutely impossible to tame her. -- She is distractedly fond of pleasure. -- She was brought up in the farthest part of cumberland, where her amusements. were few and trifling; but now She can’t exist a moment without flying about in Search of Something new : I, wmuld as Soon attach myself to a whirligig.
-■ — Lord Sundon is much taken with her j .She has undoubtedly, a very fine face, and is agood figure, taken all together; but he Seems to think there never was a woman So handsome as she is. — Yet with all her beauty, Sire is more Silly, more trifling than zr child. — Not that She wants sense — thc girl has parts j but She foolishly expects to have the whole world a door her. — In Sufferable vanity! — Lord Sundon is very liberal of his flowery and flattering Speeches to her, but I let her alone. — My negiedt hurts her pride. — besides, to tell you the truth, I believe Sire likes me hest, merely because Sire wants to draw mein to play the fool with her as much as he does — If She goes on at this rate She will be undone in a fortnight She is, indeed, in my opinion, ruined to all intents
-and
-and purposes already; for I look upon a corrupt -- mind to be Still worse than a contaminated person. — -- — — Many men would, I dare Say, think Bella perfect angel; but I fancy, She will prove a f fallen one ere long— — -- -- -- widely different
-is She from lady Charlotte! With what sense and steadiness does lady Charlotte conduct herself in every Situation! With what heavenly dignity does Sire command respect!! what charming gentleness does She Steal away your Soul! — Were I not fo knowing, with regard to women, as I am j — were I not pretty well assured, that they are not what they Seem, I would go and offer myfdf to .her directly
+Bell Forbes is, in fact, the wildest little devil you ever met with. 'Tis impossible I believe, absolutely impossible to tame her. -- She is distractedly fond of pleasure. -- She was brought up in the farthest part of Cumberland, where her amusements were few and trifling; but now she can’t exist a moment without flying about in search of something new : I, would as soon attach myself to a whirligig. -- Lord Sundon is much taken with her; she has undoubtedly, a very fine face, and is a good figure, taken all together; but he seems to think there never was a woman so handsome as she is. -- Yet with all her beauty, she is more silly, more trifling than a child. -- Not that she wants sense -- the girl has *parts*; but she foolishly expects to have the whole world a door her. -- Insufferable vanity! -- Lord Sundon is very liberal of his flowery and flattering speeches to her, but I let her alone. -- My neglect hurts her pride. -- Besides, to tell you the truth, I believe she likes me best, merely because she wants to draw me in to play the fool with her as much as he does. -- If she goes on at this rate she will be undone in a fortnight She is, indeed, in my opinion, ruined to all intents and purposes already; for I look upon a corrupt mind to be still worse than a contaminated person. -- Many men would, I dare say, think Bell a perfect angel; but I fancy, she will prove a *fallen* one ere long -- How widely different is she from lady Charlotte! With what sense and steadiness does lady Charlotte conduct herself in every situation! With what heavenly dignity does she command respect! what charming gentleness does she steal away your soul! -- Were I not so knowing, with regard to women, as I am; -- were I not pretty well assured, that they are not what they seem, I would go and offer myself to her directly.
 
 ---
 
 ## LETTER XXVII.
-Trom the same to the Same.
-U N D O N is foolislily fallen in love with this 13 Bell : the little Saucy gypsy Sees her power, and
-is determined to make use of it to his cost — if he
-can be Serious. He is absolutely a noble Spirited Sellow, and I Should be Sorry to See him throw himself away thus. — His pasiion for the girl has made me hate herj because.it has drawn her out in her true colours. — She can make nothing of me, and She is accordingly very much provoked. — You cannot imagine to what arts the little Slut has recourse to win me to her purpose— — and I were with her in the garden yesterday; he all raptures, lavish
-C HISTORY OF
-m i'
-of his compliments on her beauty, and wishing with an ecstatic Sigh that he was destined to be the pof festor of her charms.
-"Ay, my lord, " cried the giddy head, "but I can’t tell anything about that; for as I am just come out of the country, I Shall not Hke to take
-the first offer; -1 am willing to see more of the
-world, before I six — though — let me consider, " added Sire, with a languiflring look at me, which was followed by an arch one at Sundon, "you are both very handsome : yet I suppose, there are a thousand as fine fellows in London, whom 1 have not Seen."
-"You give a very pretty reason, " Said I "for the natural fickleness of your temper; — and as there will be a constant succeslion of Sine fellows in London, you will probably never think of fixing, while you have a new man to admire every day, "
-Delightful !" replied Sire, with her eyes Sparkling with pleasure, "There is nothing upon earth I Should like better."
-"What a happy creature will the man be, " answered T, "who has the honour to call you his wife — I mean only to cff//you So, child; for, I dare sa^ear, you will not, with that rage for variety, belong to any one person."
-"Nay, now you are too hard upon her, " Said
-Sundon — -- -- -- who was weak enough to take all this
-for nothing but raillery.
-"Not in the lead" replied She brisky, pushing him away on his going to Seize her hand. — "If I am the objeu of general observation, it will be but generous in me to return the pleasure they give me, by admiring them."
-Sundon being, at that moment, Sent for by a gentleman, who was come to dine with him, Beil Sat down by me — ( I was carelessly reclined on a garden seat) — and told me, "Sire never knew two Such idle wretches in her life j r adding, that Sire
-believed
-n O K LJ W U ij U K N. 71
-believed I would not rise from my Seat to look at the handfomesl women in the world."
-I replied, "that I certainly Should not give myfeif any trouble about women, as they were all ready enough to court me."
-"Indeed, my lord, " said She" "would be ’raftly more agreeable, isyou had less vanity."
-"There I agree with you. -- -- But have you not
-precisely the same failing? — When you mend, I Shall begin to reform. — Now, I am Strongly inclined to think, that if my reformation depends upon your's I Shall enjoy my vanity with great comfort to the end of my days, besides, I love myself too well to have any attachments. — "
-"Ay, you may talk, but people as Stout as you have been conquered; and, I declare, the getting the better of your obstinacy would increase the consequen^re of the woman fo much, who made the attempt, that I have a violent desire to be that woman myself."
+
+From the same to the same.
+
+Sundon is foolishly fallen in love with this Bell: the little saucy gypsy sees her power, and is determined to make use of it to his cost -- if he can be serious. He is absolutely a noble spirited fellow, and I should be Sorry to See him throw himself away thus. -- His passion for the girl has made me hate her, because it has drawn her out in her true colours. -- She can make nothing of me, and she is accordingly very much provoked. -- You cannot imagine to what arts the little slut has recourse to win me to her purpose -- and I were with her in the garden yesterday; he all raptures, lavish of his compliments on her beauty, and wishing with an ecstatic Sigh that he was destined to be the possessor of her charms.
+
+"Ay, my lord," cried the giddy head, "but I can’t tell anything about that; for as I am just come out of the country, I shall not like to take the first offer: -- I am willing to see more of the world, before I six -- though -- let me consider," added shee, with a languishing look at me, which was followed by an arch one at Sundon, "you are both very handsome: yet I suppose, there are a thousand as fine fellows in London, whom I have not seen."
+
+"You give a very pretty reason," said I, "for the natural fickleness of your temper; and as there will be a constant succession of fine fellows in London, you will probably never think of *fixing,* while you have a new man to admire every day."
+
+"Delightful!" replied she, with her eyes sparkling with pleasure, "There is nothing upon earth I should like better."
+
+"What a happy creature will the man be," answered I, "who has the honour to *call* you his wife -- I mean only to call so, child; for, I dare swear, you will not, with that rage for variety, belong to any *one* person."
+
+"Nay, now you are too hard upon her," said Sundon -- who was weak enough to take all this for nothing but raillery.
+
+"Not in the least," replied she brisky, pushing him away on his going to seize her hand. -- "If I am the object of general observation, it will be but generous in me to return the pleasure they give me, by admiring them."
+
+Sundon being, at that moment, sent for by a gentleman, who was come to dine with him, Bell sat down by me -- ( I was carelessly reclined on a garden seat) -- and told me, "she never knew two such idle wretches in her life; -- adding, that she believed I would not rise from my seat to look at the handsomest women in the world."
+
+I replied, "that I certainly should not give myself any trouble about women, as they were all ready enough to court me."
+
+"Indeed, my lord," said she, "you would be vastly more agreeable, if you had less vanity."
+
+"There I agree with you. -- But have you not precisely the same failing? -- When you mend, I shall begin to reform. -- Now, I am strongly inclined to think, that if my reformation depends upon your's I shall enjoy my vanity with great comfort to the end of my days, besides, I love myself too well to have any attachments. --"
+
+"Ay, you may talk, but people as stout as you have been conquered; and, I declare, the getting the better of your obstinacy would increase the consequen^re of the woman so much, who made the attempt, that I have a violent desire to be that woman myself."
+
 "You had better let me alone; for you will return from the field without a victory, perhaps without honour."
-"No — the more difficulty the more glory, my lord; and, therefore, from this moment, be upon your guard; for I will certainly leave nothing undone to obtain fo important a conquest."
-"And So be ruined by it — as Semele was in the arms of Jupiter. — No, no, child, think better, and let me alone — I give you fair warning."
-A violent Struggle ensued, for the cunning toad had contrived, while She sat by me, to pick my pocket of my handkerchief. — This was a challenge not to be refused, at least by any man not as cold as a Carmelite. — She ran — 1 pursued' — feigning herself to be out of breath She Suffered herself to be caught, indeed, and flung herself into my arms. — Affecting to be quite insenslble, She pasiively permitted
-7s Jti 1 o 1 K X yj r
-ted all the Sredoms which I was provoked to take, and only was careful tc — recover in the prettiest confusion imaginable; and with a "fie! my lord, how can you do So ^ Positively you Shall let me go now" — at the same time, Strewing not the least desire to be released from her confinement: She rather by her languisliing eyes, and Short Sighs, wished to remain in the Situation into which Sire had forced herself. — Few men, Wilmot, I believe, would have neglected Such an opportunity. — I don’t pretend to be a Stoic, when a fine girl comes in my way, and does all She can to put my blood into a full gallop. — However, .consideration — I won’t Say virtue — Stopped me just when I was on the point of gratifying the pasiion which Beil had kindled in my bosom— — let her go. — Yet, hang me, if I don’t think we were both Sorry afterwards — She looked inost confoundedly baulked, and I cursed myself for an idiot — for Supposing that a girl, who could fink fo quietly into my arms, could posiibly have any thing
-of the vestal about her. -- -- -- 1 actually wonder how
-I came to be So Strangely, So unaccountably discreet.
-— Perhaps Charlotte came athxvart my mind. -- -- -- -- -- --
-Had it not been for her— — could not have resisted— —! how that idea fires me, and at the Same time makes me Slnidder! Slrould Sire be as
-yielding as the girl. -- -- -- ’there’s madness in the
-thought! — Wild and wanton as this girl is, who would have suspedsed her of going such lengths.? — Is there no chastity in women? Faith I lam a Sraid not, ' — I mull, however, give lord Sundon a friendly hint, lest he should be seriously taken in j — and yet he may, probably, thank me for my friendsliip with the point of his Sword. — Well then let him take his chance. — I want not courage; — but a man who will run the risk of killing his friend, or of being killed by him, about a girl who is of So combustible a constitution, that her virtue is every
 
-^ w ^ ^
-«
-very moment In a dangerous way, must be extremely ridiculous, and almost deslitute of common-sense. • — Now, tell me. Jack, am I not in the right In being cautious"? — As I meet with Such frail. Such forward cteatures every day, who can blame me for entertaining unfavourable fuspicions against the whole Sex— — they are all alike — farewell lady Charlotte — Yet I will not give her up till I have tried
-her -- By the way, I hear that She Is expected in
-town at the beginning of the week. — — I Shall theai leave this place for Grofvenor scjuare.
-m mmmmmm
-LETTER XXVIII
-From the same to the Same.
-WILMOT, my dear Wilmot, I have Seen her; I have had her in my arms. — Delightful burden! — How different from the last female who Silled them! i^on’t know, however, whether llae loves me or not. — Then will be the trial. — A woman, not naturally loose, may easily resist the man to whom She is indifferent; but to refuse him whom, She fondly loves— — must be purity itself— — ~ to my tale.
-The firsl morning after I came to town, I met this charming woman airing in Hyde park, attended only by her Servant. diana, when pursued
-by Aftaeon, made not fo charming a figure as Sire did on horscback. — How gracefully did She Sit! With what an easy negligence did she turn her loved
+"No -- the more difficulty the more glory, my lord; and, therefore, from this moment, be upon your guard; for I will certainly leave nothing undone to obtain so important a conquest."
 
-iy neck to Speak to me! How beautifully waved her auburn locks over her Snowy forehead, as the wind blew them backwards and forwards! And, let me add, the unexpected Sight of me, Wilmot, Iiad given an uncommon frefliness to her cheeks,
+"And so be ruined by it -- as Semele was in the arms of Jupiter. -- No, no, child, think better, and let me alone -- I give you fair warning."
+
+A violent struggle ensued, for the cunning toad had contrived, while She sat by me, to pick my pocket of my handkerchief. -- This was a challenge not to be refused, at least by any man not as cold as a *Carmelite*. -- She ran -- I pursued -- feigning herself to be out of breath She suffered herself to be caught, indeed, and flung herself into my arms. -- Affecting to be quite insensible, she passively permitted all the freedoms which I was provoked to take, and only was careful to -- recover in the prettiest confusion imaginable; and with a "fye! my lord, how can you do so positively you shall let me go now" -- at the same time, shewing not the least desire to be released from her confinement: she rather by her languishing eyes, and short sighs, wished to remain in the situation into which she had forced herself. -- Few men, Wilmot, I believe, would have neglected such an opportunity. -- I don’t pretend to be a stoic, when a fine girl comes in my way, and does all she can to put my blood into a full gallop. -- However, consideration -- I won’t say virtue — stopped me just when I was on the point of gratifying the passion which Bell had kindled in my bosom -- I let her go. -- Yet, hang me, if I don’t think we were both sorry afterwards -- She looked most confoundedly baulked, and I cursed myself for an idiot -- for supposing that a girl, who could sink so quietly into my arms, could possibly have any thing of the vestal about her. -- I actually wonder how
+I came to be so strangely, so unaccountably discreet. -- Perhaps Charlotte came athwart my mind. -- Had it not been for her -- I could not have resisted! How that idea fires me, and at the same time makes me shudder! Should she be as
+yielding as the girl. -- There’s madness in the thought! -- Wild and wanton as this girl is, who would have suspedsed her of going such lengths? -- Is there no chastity in women? Faith! I am afraid not, I must, however, give lord Sundon a friendly hint, lest he should be seriously taken in; and yet he may, probably, thank me for my friendship with the point of his sword. Well then let him take his chance. I want not courage; but a man who will run the risk of killing his friend, or of being killed by him, about a girl who is of so combustible a constitution, that her virtue is very moment In a dangerous way, must be extremely ridiculous, and almost destitute of common-sense. Now, tell me, Jack, am I not in the right in being cautious? -- As I meet with such frail, such forward cteatures every day, who can blame me for entertaining unfavourable suspicions against the whole sex? -- they are all alike -- farewell lady Charlotte -- Yet I will not give her up till I have tried her -- By the way, I hear that she is expected in
+town at the beginning of the week. -- I Shall then leave this place for Governor-Square.
+
+---
+
+##LETTER XXVIII.
+
+From the same to the same.
+
+Wilmot, my dear Wilmot, I have seen her; I have had her in my arms. -- Delightful burden! -- How different from the last female who filled them! I don't know, however, whether she loves me or not. -- Then will be the trial. -- A woman, not naturally loose, may easily resist the man to whom she is indifferent; but to refuse him whom, she fondly loves -- must be purity itself. -- Now to my tale.
+
+The first morning after I came to town, I met this charming woman airing in Hyde park, attended only by her servant. Diana, when pursued by Actaeon, made not so charming a figure as she did on horseback. -- How gracefully did she sit! With what an easy negligence did she turn her lovely neck to speak to me! How beautifully waved her auburn locks over her Snowy forehead, as the wind blew them backwards and forwards! And, let me add, the unexpected Sight of me, Wilmot, Iiad given an uncommon frefliness to her cheeks,
 heightening her natural rosy bloom. -- -- Her little
 black hat, ornamented only with a Seather of the same hue. Set off her fine compledtion; and while it modestly shaded her face, it increased the charms of it. — Our modern huntreises are too apt, from a propensity to look very Smart about their heads, to appear with unbecoming fierceness, and to put one out of countenance for them, by their unfeminine looks. I hate to see a woman’s hat turned up before; a woman may have a bolder appearance, by dresiing her front in that manner, but I never admired your
 brazen beauties— — to proceed. -- -- Riding
@@ -710,7 +701,10 @@ proposal, but yielded to my repeated importunities.
 performed; and then, after having received more thanks, accompanied with more blushes, returned
 home, fully intending to renew my vifits. 1 was
 sufrcientl)’^ authorised to repeat them; I could not, indeed, have, decently, Staid away.
-LETTER XXIX
+
+---
+
+## LETTER XXIX.
 From the same to the Same,
 I WENT next day to lady Charlotte. ~~t ga every day, and am always received with Smiles and good-humour. She has a moll resined understanding, and is the moult entertaining creature I ever met with. — I make very long visits, without
 Seeming to weary her with my company. -- -- -- She
