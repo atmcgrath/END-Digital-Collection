@@ -682,31 +682,19 @@ From the same to the same.
 
 Wilmot, my dear Wilmot, I have seen her; I have had her in my arms. -- Delightful burden! -- How different from the last female who filled them! I don't know, however, whether she loves me or not. -- Then will be the trial. -- A woman, not naturally loose, may easily resist the man to whom she is indifferent; but to refuse him whom, she fondly loves -- must be purity itself. -- Now to my tale.
 
-The first morning after I came to town, I met this charming woman airing in Hyde park, attended only by her servant. Diana, when pursued by Actaeon, made not so charming a figure as she did on horseback. -- How gracefully did she sit! With what an easy negligence did she turn her lovely neck to speak to me! How beautifully waved her auburn locks over her Snowy forehead, as the wind blew them backwards and forwards! And, let me add, the unexpected Sight of me, Wilmot, Iiad given an uncommon frefliness to her cheeks,
-heightening her natural rosy bloom. -- -- Her little
-black hat, ornamented only with a Seather of the same hue. Set off her fine compledtion; and while it modestly shaded her face, it increased the charms of it. — Our modern huntreises are too apt, from a propensity to look very Smart about their heads, to appear with unbecoming fierceness, and to put one out of countenance for them, by their unfeminine looks. I hate to see a woman’s hat turned up before; a woman may have a bolder appearance, by dresiing her front in that manner, but I never admired your
-brazen beauties— — to proceed. -- -- Riding
-on, without thinking, I believe, of the time or of the track we where in, we got into the lane which leads to Brompton. — — A dog leaping over a hedge, in that lane, frighted lady charlotte’s horse, who ran .away with her. I fiew after the Skittish beast, and jusl as he had thrown her off his back, received her,
-in my g.rms. -- -- She was a little terrified, but soon
-recovered, and, with a charming blush thanked me
-for my afistance. -- -- She then attempted to walk,
-though I had insisted upon her accepting of my coach (which I had ordered, like a lazy dog, to
-follow me when I Sat out) to carry her home. -- --
-She found herself, in a very little time, obliged to coinply vith my request, for having endeavoured to keep her seat, when the horse first galloped away, she had twisted her foot in the Stirrup and Sprained jt. — I lifted her into the coach, Seated myself by her and offered every kind of Service in my power : remembering what she had Said with regard to Eve, that the attentions of Such men ought to he ac lutywledged. — I conduced her into her own house,
-and
-and entreated her to let a Surgeon be immediately
-Sent for to bleed her. -- She at first opposed that
-proposal, but yielded to my repeated importunities.
--- .1 held her Snowy arm while the operation was
-performed; and then, after having received more thanks, accompanied with more blushes, returned
-home, fully intending to renew my vifits. 1 was
-sufrcientl)’^ authorised to repeat them; I could not, indeed, have, decently, Staid away.
+The first morning after I came to town, I met this charming woman airing in Hyde park, attended only by her servant. Diana, when pursued by Actaeon, made not so charming a figure as she did on horseback. -- How gracefully did she sit! With what an easy negligence did she turn her lovely neck to speak to me! How beautifully waved her auburn locks over her Snowy forehead, as the wind blew them backwards and forwards! And, let me add, the unexpected sight of me, Wilmot, had given an uncommon freshness to her cheeks,
+heightening her natural rosy bloom. -- Her little
+black hat, ornamented only with a feather of the same hue, set off her fine complection; and while it modestly shaded her face, it increased the charms of it. -- Our modern huntresses are too apt, from a propensity to look very smart about their heads, to appear with unbecoming fierceness, and to put one out of countenance for them, by their unfeminine looks. I hate to see a woman’s hat turned up before; a woman may have a bolder appearance, by dressing her front in that manner, but I never admired your
+brazen beauties -- However, to proceed. -- Riding
+on, without thinking, I believe, of the time or of the track we where in, we got into the lane which leads to Brompton. -- A dog leaping over a hedge, in that lane, frighted lady Charlotte’s horse, who ran away with her. I flew after the skittish beast, and just as he had thrown her off his back, received her, in my arms. -- She was a little terrified, but soon recovered, and, with a charming blush thanked me for my assistance. -- She then attempted to walk, though I had insisted upon her accepting of my coach (which I had ordered, like a lazy dog, to follow me when I sat out) to carry her home. -- She found herself, in a very little time, obliged to comply vith my request, for having endeavoured to keep her seat, when the horse first galloped away, she had twisted her foot in the stirrup and sprained it. -- I lifted her into the coach, seated myself by her and offered every kind of service in my power: remembering what she had said with regard to Evelyn, that the attentions of such men ought to he acknowledged. — I conducted her into her own house, and entreated her to let a surgeon be immediately sent for to bleed her. -- She at first opposed that proposal, but yielded to my repeated importunities. I held her snowy arm while the operation was
+performed; and then, after having received more thanks, accompanied with more blushes, returned home, fully intending to renew my visits. I was sufficiently authorised to repeat them; I could not, indeed, have, decently, staid away.
 
 ---
 
 ## LETTER XXIX.
 From the same to the Same,
-I WENT next day to lady Charlotte. ~~t ga every day, and am always received with Smiles and good-humour. She has a moll resined understanding, and is the moult entertaining creature I ever met with. — I make very long visits, without
+
+I went next day to lady Charlotte. I go every day, and am always received with smiles and good-humour. She has a most resined understanding, and is the moult entertaining creature I ever met with. — I make very long visits, without
 Seeming to weary her with my company. -- -- -- She
 has, ihdeed, asked me to Stay, and to return again,
 ■ — You may be Sure I was always compliant, -- -- --
@@ -742,8 +730,11 @@ P. S. I am also become acquainted with Mr
 and Mrs. elliot. r -- They are very conversi,
 hie people, and appear to be extremely attached to lady Charlotte — — as relations and as friends,
 L E .D
-lsaj u W U ts U K IN, 77
-LETTER XXK
+
+---
+
+## LETTER XXX
+
 Lady Charlotte Morden to Mrs. stldmfiiis
 SINCE riiy doming to town I have renewed my acquaintance with lord wobvsrn^we met by accident in Hyde park. — >1 had a Sail from my horse, which gave him an opportunity to asiisl me. — " — Happily my foot was only Sprained a little This event has occasioned a behaviour in lord Woburn, which begins to grow rather puzzling. — How sincerely do I wisli you wa.? with me, that you might from your penetration, inform me what I ought to think of his particular asiiduities.* — I was, you know, very much concerned to find it necestary to leave Mr, elliot’s, and Slrould not have fo readily consented to a Separation from my good friends had I not flattered myself at the time, that I Should he favoured with a great deal of your amiable Society. -- -- 1 did not then know that poor Mrs. Scot
 would have had fo melancholy a reason to desire you to come to her— — — could not, I am sensible, refuse to comply with her earnest request, as a sistef and as a friend } but your compliance with that request, has exceedingly distrested me— — presence, your advice would be, at this jundlure, q infinite Service to me. — — It is neither agreeable ta me, nor sase for me, I think, to live alone j and yet ‘the danger of meeting with an improper companion terrifies me— — always abhorred those peo« pie, who are called Humble Friends, and who generally behave with an abject Servility, disgusting beyond expression— — — I chuse to converse with persons more upon an equality in every res
