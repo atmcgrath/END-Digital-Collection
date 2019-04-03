@@ -844,53 +844,34 @@ more about her, but make the best of my way with -- the idol of my heart.
 Lady Charlotte Morden to Mrs. Blomer.
 
 My dear, dear friend, you must not be in such a hurry. -- You say, that you shall not be satisfied till lord Woburn makes a regular declaration; and I can assure you, that you will not have that satisfaction a great while. -- I see no signs of such a declaration; yet he is as assiduous as ever, nay, more so. -- He was absent for a few days, after
-Mr. Woburn’s arrival in England j but he has
-since Scarce ever left me he omits nothing which.
-will, he thinks, give me any pleasure. -- He has, I
-find, Somehow ingratiated himself with dawson. -- --
-She was rather impertinently free both with her encomiums upon him, and her remarks, t’other day j I Silenced her presently, for I never choose to make
-my Servants my confidants -- -1 was Sorry dawsoii
-obliged me to reprimand her So Sharply, as I have a regard for her, and believe her to be faithful 5 she has certainly more sense than many women, in her Station, are postested of; yet while, lord Woburn keeps me in siispence, it' b not necestary for me I think to be explicit with her upon Such a Sub
-je£l. -- But how can I talk thus? -- mydisappro
-bation of dawson’s behaviour has Surely turned my
-head a little. -- Why sliou.ld I imagine that my lord
-ever entertained Such a desigh. he is almost continually
-with me, ’tis true, and not only follows me
-every
-y.. .J... w V.
-everywhere abroad, but distinguisires me from cve * Ty other woman; and I am foolish enough to be pleased with, a partiality which may, perhaps, in the end occasion a great deal of Scandal.
-Mr. and Mrs. Elliot begin to be difpleased with lord Woburn j their displeasure gives me a great deal of pain— — — Elliot hinted Something t’^othef day, about a categorical answer j and your good sister advised me to flirt a little with Sir William asliton, or any other man, by way of forcing hiss lordsliip to declare himself.
-Forgive me, my dear Mrs, Blomer, for Saying, that I detesled from my heart such advice, though it came from your own stsler. — I cannot descend Co very low, as to angle for a husband in that shabby manner. — I have also entreated Mr. Elliot not to take the least notice of me to my lord. If they will not listen to me, I must quit them, him, and ail the world. — I cannot be brought to Subscribe to such indelicate management. — What an opinion must a nun, have of the woman, who can have recourse to fo poor an artifice, for the accomplishment ofher wishes.? — No — my dear Mrs. Blomer, never will I do anything to render myfeif unworthy of lord woburn’s esteem— — I am in his favour or not, I will endeavour to merit his approbation. — He is, I am afraid — I may venture to say So to you — the only man whom I desire to please; though I would wish to have the whole world approve of my ccn»
-du£l if possible- -- lord is coming up — I must
-conceal thisjetter> -- There is no reason that he
-Should See he is preferred to everybody, till he makes it necestary for me to acknowiedge my Sentiments
-concerning him. -- -- He knows them already, 1 fear,
-but too V ell, from a thousand little inadvertencies, which, in Spite of all my circumspedlon, frequently excape me.
-Iir
-LORD W O U K N.
-In C O N T j N U a T ION.
-I took up drawing when he came in. How Swiftly the moments flew I — — Two whole hours pasted unperceived away, in thg moil delightful conyerfati on.'. — I might have, perhaps, sat talking with him till now, had not Dawson appeared, and asked me if I chose to dress before dinner— — blushed, and looked at my watch.. My lord frowned, and she instantly disappeared. I rosc however « he caught my handj "You must not leave me, " cried he, "beauty, like your’s, wants no addition, "
-"No flattery, my lord, " said I — in a little confusion.
-"I .cannot flatter you, my lady j but if truth offends your modesty, my tongue shall be Silent— — my eyes will Speak, and my heart’s language will be
-responsiyp to theirs." — putting my hand to it. --
-I Struggled to draw it back, telling him, at the Same time, that I mnft wish him a good morning.
-"Will nothing that I can Say, " replied he, with a look inexpresflbly engaging, "prevail on you to
-give me leave to Stay Jand dine with you to day ^
-or will you not, at least permit me to return hither immediately, after I have taken my Solitary meal?"
-Shall I tell you, my dear, that I knew not what answer to make to his request— — his voice, and his attitude were So tenderly Supplicating that I — hesitated — Recolleding, at last, that he might perhaps, be on the point of afldng the question, the fo long delayed — the folongexpedled queftipn by you and your friends, I opened my mouth — I consented to his entreaty, and instantly closed it again, fearful of having been guilty of an indiscretion,
-He
-He Saw my embarrastment and gently clapping
-his hand upon my mouth -- -- -- -- -- -- -• "Hold, " cried
-he, with an enchanting Smile, "you Shall Say nothing to me that you do not thoroughly approve of. — Be Silent; though nobody ever Spoke So well — ■ and susser me to be Ihund here when you return from
-m
-your dresiing room."
-I did as he desired; I hurried from him; but I did not, you may imagine, Stay long at my toilette j though I thought Dawson most intolerably tedious,
-and uncommonly awkward about me. -- -- -- -- -- She actually
-Seemed to be in as great an agitation of Spirits ai,
-myself, was j -- -- -- posiibly, however, my own
-emotions made me believe foto apologise for them.
--- -- -1 wished to look to the utmost advantage -- -- -- --
-yet I certainly did not allow myfeif time to put on my things in an advantageous manner. — By good luck however, they did as well as ifi.had more Studied the arrangement of them — ^ — The flattering Woburn flew to meet me at my return to the drawing-room — — "Before you left me, " said he, "I thought you could not by any art wdiatever, make an alteration in ycur dress for the better; but you certainly appear to me, at this moment, with new attradfions."
+Mr. Woburn’s arrival in England; but he has since scarce ever left me he omits nothing which ill, he thinks, give me any pleasure. -- He has, I find, somehow ingratiated himself with Dawson. -- She was rather impertinently free both with her encomiums upon him, and her remarks, t’other day; I silenced her presently, for I never choose to make
+my servants my confidants. -- I was sorry Dawson obliged me to reprimand her so sharply, as I have a regard for her, and believe her to be faithful; she has certainly more sense than many women, in her station, are possessed of; yet while, lord Woburn keeps me in suspence, it is not necessary for me I think to be explicit with her upon such a subject. -- But how can I talk thus? -- My disapprobation of Dawson’s behaviour has surely turned my head a little. -- Why should I imagine that my lord ever entertained such a design. He is almost continually with me, 'tis true, and not only follows me everywhere abroad, but distinguishes me from every other woman; and I am foolish enough to be pleased with, a partiality which may, perhaps, in the end occasion a great deal of scandal.
+
+Mr. and Mrs. Elliot begin to be displeased with lord Woburn; their displeasure gives me a great deal of pain. -- Mr. Elliot hinted something t'other day, about a categorical answer; and your good sister advised me to flirt a little with Sir William Ashton, or any other man, by way of forcing hiss lordship to declare himself.
+
+Forgive me, my dear Mrs, Blomer, for saying, that I detested from my heart such advice, though it came from your own sister. -- I cannot descend so very low, as to angle for a husband in that shabby manner. -- I have also entreated Mr. Elliot not to take the least notice of me to my lord. If they will not listen to me, I must quit them, him, and ail the world. -- I cannot be brought to subscribe to such indelicate management. -- What an opinion must a man have of the woman, who can have recourse to so poor an artifice, for the accomplishment ofher wishes? -- No -- my dear Mrs. Blomer, never will I do anything to render myself unworthy of lord Woburn’s esteem. -- I am in his favour or not, I will endeavour to merit his approbation. -- He is, I am afraid -- I may venture to say so to you -- the only man whom I desire to please; though I would wish to have the whole world approve of my conduct if possible. -- My lord is coming up -- I must conceal this letter. -- There is no reason that he should see he is preferred to everybody, till he makes it necessary for me to acknowledge my sentiments concerning him. -- He knows them already, I fear,
+but too well, from a thousand little inadvertencies, which, in spite of all my circumspection, frequently escape me.
+
+---
+
+## IN CONTINUATION.
+
+I took up drawing when he came in. How swiftly the moments flew! -- Two whole hours passed unperceived away, in the most delightful conversation. -- I might have, perhaps, sat talking with him till now, had not Dawson appeared, and asked me if I chose to dress before dinner -- blushed, and looked at my watch. My lord frowned, and she instantly disappeared. I rose however -- He caught my hand; "You must not leave me," cried he, "beauty, like your’s, wants no addition."
+
+"No flattery, my lord, " said I -- in a little confusion.
+
+"I cannot flatter you, my lady; but if truth offends your modesty, my tongue shall be silent -- my eyes will speak, and my heart’s language will be responsive to theirs." -- putting my hand to it. --
+
+I struggled to draw it back, telling him, at the same time, that I must wish him a good morning.
+
+"Will nothing that I can say," replied he, with a look inexpressibly engaging, "prevail on you to give me leave to stay and dine with you to day -- or will you not, at least permit me to return hither immediately, after I have taken my solitary meal?"
+
+Shall I tell you, my dear, that I knew not what answer to make to his request -- his voice, and his attitude were so tenderly supplicating that I -- hesitated -- Recollecting, at last, that he might perhaps, be on the point of asking the question, the so long delayed -- the so long expected question by you and your friends, I opened my mouth -- I consented to his entreaty, and instantly closed it again, fearful of having been guilty of an indiscretion. 
+
+He saw my embarrastment and gently clapping his hand upon my mouth. -- "Hold," cried he, with an enchanting smile, "you shall say nothing to me that you do not thoroughly approve of. -- Be Silent; though nobody ever spoke so well -- and suffer me to be found here when you return from your dresiing room."
+
+I did as he desired; I hurried from him; but I did not, you may imagine, stay long at my toilette; though I thought Dawson most intolerably tedious, and uncommonly awkward about me. -- She actually seemed to be in as great an agitation of spirits as, I, myself, was; -- possibly, however, my own emotions made me believe so to apologise for them. -- I wished to look to the utmost advantage -- 
+yet I certainly did not allow myself time to put on my things in an advantageous manner. -- By good luck however, they did as well as if I had more studied the arrangement of them. -- The flattering Woburn flew to meet me at my return to the drawing-room. -- "Before you left me," said he, "I thought you could not by any art whatever, make an alteration in ycur dress for the better; but you certainly appear to me, at this moment, with new attradfions."
 I Smiled, like a Simpleton, as if I was pleased;; told him, that Sewer compliments, and more conversation, would be agreeable to me.
 "I Stand corrected, lady Charlotte" Said he, "It is but just that I Slrould exert all my powers to entertain you in return, for the exquisite falisfac tion you have given me today."
 We sat down to dinner. -- -- -- -1 was far from being
@@ -915,12 +896,11 @@ strictly charged my people to deny me, if he comes again. — ^ — Most probabl
 himself jhe trouble to make me another visit
 How fortunately did I prevail on Mr. and Mrs. Elliot, not to proceed ia the very hasty niannerthey had intended! — TS hey would have been only thought ridiculous, but I must have been laughed at cverj where. — For once let me applaud my own discretion— — have little, very little elfe to value myfeif upon at prestnt.
 Your sincerest friend, Charlotte mokdenu
-I
-I
-I
-.A. \ x’ \ %.\ .M. • \ \
-LETTER XXXVI |
-I
+
+---
+
+## LETTER XXXVI.
+
 Lord Woburn to Mr. Wilmot.
 i
 I AM quite intoxicated with love and joy' '
