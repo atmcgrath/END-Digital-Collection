@@ -925,50 +925,47 @@ She kept up this reserve all the evening; and when I offered my hand to conduct 
 
 Lady Charlotte Morden, to Mrs. Blomer.
 
-You complain of ray long Silence, my good | j friend, and indeed I have fo little to Say, that you will find the opening of my letter Scarce worth the trouble. i have only one thing to tell you, which? can be at all interesting to you — that is, I believe if S they will not let me live in quiet here, I stall come '
-and Settle with you in Ireland— — — and Mtis i
-Elliot are So disappointed in lord Woburn, and So * eager to See me married, that they are every day,
-I may add, every hour, proposing Somebody to me. | — Nobody proposed by them, hitherto, has pleased me. Ought I not to be astamed of preferring lord Woburn in my heart.? But though I like the man, I cannot approve of his behaviour; and Since I have been fo much deceived in him, why may I not be permitted to entertain a Slight opinion of the rest of his sex?? may I not live Sree from any connexions with man? Since the good and the agreeable are not easily to be met with — I will remain as I aril.'"after all, I cannot help thinking, but that
-lord
-i. VJ K la w u C u K in. 103
-lord Woburn is better than he appears to be as appearances are very much against him, therd is no venturing. — He Seems to me, now to wilh to b. reconciled, though too proud to make any concesii ' ’
-ons J — and perhaps, were I to pardon him, I Should only give him an opportunity to offend agaift.* — So let things remain as they are. ^ ^I will keep up my., indifference to all men } and ismy vexations grow insopportabls, .1 will come, my dent Mrs. Blottisr, to you,
-Vowr fmcere friend,
-Charlotte Moansn, '
-I
-/
-*
-E' 4 I, E T
-4
-0 *
-■/
-LETTER XXXVIII
+You complain of ray long silence, my good friend, and indeed I have so little to say, that you will find the opening of my letter scarce worth the trouble. I have only one thing to tell you, which can be at all interesting to you -- that is, I believe if they will not let me live in quiet here, I shall come and settle with you in Ireland. -- Mr. and Mrs. Elliot are so disappointed in lord Woburn, and so eager to see me married, that they are every day,
+I may add, every hour, proposing somebody to me. Nobody proposed by them, hitherto, has pleased me. Ought I not to be ashamed of preferring lord Woburn in my heart? But though I like the man, I cannot approve of his behaviour; and since I have been so much deceived in him, why may I not be permitted to entertain a slight opinion of the rest of his sex? Why may I not live free from any connexions with man? Since the good and the agreeable are not easily to be met with -- I will remain as I am. -- After all, I cannot help thinking, but that lord Woburn is better than he appears to be as appearances are very much against him, therd is no venturing. -- He seems to me, now to wish to be reconciled, though too proud to make any concessions; — and perhaps, were I to pardon him, I should only give him an opportunity to offend again. -- So let things remain as they are. I will keep up my  indifference to all men; and if my vexations grow insupportable, I will come, my dear Mrs. Blomer, to you. 
+
+> Your sincere friend, 
+
+>> Charlotte Morden. 
+
+---
+
+## LETTER XXXVIII. 
+
 Lord Woburn to Mr. Wilmot.
-Lady charlotte has not been well. — I hope the dear creature vrill not, by Stifling her pasiion for me, throw herself into a fever. — jesting apart, though I vas seriously anxious about her, and began to think of a way to make it up with her, I could r ot meet her at any public place, after the night mentioned in my last letter- -- have called several times at her door, without being able to gain admittance. — The lasl time, I asked to Speak with Mrs. dawson— — came down, and with a roguish twinkling in her eyes, told me, that her lady was indisposed, and could not See company.
-"She sees everybody but me, Mrs, dawson, ’* said I.
-"No gentleman, my lord, but Mr, Elliot."
-"Tell her, " replied I, "that I am exceedingly ■unhappy to hear of her indisposition."
-I was going, but recollested myself. r "Can you inform me, " added I, "when She will be at Mr. elliot’s, for I know Sire goes abroad?"
-dawson Smiled, but Seemed doubtful whether Sire
-Should give me the desired Information or not 1
-took out my purse, and removed her Scruples in a moment. — After a Small hesitation. She curtsied, and Said, "I will certainly let your lordship know." The next day a line from Mrs. dawson informed me that her lady was to dine and Spend the evening, at Mr. elliot’s.
-I dressed — and went thither about Seven.
+
+Lady Charlotte has not been well. -- I hope the dear creature will not, by stifling her passion for me, throw herself into a fever. -- Jesting apart, though I was seriously anxious about her, and began to think of a way to make it up with her, I could not meet her at any public place, after the night mentioned in my last letter -- I have called several times at her door, without being able to gain admittance. -- The last time, I asked to speak with Mrs. Dawson. She came down, and with a roguish twinkling in her eyes, told me, that her lady was indisposed, and could not see company.
+
+"She sees everybody but me, Mrs, Dawson," said I.
+
+"No gentleman, my lord, but Mr. Elliot."
+
+"Tell her," replied I, "that I am exceedingly unhappy to hear of her indisposition."
+
+I was going, but recollested myself. -- "Can you inform me," added I, "whensShe will be at Mr. Elliot’s, for I know she goes abroad?"
+
+Dawson smiled, but seemed doubtful whether she should give me the desired information or not. I took out my purse, and removed her scruples in a moment. -- After a Small hesitation. She curtsied, and Said, "I will certainly let your lordship know." The next day a line from Mrs. Dawson informed me that her lady was to dine and spend the evening, at Mr. Elliot’s.
+
+I dressed -- and went thither about seven.
+
 The porter appeared in a puzzle, as if he knew not whether I was to be admitted.
-While
-While he was balancing about this important affair, Sir William ashton entered — He pasted me, and went upstairs. — I followed him, saying to the porter, "I see your family are at home."
-I found only Mr. and Mrs. Elliot, lady Charlotte, and a beautiful girl about fourteen or fifteen, who was, I soon found, a niece of Mrs. elliot’s.
-Lady charlotte’s face gloved at my entrance, with pleasure I thought, but She Soon checked Such a presumptuous fancy, by astuming her late reserved behaviour. — The Elliots also looked exceeding Stiff in their carriage to me, though quite easy with ashton; — So that it would have been a more formal meeting, if Kitty Downton, the fine girl I mentioned, had not, by the agreeable naivete of her behaviour, thrown us, insensibly, into some kind of familiarity. — My charrning Charlotte, at last mixed with us, though the words which She addressed to me, were delivered with the utmost caution j all
-picked, ail chosen ones, L asiure you — -- At first I
-appeared cold and indifferent about her, but was soon converted into the tenderest, the most submisiive of lovers. — This movement did the business, Jack. ■~ i Saw her dear eyes, which were heavy and languid before, filled with a kind of fluttering joy; — her hands trembled, isi accidentally touched them I her completion became animated, and' She grew more lovely, more modestly condefeending than ever.
--- -- ashton hovered a little about her at first, but
-finding he: Stood no chance near me, Soon lest us. You may be Sure Itook particular care to keep clear of those liberties, by which I had provoked her resentmenx. — T am not yet, indeed, authorised to take Such liberties; but when I am admitted as an honourable lover, I Shall expect to have no innocent freedoms denied me and yet, were She to grant me the laji favour, I would Sooner perish that moment than marry her. — You tell me I am ridieuloufly nice— — Carey — remember
-E 5 Carey,
-Carey, I say j and take heed lest you engage with women Similar to those by whom he has been undone.
-This pretty little Kitty is, I Sind, to go home i with lady Charlotte; She has been bred up hitherto very discreetly. — I hope, I may venture to Say, that i hernewfriend will not spoil her. — Yet women and girls Seldom do each other any good — Srequently a great deal of harm.
-II
-In CONTINUATION. j
-s
-I
+
+While he was balancing about this important affair, Sir William Ashton entered -- He passed me, and went upstairs. -- I followed him, saying to the porter, "I see your family are at home."
+
+I found only Mr. and Mrs. Elliot, lady Charlotte, and a beautiful girl about fourteen or fifteen, who was, I soon found, a niece of Mrs. Elliot’s.
+
+Lady Charlotte’s face gloved at my entrance, with pleasure I thought, but she soon checked such a presumptuous fancy, by astuming her late reserved behaviour. -- The Elliots also looked exceeding stiff in their carriage to me, though quite easy with Ashton; -- so that it would have been a more formal meeting, if Kitty Downton, the fine girl I mentioned, had not, by the agreeable naivete of her behaviour, thrown us, insensibly, into some kind of familiarity. -- My charming Charlotte, at last mixed with us, though the words which she addressed to me, were delivered with the utmost caution, all picked, all chosen ones, I assure you. -- At first I appeared cold and indifferent about her, but was soon converted into the tenderest, the most submisiive of lovers. -- This movement did the business, Jack. I saw her dear eyes, which were heavy and languid before, filled with a kind of fluttering joy; -- her hands trembled, if I accidentally touched them I her completion became animated, and she grew more lovely, more modestly condescending than ever. -- Ashton hovered a little about her at first, but finding he stood no chance near me, soon left us. You may be sure I took particular care to keep clear of those liberties, by which I had provoked her resentment. -- I am not yet, indeed, authorised to take such liberties; but when I am admitted as an honourable lover, I shall expect to have no innocent freedoms denied me and yet, were She to grant me the *last favour,* I would sooner perish that moment than marry her. -- You tell me I am ridiculously nice. Remember Carey -- remember Carey, I say; and take heed lest you engage with women similar to those by whom he has been undone.
+
+This pretty little Kitty is, I find, to go home with lady Charlotte; she has been bred up hitherto very discreetly. -- I hope, I may venture to say, that her new friend will not spoil her. -- Yet women and girls seldom do each other any good -- frequently a great deal of harm.
+
+---
+
+## IN CONTINUATION. 
+
 thad, positively, determined to throw myself at lady charlotte’.s feet at my next visit to her, and to make an honourable offer of my person and my for ume; but I am yet fearful; I know not how far I may trust a woman.
 Lady louisa, my brother’s wife — curse on the
 word -- -- is become So ridiculously attached to me,
@@ -1014,7 +1011,10 @@ I cannot bear to have lady Charlotte susjjedfed 5 I must, therefore, make this h
 de r
 no riioiwixi r
 der at the bare idea of putting myfeif entirely into her power. — But hold — will Slje not be more in my power, till the indissoluble knot is tied? — Should ihe, from an inability to resist my presiing Solicitations — Should She prove frail — I Shall have an excuse — a vile one, indeed, I grant — to be Courage — i’ll venture.
-LET E R XXXIX
+
+---
+
+## LETTER XXXIX.
 f
 Lady Charlotte Morden to Mrs.
 Blgm e r.
