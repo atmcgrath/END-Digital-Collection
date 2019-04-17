@@ -1082,69 +1082,53 @@ Lord Woburn is jnst returned, I am, therefore, obliged to dispatch this without 
 
 Lord Woburn to Mr. Wilmot.
 
-I HAVE just: brought my Charlotte to ccnfelsy that I ii.m the only man who ever touched her heart, and that it is absolutely impoffiblje for hei ever
-to lave another. -- -- I'heie acknowledgiiienl^, in
-tnith, came very feafona biy for sir.charl.es con yeis, though he has been.toid again and again that ihe is en; ^age(j, per stsb in foilowmg her about, v/nh as much alliduity .as? df he had any hopes of Supplanting me-- -- -- -- Suspicions, rack cd with anxiety, 1 teased the dear creature for some ililikin? rroofs cf her affection, though She had repeatedly declared, I had nothing to apprehend from Sir Charles. -- -- -- However, as he appeared
-to me a very formidable rival, I could not be Satisfied ill 1 had obtained a lull confesiion of her tender and Stron? attachment to me. -- -- -- But it was
-o
-no easy matter for me to gain the wislied for Satisfaction, as She was always attended by her little
-fairy. -- ^at lust chance Stood my friend. -- -- -- Kitty
-was lent for to Mr. elliot’s. -- -- 1 found my dear
-Charlotte by herlhlf, drelscd.
-"Where are you going ?" Said I., "and whereas Kitty .?"
-"She is not at home, " replied Sire --
-"i hank heaven! I have the pleasure of Seeing, you v'iihout that eternal Spy ripen your locks, words, andaflions."
-tti
-"If
-"If they are as they ought to be, " Said Sire, "they will not be afraid of the severest Scrutiny." "True -- and therefore I am glad we are by ourselves, " answered I, throwing my arm round her, "that you may tell me, whether lam really So dear to you as I am willing to hcpe I am."
-"Why Should you doubt me, my lord ?" Said the dear girl, blushing, and casting down her charming eyes -- -- --
-"I do not doubt you, " .replied I, killing her eagerly in Spite of her Struggling, "but as I am delighted with every opportunity to convince you of the ardo ur of my asfection, I cannot help earnestly wishing to hear fi om your Sweet lips that your affedion for me is as warm and as Sincere as mine is foryou."
-■ "Hold, my lord -- (breaking from me) I can ea sily give you the satissadlion of which you Seem to be fo desirous J but these violent proceedings will not procure it."
-"My poor Charlotte, " Said I, laughing at her, while She appeared a thousand limes more beaui full, by the high glow in her cheeks, increased by her embarrastment, began to adjust her tippet, which I had tumbled a little, "fuppose I cannot be Satisfied without them, what will you Say, .?"
-"Nothing, my lord -- -- -- (rising gravely, and going
-to the other end of the room) I lliall leave you till you are in a more agreeable humour."
-"Let me die, if 1 think it possible for me to be
-mere agreeable than I am at this very instant. -- -- --
-I am Sure I never loved you fo much in my life j -- ■
-lay aside, therefore, this reserved air -- return to
-nry srms, and make me the happiest of mortals."
-A look of inconceivable clil'dain was immediately darted at me; and She walked towards the door, "Hold, madam, " Said I, "Sor your own advan tas[e condescend to hear a few words, before you
-throw
-throw yourself away in a pet. -- -- -- Be astured, that
-however lovely I think you, however tenderly I csteem you, I Shall not dangle after you merely to gaze on you like a China doll upon the Chimney piece, while you are full as cold and as insensible."
-"I am neither the one nor the other, my lord, " replied She, almost melting into tears, "but I could not have imagined you would have found fault with the propriety of my conduct: : rather flattered myself, I cenfess, that it would have raised me in your ■ esteem."
-"Esteem, mere esteem, will never do, my dear Charlotte, " Said I, advancing to make up our little difference, transported at the Same time, to find her So discreet j "but if you can, with truth, asture me, that I am the only object of your tenderness, and that you feel an increasing tenderness for me, i am ready to ask your pardon, for resenting a behaviour, which I thought, 1 own, circumstanced as we are, too forbidding."
-"I am alsc ready to tell you, " replied Sire "that I x\q\’cx have loved, that I never can love any man
-buty>i?«. -- -- Now will you not be Satisfied ?" added
-foe. Smiling in my face. -- She then turned away her own, to hide her blushes.
-i caught her in my arms. -- How far I might have been tempted, I cannot Say. -- A violent rap at the
-door instantly altered cur Situations.' -- -- She went
-out to make visits with Gadely, who came to call her.
-And now -- -- -- sofar, fo well -- -- She has behaved
-hitherto like an angel -- but -- She was not properly
-melted to my purpose. -- -- -- -- woman who is not
-a downright wanton, is not always in humour. -- -- -- -1
-must firtt wind up her passion for me as high as it wili go; and then urge her, by every insinuating art
-in my power, to the gratification of it. -- -- -- If She
-has Strength to refist my attacks -- -1 Shall adore her
-if She yields -- -1 Shall dote on her; -- -- but,
-mark me, I do not Say that I will marry her.
-I. F. T
-LORD WOBURN. izi
+I have just brought my Charlotte to confess that I am the only man who ever touched her heart, and that it is absolutely impossible for her ever to love another. -- These acknowledgements, in truth, came very seasonably; for Sir Charles Conyers, though he has been told again and again that she is engaged, persists in following her about, with as much assiduity as if he had hopes of supplanting me. -- Tormented with suspicions, racked with anxiety, I teased the dear creature for some striking proods of her affection, though she had repeatedly declared, I had nothing to apprehend from Sir Charles. -- However, as he appeared to me a very formidable rival, I could not be satisfied ill I had obtained a full confession of her tender and strong attachment to me. -- But it was no easy matter for me to gain the wished for satisfaction, as she was always attended by her little
+fairy. -- At lust chance stood my friend. -- Kitty was lent for to Mr. Elliot’s. -- I found my dear Charlotte by herself, dressed.
+
+"Where are you going?" said I, "and where is Kitty?"
+
+"She is not at home," replied she.
+
+"Thank heaven! I have the pleasure of seeing, you without that eternal spy upon your locks, words, and actions."
+
+"If they are as they ought to be, " said she, "they will not be afraid of the severest scrutiny." 
+
+"True -- and therefore I am glad we are by ourselves," answered I, throwing my arm round her, "that you may tell me, whether I am really so dear to you as I am willing to hope I am."
+
+"Why should you doubt me, my lord?" said the dear girl, blushing, and casting down her charming eyes --
+
+"I do not doubt you, " replied I, kissing her eagerly in spite of her struggling, "but as I am delighted with every opportunity to convince you of the ardour of my affection, I cannot help earnestly wishing to hear from your sweet lips that your affection for me is as warm and as sincere as mine is for you."
+
+"Hold, my lord -- (breaking from me) I can easily give you the satisfaction of which you seem to be so desirous; but these violent proceedings will not procure it."
+
+"My poor Charlotte," daid I, laughing at her, while dhe appeared a thousand times more beautiful, by the high glow in her cheeks, increased by her embarrastment, began to adjust her tippet, which I had tumbled a little, "suppose I cannot be satisfied without them, what will you say?"
+
+"Nothing, my lord -- (rising gravely, and going
+to the other end of the room) I shall leave you till you are in a more agreeable humour."
+
+"Let me die, if I think it possible for me to be more agreeable than I am at this very instant. -- I am sure I never loved you so much in my life; lay aside, therefore, this reserved air -- return to my arms, and make me the happiest of mortals."
+
+A look of inconceivable disdain was immediately darted at me; and she walked towards the door, "Hold, madam, " said I, "For your own advantage condescend to hear a few words, before you throw yourself away in a pet. -- Be assured, that however lovely I think you, however tenderly I esteem you, I shall not dangle after you merely to gaze on you like a China doll upon the shimney piece, while you are full as cold and as insensible."
+
+"I am neither the one nor the other, my lord," replied she, almost melting into tears, "but I could not have imagined you would have found fault with the propriety of my conduct: rather flattered myself, I cenfess, that it would have raised me in your esteem."
+
+"Esteem, mere esteem, will never do, my dear Charlotte," said I, advancing to make up our little difference, transported at the same time, to find her so discreet, "but if you can, with truth, assure me, that I am the only object of your tenderness, and that you feel an increasing tenderness for me, I am ready to ask your pardon, for resenting a behaviour, which I thought, I own, circumstanced as we are, too forbidding."
+
+"I am alsp ready to tell you," replied she "that I never *have* loved, that I never can love any man but *you.* -- Now will you not be satisfied?" added she. miling in my face. -- She then turned away her own, to hide her blushes.
+
+I caught her in my arms. -- How far I might have been tempted, I cannot say. -- A violent rap at the door instantly altered our situations. -- She went out to make visits with Gadely, who came to call her. And now -- so far, so well -- She has behaved hitherto like an angel -- but -- she was not properly melted to my purpose. -- A woman who is not a downright wanton, is not always in humour. -- I must first wind up her passion for me as high as it will go; and then urge her, by every insinuating art
+in my power, to the gratification of it. -- If she has strength to resist my attacks -- I shall adore her if she yields -- I shall dote on her; -- but, mark me, I do not say that I will *marry* her.
 
 ---
 
 ## LETTER XLIII.
 
-Lord W o B u R It to Mr. Wilmot,
-SINCE my last attack, the enemy has been fo well guarded, that I have not Sound a Single moment to play off my grand battery against her. -- Yet has She been absolutely enchanting, and less ' Severe in her manners, on purpose, as I imagine, to
-keep me from making any farther attempts. ■ --
-However, 1 may be deceived. -- Her Smiling looks, perhaps, only declare the pleasure which She feels from my endearments. -- She loves me, I am assured,
-and I could devour her. cannot hold out long
-in this manner -- to be tantalised thus! -- intolerable
-! -- She has, indeed, given up her hand entirely to my discretion, and a charming one it is; but by fo doing, She has made me more eager to come at the rest of her.
-Both (lie and the Elliots, I believe, think that I
-am in a monstrous hurry to be married -- but there
+Lord Woburn to Mr. Wilmot. 
+
+Since my last attack, the enemy has been so well guarded, that I have not found a single moment to play off my grand battery against her. -- Yet has she been absolutely enchanting, and less severe in her manners, on purpose, as I imagine, to keep me from making any farther attempts. --
+However, I may be deceived. -- Her smiling looks, perhaps, only declare the pleasure which she feels from my endearments. -- She loves me, I am assured, and I could devour her. cannot hold out long in this manner -- to be tantalised thus! -- intolerable! -- She has, indeed, given up her hand entirely to my discretion, and a charming one it is; but by so doing, she has made me more eager to come at the rest of her.
+
+Both she and the Elliots, I believe, think that I am in a monstrous hurry to be married -- but there
 they are quite out. -- I am well watched, however.
 -- -- besides Kitty Downton, we have got a Mrs.
 Staples, one of your good pretty kind of women. --.
@@ -1169,7 +1153,9 @@ tenderest things, were but this long, tall maw kin out of the way, -- -- -- Asto
 '. " ■
 nocence alone makes Security. -- -- ^<^ery. Whether lady Charlotte is the cherub She appears to be? -- If She is apprehensive of no danger, why is She more coy, more my of pie, than the playful Kitty is? Ay -- but I have alarmed her with my freedoms. -- -- Well -- and I have kisted Kitty twenty and twenty times, yet She runs to me with open arms: Charlotte, on the contrary, who really looks as if she could fly into them with as much rapture as I would receive her, ftartsaway and appears to be afraid of trusting herself near me. -- Admirable, however, is this behaviour. -- She astures me Sufficiently by it, that She is deeply wounded. -- When once a woman who is cxcestively enamoured with her lover, can arm herself against his most vigorous Solicitations, She is -- everything he can wish for j everything he ought to wish for.
 End of the First Volume.
-i tl ih
+
+---
+
 CAUTIOUS lover:
 OR, THE
 HISTORY
