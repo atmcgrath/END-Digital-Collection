@@ -1128,174 +1128,104 @@ Lord Woburn to Mr. Wilmot.
 Since my last attack, the enemy has been so well guarded, that I have not found a single moment to play off my grand battery against her. -- Yet has she been absolutely enchanting, and less severe in her manners, on purpose, as I imagine, to keep me from making any farther attempts. --
 However, I may be deceived. -- Her smiling looks, perhaps, only declare the pleasure which she feels from my endearments. -- She loves me, I am assured, and I could devour her. cannot hold out long in this manner -- to be tantalised thus! -- intolerable! -- She has, indeed, given up her hand entirely to my discretion, and a charming one it is; but by so doing, she has made me more eager to come at the rest of her.
 
-Both she and the Elliots, I believe, think that I am in a monstrous hurry to be married -- but there
-they are quite out. -- I am well watched, however.
--- -- besides Kitty Downton, we have got a Mrs.
-Staples, one of your good pretty kind of women. --.
-She is tall and Slim j she has a pale compledtion,.
-Hack eyes, but no chin. -- She smiles and Simpers at
-everything that is Said. -- 1 am amazed that a
-woman of charlotte’s understanding can like such a
-nonentity to be always near her; as I know Sire Is
-above all that meanness of carrying a soil about
-with her j -- She has indeed no sort of occasion for
-‘ one, her beauty wants nothing to Set it off.
-1 asked her, t’other day, who that lady was.
-rr (I TL*
-The daughter of a particular friend of my mother’s, " replied She, "who was married unfortunately."
-"She Is a widow, then ?"
-« No -- -- -- but Mr. Staples, is abroad. "
-If I was Mr. Staples, I Should make no hasle to
-come home to Such a wife, thought il itcvityou
-often reprove me for railing against women.^fc take notice, J ack, I do allow that some few may be virtuous, but those few must be, like Mrs. Staples, unable to raise envy in woman j.or desire in man. -- I dare affirm, that Mrs. Staples ia strong antidote to love. -- I heartily wish She was, a thousand miles off
-at present -- -- My charlotte’s eyes would look the
-tenderest things, were but this long, tall maw kin out of the way, -- -- -- Asto little‘kitty, I have toyed and trifled with her, till the child is as innocently fond of me as of her dog or her Squirrel, and is no more afraid of me than of either of those animals. -- Int
-'. " ■
-nocence alone makes Security. -- -- ^<^ery. Whether lady Charlotte is the cherub She appears to be? -- If She is apprehensive of no danger, why is She more coy, more my of pie, than the playful Kitty is? Ay -- but I have alarmed her with my freedoms. -- -- Well -- and I have kisted Kitty twenty and twenty times, yet She runs to me with open arms: Charlotte, on the contrary, who really looks as if she could fly into them with as much rapture as I would receive her, ftartsaway and appears to be afraid of trusting herself near me. -- Admirable, however, is this behaviour. -- She astures me Sufficiently by it, that She is deeply wounded. -- When once a woman who is cxcestively enamoured with her lover, can arm herself against his most vigorous Solicitations, She is -- everything he can wish for j everything he ought to wish for.
+Both she and the Elliots, I believe, think that I am in a monstrous hurry to be married -- but there they are quite out. -- I am well watched, however. -- besides Kitty Downton, we have got a Mrs. Staples, one of your good *pretty kind of women.* -- She is tall and slim; she has a pale complection, black eyes, but no chin. -- She smiles and simpers at everything that is said. -- I am amazed that a woman of Charlotte’s understanding can like such a
+nonentity to be always near her; as I know she is above all that meanness of carrying a soil about with her; -- she has indeed no sort of occasion for one, her beauty wants nothing to set it off. I asked her, t’other day, who that lady was.
+
+"The daughter of a particular friend of my mother’s," replied she, "who was married unfortunately."
+
+"She is a widow, then?"
+
+"No -- but Mr. Staples, is abroad."
+
+If I was Mr. Staples, I should make no haste to come home to such a wife, thought I. You often reprove me for railing against women. Take notice, Jack, I do allow that some few may be virtuous, but those few must be, like Mrs. Staples, unable to raise envy in woman, or desire in man. -- I dare affirm, that Mrs. Staples is strong antidote to love. -- I heartily wish she was, a thousand miles off
+at present -- My Charlotte’s eyes would look the tenderest things, were but this long, tall mawkin out of the way, -- As to little Kitty, I have toyed and trifled with her, till the child is as innocently fond of me as of her dog or her squirrel, and is no more afraid of me than of either of those animals. -- Innocence alone makes security. -- Query. Whether lady Charlotte is the cherub she appears to be? -- If she is apprehensive of no danger, why is she more coy, more shy of me, than the playful Kitty is? Ay -- but I have alarmed her with my freedoms. -- Well -- and I have kissed Kitty twenty and twenty times, yet she runs to me with open arms: Charlotte, on the contrary, who really looks as if she could fly into them with as much rapture as I would receive her, starts away and appears to be afraid of trusting herself near me. -- Admirable, however, is this behaviour. -- She assures me sufficiently by it, that she is deeply wounded. -- When once a woman who is excessively enamoured with her lover, can arm herself against his most vigorous solicitations, She is -- everything he can wish for; everything he ought to wish for.
+
 End of the First Volume.
 
 ---
 
-CAUTIOUS lover:
-OR, THE
-HISTORY
-, J
-0
-OF
-LORD WOBURN.
-By a Young Gentleman of Oxford, UN TWO VOLUMES.
-V O L II
-/
-D U B L I N
-Printed for J A M E S W I L LI A M S, aj No, 5. in Skinner row.
-t
-1
-t
-I
-!
-I
-I
-I
-j '
-i
-i ■
-I
-I
-(
-»
-.
-i
-i
-i
-f
-f
-j
-I
-I
-4
-i
-(■
-t
-I' -,
-\ PA
-\
-X
-\
-V
-%
-f
-i
-«
-I .^rsi, I
-I *sl..fs^ *5tjl** I
-###*§###########•##########
-■: N
-f
-}
-T n JS
-CAUTIOUS LOVER.
-. *
+<a id ="title-page"/>
+<p class="centered">THE</p>
+<p class="centered large">CAUTIOUS LOVER.</p>
+<p class="centered">OR, THE</p>
+<p class="centered large">HISTORY</p>
+<p class="centered">OF</p>
+<p class="centered large">LORD WOBURN.</p>
+<p class="centered small">By a YOUNG GENTLEMAN of OXFORD.<br>IN TWO VOLUMES.<br>VOL. II.</p>
 
-*
-* •
-\
-s E E T T E R XLIV
-I
-Lady Charlotte Moroen to Mrs
-Blomer.
-Every hour, my dear friend, Since you left me, have I regretted your departure j -- but I am particularly asfedled by your absence at present, Your apprehensions on my account, my good Mrs. Blomer, were not ill-founded. -- Lord Woburn is but too amiable. -- Yet do not mistake me -- i -- a man fo uncommonly agreeable; a man who has some reason to demand a return of affection, is rather to be feared, especially when he is, I See, too apt to be offended at my refusing liberties which, though allowable in a degree, mull at this juncture,
-F X be
-J2D nibluky Ur
-be reckoned both indelicate and indiscreet-- -- a: : therefore, any dispute or difference with a man : whom I cannot dil'please, without feeling very pain;; sensations, I would Seldom receive him alone; I i would never, atleast be alone with him a great while >~ happy, then, would your company make me at this time, as the awe which your appearance always i inspires, would be of considerable Service to me.
-I have invited Mrs. Staples to come and Stay with ■ me i not only to be a check upon my lord, but upon myself -- miss Downton being looked upon by him as of little consequence-- -- are, indeed, upon So familiar a footing, that She comes and goes at his bidding, and takes as much pains to please him, as if She was in love with him j -- and in truth,; J believe She feels all that her young heart is capa!! of feeling for him -- After having left me, alone! with him, t’other day, I told her, when he was! one that I was asraid lord Woburn had made her! cease to be my friend; and that 1 was a little jea> i lous of the preference ihe gave him.
-She threw her arms round my neck, and Said i "No, indeed, my lady, I love you as well as ever, ^ but my lord is So entertaining, and looks So hand;; that I cannot resuse him." -- She Is a Sweet 1 insinuating girl but too young to be talked with upon this Subject;; I know not how Soon such a conversation may be necessary, as the men
-begin to take a great deal of notice of her sir
-Charles pays much court to her, though Sire is fo young a girl -- Mrs. Elliot tells me, he is So attentive to her, because he knows Sire is my Savourite. -- But to what purpose can he behave in this manner, as I am engaged. -- He is, I think, rather too particular to me; but as he Is reckoned amiable, and as his character is unexceptionable, I Shall be glad to See an alliance bye and bye, between him and miss Downton. -- She has an excellent disposition;
-on; and if nothing happens to alter her teihper, She will, undoubtedly, make any man happy, whom She can love -- ^^ -- = -- But, as I was telling you -- I have desired Mrs. Staples to Spend a few weeks with me.
-She is not an eligible companion, I musl confess, though, 1 believe, a very Safe one. -- Lord woburn has taken a Strange dislike to her -- and does not e ven conceal his displeasure, at having fo much of
-her company, -- -- -- -- -- Why, then, will he oblige
-rne to have recourse to Such disagreeable expedients to keep him at' a proper drltance.? -- ^ and yet I cannct', Sind fault with him. -- T Should not be pleased to see
-him cold and insensible neither -- folie called me
-t
-t’other day. -- -1 would be tenderly loved, but I
-Would also be loved with discretion. -- Perhaps a man of lord woburn’s fusceptibility, cannot love
-and be discreet at the farne time-- -- is better,
-therefore, for Us both to be watchful over ourselves | and he ought no longer to fret about Mrs. Staples.
-LETTER XLV
-Lord Woburn to Mr. Wilmot.'
-IT is adfually come to an open rupture between us, and I am the moult Satisfied man in the world, with regard to her virtue j but I have Some doubts about her renderness. -- Can any woman love as She ought, and be So intolerably prudent.? -- You Shall
-hear. -- -- 1 waited for that confounded Mrs Staples s
-absence for several weeks, and heartily cursed her during that time. -- Mrs. Elliot happening to he not very well, Sent for her, to my great joy, one evens
-4. ing.
-ing -- -- Kitty, at my instigation, though lady Char;;
-by no means approved of her removal, took that opportunity to go into her own apartment, |
-to write a letter to her mother. -- -- -1 then Seized the i
-critical minute, and amply revenged myself on this | lovely woman, for keeping me at fo cruel a dif j
-tance -- -- -- She received my first caresies pasiively e;;
-and appeared to be not a little asfedled by! the tenderness I lavislied upon her, but upon my re: : them with redoubled warmth and ardour, 1 She Smarted from my arms, pushed me from her with; a quickness and agility, for which I was not prepared, and told me, that as She could not have believed, I would have offered to insult her in that manner, She Should infill upon my leaving her, till I knew how to behave with more decency and : respedt. I
-Firing at the iiaughtiness with which this reproof was delivered, and half mad with my disappointment, I told her that I had for sometime suspe£led her of having more pride than pardon; and that I would Sooner perisli, than marry a woman divested of every tender sensation;
-I was even Severe enough, to impute the repulse,
-I had met with to an asfefted modesty -- -- -- -- adding,
-that I Saw plainly, She had no aversion to the freedoms She complained of, though She chose to deny herself any pleasure, rather than make me happy, by the moult trifling gratification.
-Here I stopped the Sharp esfufions which my ungovernable resentment had occasioned, and was thinking of some submisiions for the illiberal language She had forced from me. -- At that instant, She very calmly desired me to leave her to herself, as Ihe had for sometime wisiied to be alone.
-I was just ready to curse her provoking coolness, though I Strove to Stifle my anger in hopes of bringing about a recqnciliation. -- She rose, and, palling
-by
-JL U K JJ W U 13 U K IN. 12,
-hy me hastily, without Speaking a Syllable, walked up stairs.
-I stood looking after her for some moments, hardly astured whether I was awake or in a dream, yet, expecting every moment to See her return. -- No ~. her return would have been too great a condescension. -- I, therefore after having waited till I was weary, went home.
-I went home, but could not close my eyes all night. -- Deeply did I ruminate on charlotte’s Spirited behaviour, her highly proper behaviour, and loved her the more for her resistance to the vigorous efforts which I purposely made, to put her discretion to h e trial.
-Yet I thought She had discovered too much pride, too much disdain, with her prudence. -- Had there been more Softness, mixed with her laudable opposition, T Should have deemed no submisiions too great, for the recovery of her favour. -- But She
-does not, I am sure She cannot, love me. -- -- And
-shall I go and fling myself away upon a woman who feels no tenderness for me, who is absolutely unmoved by my pasfion for her.? Shall I, who have been fo extremely beloved -- by all women, ' I may
-fay-- -- I -- No !• -- I will perish sirst. -- "However,
-I humbled myself So far, as to call at her door the
-next morning. -- Would you believe it -- -- -- the insolent
-creature was denied -- ^yesj She was denied
-I Sent again in the evening, to know if She was at home, for I would not lay myfeif open to another insult, inperfon, from her Servants.
-My fellow brought me word, that She was gone, out of town.
-"Out of town?" cried I, storming at him -- I could have pistoled him for his d -- -- -- d information
--- "whither ?"
-He fneakingly replied, "that he did not know, -- F
-D -- -- n you, then. Said I, go and ask, "
-'~ f < And
-And now. Jack, I am absolutely ashamed of my pasiionate behaviour before my own Servant, -- How have I demeaned myself! -- Yet I will not write to
-this proud beauty, nor will I run after her. if
-she really loves me, my neglect will Sting her to the ' quick; and She will Strike upon some expedient to
-lure me back again. -- I will be courted now.
-What, am I to be made a woman’s Sool, bepause She happens to be more chaste than her neighbours? -- I Swear I begin to think her innocence may be disputed. -- There is no great merit in refusing a dish which is not agreeable to your palate, -- And yet I detefl, I abhor myfeif for having carried matters So Sar. -- What a precipitate dog have I been.? -- But Since I have plunged myself into this cursed Situation, I will die before I will tamely yield to her insurmountable pride. -- Yield! -- No -- She Shall be humbled in her turn.
-'4^ ^ ^
-LETTER XLVI
-Lady Charlotte Morden to Mrs. blo.vte*., ’
-IH A V E often said, my dear Mrs. Blomer, that I was too particular in my choice, ever to be happily married; and I Sind no reason to retradt my frequent assertions. -- I am exceedingly disappointed with regard to lord Woburn. -- I all along Seared, indeed, that he was inclined to be too Sree with women j but though I had Seen Some pretty Strong proofs of his free disposition, I could not have thought he would have presumed to take unbecoming liberties with me, who never gave him the leash encouragement to imagine, that they would be endured.
-dtired. -- Nor could I have thought, that he would have discovered So little inclination to make a proper apology for his unwarrantable behaviour.' -- -- --
-But Since it is So, I will Stifle every sensation in his favour. -- Whatever pain I may Suffer in giving up a man, who in other respedls, is really very amiable -- and determine to See him no more. -- I have not Spirits at this time, my dear friend, to enter into a detail of the new difference between us. -- I havfe, however related it very fuccinftly to Mrs. Elliot, who will write to you by this posl, and who has been kind enough to go down with me to a house I have taken at Windsor for a few weeks, till I am better reconciled to this unexpedled change in rtiy Situation. -- I am not able to say any more. -- I can only add, that I am, that I ever flrall be, my dear Mrs, blomer’s
-most asfedtionate,
-C M.
-/ '.A V ‘ V V '%
-I
-LETTER XL VII
+<p class="centered small"><i>DUBLIN:</i></p>
+
+<p class="centered small">Printed for JAMES WILLIAMS, at<br>No. 5. in SKINNER-ROW.<br>MDCCLXXIII.</p>
+
+---
+
+## LETTER XLIV.
+
+Lady Charlotte Morden to Mrs Blomer.
+
+Every hour, my dear friend, since you left me, have I regretted your departure; -- but I am particularly asfedled by your absence at present, Your apprehensions on my account, my good Mrs. Blomer, were not ill-founded. -- Lord Woburn is but too amiable. -- Yet do not mistake me -- a man fo uncommonly agreeable; a man who has some reason to demand a return of affection, is rather to be feared, especially when he is, I see, too apt to be offended at my refusing liberties which, though allowable in a degree, must at this juncture, be reckoned both indelicate and indiscreet -- To avoid therefore, any dispute or difference with a man  whom I cannot displease, without feeling very pain; sensations, I would seldom receive him alone; I would never, at least be alone with him a great while happy, then, would your company make me at this time, as the awe which your appearance always  inspires, would be of considerable service to me.
+
+I have invited Mrs. Staples to come and stay with me; not only to be a check upon my lord, but upon myself -- miss Downton being looked upon by him as of little consequence -- They are, indeed, upon so familiar a footing, that she comes and goes at his bidding, and takes as much pains to please him, as if she was in love with him; and in truth, I believe she feels all that her young heart is capable of feeling for him -- After having left me, alone! with him, t’other day, I told her, when he was gone that I was afraid lord Woburn had made her cease to be my friend; and that I was a little jealous of the preference she gave him.
+
+She threw her arms round my neck, and said, "No, indeed, my lady, I love you as well as ever, but my lord is so entertaining, and looks so handsome that I cannot refuse him." -- She is a sweet insinuating girl but too young to be talked with upon this subject; I know not how soon such a conversation may be necessary, as the men begin to take a great deal of notice of her. -- Sir Charles pays much court to her, though she is so young a girl -- Mrs. Elliot tells me, he is so attentive to her, because he knows she is my favourite. -- But to what purpose can he behave in this manner, as I am engaged. -- He is, I think, rather too particular to me; but as he is reckoned amiable, and as his character is unexceptionable, I shall be glad to See an alliance bye and bye, between him and miss Downton. -- She has an excellent disposition; and if nothing happens to alter her temper, she will, undoubtedly, make any man happy, whom she can love. -- But, as I was telling you -- I have desired Mrs. Staples to spend a few weeks with me.
+
+She is not an eligible companion, I must confess, though, I believe, a very safe one. -- Lord Woburn has taken a strange dislike to her -- and does not even conceal his displeasure, at having so much of her company. -- Why, then, will he oblige me to have recourse to such disagreeable expedients to keep him at a proper distance? -- And yet I cannot find fault with him. -- I Should not be pleased to see him cold and insensible neither -- so he called me t’other day. -- I would be tenderly loved, but I
+would also be loved with discretion. -- Perhaps a man of lord Woburn’s susceptibility, cannot love and be discreet at the same time. It is better, therefore, for us both to be watchful over ourselves and he ought no longer to fret about Mrs. Staples.
+
+---
+
+## LETTER XLV
+
 Lord Woburn to Mr. Wilmot.
-I A M half dislrafted. -- I could curse myfeif, and
+
+It is actually come to an open rupture between us, and I am the most satisfied man in the world, with regard to her virtue; but I have some doubts about her tenderness. -- Can any woman love as she ought, and be so intolerably prudent? -- You shall hear. -- I waited for that confounded Mrs. Staples's absence for several weeks, and heartily cursed her during that time. -- Mrs. Elliot happening to he not very well, Sent for her, to my great joy, one evening -- -- Kitty, at my instigation, though lady Charlotte by no means approved of her removal, took that opportunity to go into her own apartment, to write a letter to her mother. -- I then seized the critical minute, and amply revenged myself on this lovely woman, for keeping me at so cruel a distance -- She received my first caresies pasiively and appeared to be not a little affected by the tenderness I lavished upon her, but upon my repeating them with redoubled warmth and ardour, she smarted from my arms, pushed me from her with a quickness and agility, for which I was not prepared, and told me, that as she could not have believed, I would have offered to insult her in that manner, she should insist upon my leaving her, till I knew how to behave with more decency and respect. 
+
+Firing at the haughtiness with which this reproof was delivered, and half mad with my disappointment, I told her that I had for sometime suspected her of having more pride than pardon; and that I would sooner perisj, than marry a woman divested of every tender sensation.
+
+I was even severe enough, to impute the repulse,
+I had met with to an affected modesty -- adding, that I saw plainly, she had no aversion to the freedoms she complained of, though she chose to deny herself any pleasure, rather than make me happy, by the most trifling gratification.
+
+Here I stopped the sharp effusions which my ungovernable resentment had occasioned, and was thinking of some submissions for the illiberal language she had forced from me. -- At that instant, she very calmly desired me to leave her to herself, as she had for sometime wished to be alone.
+
+I was just ready to curse her provoking coolness, though I strove to stifle my anger in hopes of bringing about a reconciliation. -- She rose, and, passing  me hastily, without speaking a syllable, walked up stairs.
+
+I stood looking after her for some moments, hardly assured whether I was awake or in a dream, yet, expecting every moment to see her return. -- No -- her return would have been too great a condescension. -- I, therefore after having waited till I was weary, went home.
+
+I went home, but could not close my eyes all night. -- Deeply did I ruminate on Charlotte’s spirited behaviour, her highly proper behaviour, and loved her the more for her resistance to the vigorous efforts which I purposely made, to put her discretion to the trial.
+
+Yet I thought she had discovered too much pride, too much disdain, with her prudence. -- Had there been more softness, mixed with her laudable opposition, I should have deemed no submissions too great, for the recovery of her favour. -- But she does not, I am sure She cannot, love me. -- And shall I go and fling myself away upon a woman who feels no tenderness for me, who is absolutely unmoved by my passion for her? Shall I, who have been so extremely beloved -- by all women, I may say -- shall I -- No! -- I will perish first. -- However, I humbled myself so far, as to call at her door the next morning. -- Would you believe it -- the insolent creature was denied -- yes, she was denied -- I sent again in the evening, to know if she was at home, for I would not say myself open to another insult, in person, from her servants.
+
+My fellow brought me word, that she was gone, out of town.
+
+"Out of town?" cried I, storming at him -- I could have pistoled him for his d -- d information -- "whither?"
+
+He sneakingly replied, "that he did not know, --"
+
+"D -- n you, then. said I, go and ask."
+
+And now, Jack, I am absolutely ashamed of my passionate behaviour before my own servant, -- How have I demeaned myself! -- Yet I will not write to this proud beauty, nor will I run after her. If she really loves me, my neglect will sting her to the quick; and she will Strike upon some expedient to lure me back again. -- I will be courted now.
+What, am I to be made a woman’s fool, bepause she happens to be more chaste than her neighbours? -- I swear I begin to think her innocence may be disputed. -- There is no great merit in refusing a dish which is not agreeable to your palate, -- And yet I detest, I abhor myself for having carried matters so far. -- What a precipitate dog have I been? -- But since I have plunged myself into this cursed situation, I will die before I will tamely yield to her insurmountable pride. -- Yield! -- No -- She shall be humbled in her turn.
+
+---
+
+## LETTER XLVI. 
+
+Lady Charlotte Morden to Mrs. Blomer. 
+
+I have often said, my dear Mrs. Blomer, that I was too particular in my choice, ever to be happily married; and I find no reason to retract my frequent assertions. -- I am exceedingly disappointed with regard to lord Woburn. -- I all along feared, indeed, that he was inclined to be too free with women; but though I had seen some pretty strong proofs of his free disposition, I could not have thought he would have presumed to take unbecoming liberties with me, who never gave him the leash encouragement to imagine, that they would be endured. -- Nor could I have thought, that he would have discovered so little inclination to make a proper apology for his unwarrantable behaviour. --
+But since it is so, I will stifle every sensation in his favour. -- Whatever pain I may suffer in giving up a man, who in other respect, is really very amiable -- and determine to see him no more. -- I have not spirits at this time, my dear friend, to enter into a detail of the new difference between us. -- I havee, however related it very succinctly to Mrs. Elliot, who will write to you by this post, and who has been kind enough to go down with me to a house I have taken at Windsor for a few weeks, till I am better reconciled to this unexpected change in my situation. -- I am not able to say any more. -- I can only add, that I am, that I ever shall be, my dear Mrs. Blomer’s
+
+> Most affectionate,
+
+>> C.M. 
+
+---
+
+## LETTER XLVII.
+
+Lord Woburn to Mr. Wilmot.
+
+I am half distracted. -- I could curse myfeif, and
 all the world. -- How could I be Such an idiot,
 as to carry my fuspicions So far.? -- Having never met with anything like virtue in a female form, before I hastily supposed that the loveliest, the most amiable of women, was no better than those with whom I had conversed-- -- I am, certainly, quite mistaken. -- -- She is everything that’s good, and She
 loved me -- beyond expreilion. -- Fool! fool I tolose
