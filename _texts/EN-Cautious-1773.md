@@ -1225,71 +1225,49 @@ But since it is so, I will stifle every sensation in his favour. -- Whatever pai
 
 Lord Woburn to Mr. Wilmot.
 
-I am half distracted. -- I could curse myfeif, and
-all the world. -- How could I be Such an idiot,
-as to carry my fuspicions So far.? -- Having never met with anything like virtue in a female form, before I hastily supposed that the loveliest, the most amiable of women, was no better than those with whom I had conversed-- -- I am, certainly, quite mistaken. -- -- She is everything that’s good, and She
-loved me -- beyond expreilion. -- Fool! fool I tolose
-the
-tel., ■ -- -4
-'Withe
-only woman with whom I could have been happy I To lose her by my own ridiculous nonfense! -- Have I not often tried her! Have I not always found heraverse tomy unjustifiable familiarities? Her delicacy was grosly affronted, and She has totally given me up. -- She has alienated her affections
-from me, and will bless Somebody with the pos sesfion of that heart, that valuable heart, which once owned me for its masler.
-Sir Charles is, I hear, gone down after her to Windsor, to jsvhich place She has chosen to retire from my impertinent persecutions. -- I Said I would not write, but I could not forbear, -- Hearing upon farther inquiry, that She did not intend to return, I wrote a few incoherent lines, in order to
-apologise for my Strange conduct. -- -- -- 1 cannot
-repeat them; they were not Sit to be transmitted to her; but I was not capable of expresiing myself in a better manner. -- Had I, however, written with the pen of an angel, Sire would have rejected my letter as She has rejeued me. -- I Sent Salway with it. -- The reply was, that lady Charlotte was ill. -- Anything
-Served for an excuse not to make it up. -- Yet it
-She ever did love me. She could not have been So violently inflamed against me, for discovering a high relisli for her overpowering beauties -- No -- She reserves herself for Conyers -- but he Shall not triumph over me. -- Readily will I hazard my life for such a charming creature. -- But am I Sure that by the death of my adversary, I Shall make her mine? -- No -- but if I fall She may perhaps, drop a tear to my memony.
-LETI
-VW w XV
-LETTER XLVIII
-From the same to the Same.
-\
-SH E is sick-- -- is dying, for aught I know. -- »
-I Shall run mad. -- I had believed that her ill ness was only counterfeited; She wanted to avoid
-the light of me, I imagined. -- I was mistaken -- --
-Would I were not mistaken 1 -- I would give up anything, everything, to have her restored to me j but I fear I must not expect her recovery. -- I send continually to know how Sire does, but She is too bad to hear of my inquiries -- To what a ridiculous -- to what a horrid Situation, Indeed, have I brought
-myfeif.? -- And yet how could I venture to Spend
-my life with any woman -- as women go -- till I had
-tried her Could I have imagined that this trial
-would have coil lady Charlotte her life.? -- -- Heaven forbid! I concluded, that the liberties I had taken would occasion a Slight resentment at the time; that resentment, I thought, would Soon be over, and
-give way to returning friendship. How am I dist
-appointed 1 How wretched am I! If She Sinks under her present illness, I will leave the kingdom, and never think of women again, as long as I breathe,
-LET
-n i o i vj s X
-•I###########?
-letter XLIX
-From the Same to the same.
-SH E lives -- She is better .delightful information! No mestage, however, has yet been
-delivered to her from me. -- -- Yet I am fo Satisfied,
-fo transported with her being quite out of danger,
-that I hardly think of myfeif at all. -- Let her but
-live, and I will trust to her excellent dispofition, to restore me to the place I once had in her csteera. -- In the mean time I have a thousand fears, left Ihe Should not recover. -- She cannot I thi k, continue to be angry with me for loving her j yet She may deem it necestary to keep up an appearance of anger in order to Save her credit.
-In Short, I am almost lick myfeif, with dwelling
-upon this foolish business; and yet, for the soul
-of me. I cannot repent of a conduct which has discovered her to be the most amiable creature in the world,
-/
-* J
-L E T
-KS JLP VY V X VJ IS. 135
-!###§##### it
-LETTER L
+I am half distracted. -- I could curse myself, and all the world. -- How could I be such an idiot, as to carry my suspicions so far? -- Having never met with anything like virtue in a female form, before I hastily supposed that the loveliest, the most amiable of women, was no better than those with whom I had conversed -- I am, certainly, quite mistaken. -- She is everything that’s good, and she
+loved me -- beyond expression. -- Fool! fool! to lose
+the only woman with whom I could have been happy I to lose her by my own ridiculous nonsense! -- Have I not often tried her! Have I not always found her averse to my unjustifiable familiarities? Her delicacy was grossly affronted, and She has totally given me up. -- She has alienated her affections from me, and will bless somebody with the pos sesfion of that heart, that valuable heart, which once owned me for its master.
+
+Sir Charles is, I hear, gone down after her to Windsor, to which place She has chosen to retire from my impertinent persecutions. -- I Said I would not write, but I could not forbear, -- Hearing upon farther inquiry, that She did not intend to return, I wrote a few incoherent lines, in order to apologise for my strange conduct. -- I cannot repeat them; they were not sit to be transmitted to her; but I was not capable of expressing myself in a better manner. -- Had I, however, written with the pen of an angel, she would have rejected my letter as she has rejected me. -- I sent Salway with it. -- The reply was, that lady Charlotte was ill. -- Anything served for an excuse not to make it up. -- Yet if she ever did love me, she could not have been so violently inflamed against me, for discovering a high relish for her overpowering beauties -- No -- She reserves herself for Conyers -- but he shall not triumph over me. -- Readily will I hazard my life for such a charming creature. -- But am I sure that by the death of my adversary, I shall make her mine? -- No -- but if I fall she may perhaps, drop a tear to my memory.
+
+---
+
+## LETTER XLVIII
+
 From the same to the same.
-•»
-IWAS distracted a few days with the terrors of losing her by death, and now 1 am as unhappy by the certainty of losing her, from her prepof feslions against me. -- You may tellme, that I am too delicate in my sentiments, that I am capricious, and do not know what I would have 1 -- but you are out : every man Should wilh to marry a woman of virtue, or how can his honour be Sale? How can he be Sure that his children are his own? And as women are nrore corrupt, and more loose. in their manners than ever, who can be Secure but by chusing a woman of real virtue? and how the devil will you know whether She is chaste till you have tried her.? -- You tell me, I musl have long seen by lady charlotte’s behaviour, that She was of a mild modesl temper j and ask me, what I would have more? She is, indeed, modesl and mild, or I
-Slrould not have thought of her at all. you tell
-me, also, that as I found her very averse to the improper freedoms I took, I Should have proceeded no farther. -- I Subscribe to your firsl posirion, my friend, hut not to your Second. -- If I had only confined myfeif to the liberties allowable in every man who is an accepted lover, how Should I have been certain ofher being able to resisl unwarrantable ones.? -- -- I am now well astured that She is thoroughly dis pleafed with my too great familiarities, though Sire loved me at the Same time-- -- though I firmly be'ieve She did love me, I do not Imagine She ever loved me with a pasiion adequate to my own.
-H 1 S 1 U K Y O f
-with that excesiive ardour, which can alone render me Supremely happy.
-I don’t think She loves me at all at present. -- By refusingmy visits, She gives sushcient encouragement to this disheartening conjecture. -- Had She been as fondly attached to fme, as I .hoped She was She could not hav e totally repelled my endearments. -- However, whether She is So attached to me or not, She is a vestal, as women run; and, therefore, I Shall be extremely ready to take her as She is. -- Yeti own I am seriously piqued at her behaviour to me. -- I have not been accustomed to refusals-- -- to be repulsed when things were in Such a forwardness l^how ridiculous a man looks, fo Situated .?■ -- My pride never received a Severer blow. -- If She persists in keeping up this humour, and will not be reconciled, I cannot say to What I may be driven j "perplexed in the extreme, " T
-may do Some action- -- -- -- --
-Shall write to her once more j if that makes no impresiion, I must conclude that She avails herself of this pretence to break with me, in order to be at liberty to give her hand to Sir Charles Conyers, who, from the progress he has made in the Elliot family, gets admittance to her. -- He, he is admitted. -- I -- 1 only, am denied.
-V
-LET
-^ ^
-LETTER LI
-Lady Charlotte Morden to
-Mrs. Blomer.
-YOU press me to write to you, my dear friend, but I have neither health nor Spirits; I am not Satisfied with myself, nor with anybody else. -- ^ Even you, my dear Mrs. Blomer, Seem to have changed your Sentiments about me, and urge me to accept of Sir Charles Conyers. You tell me, that you are well acquainted with him, and know him
+
+She is sick --- she is dying, for aught I know. -- I shall run mad. -- I had believed that her illness was only counterfeited; she wanted to avoid the light of me, I imagined. -- I was mistaken -- Would I were not mistaken! -- I would give up anything, everything, to have her restored to me; but I fear I must not expect her recovery. -- I send continually to know how she does, but she is too bad to hear of my inquiries -- To what a ridiculous -- to what a horrid situation, indeed, have I brought myself? -- And yet how could I venture to spend my life with any woman -- as women go -- till I had tried her? -- Could I have imagined that this trial would have cost lady Charlotte her life? -- Heaven forbid! I concluded, that the liberties I had taken would occasion a slight resentment at the time; that resentment, I thought, would soon be over, and give way to returning friendship. How am I disappointed! How wretched am I! If She sinks under her present illness, I will leave the kingdom, and never think of women again, as long as I breathe. 
+
+---
+
+## Letter XLIX. 
+
+From the same to the same.
+
+She lives -- She is better -- Delightful information! No message, however, has yet been delivered to her from me. -- -- Yet I am so satisfied, so transported with her being quite out of danger, that I hardly think of myself at all. -- Let her but live, and I will trust to her excellent disposition, to restore me to the place I once had in her esteem. -- In the mean time I have a thousand fears, lest she should not recover. -- She cannot I think, continue to be angry with me for loving her; yet she may deem it necessary to keep up an appearance of anger in order to save her credit.
+
+In Short, I am almost sick myself, with dwelling upon this foolish business; and yet, for the soul of me. I cannot repent of a conduct which has discovered her to be the most amiable creature in the world. 
+
+---
+
+## LETTER L.
+
+From the same to the same.
+
+I was distracted a few days with the terrors of losing her by death, and now I am as unhappy by the certainty of losing her, from her prepossessions against me. -- You may tell me, that I am too delicate in my sentiments, that I am capricious, and do not know what I would have; -- but you are out: every man should wilh to marry a woman of virtue, or how can his honour be sale? How can he be sure that his children are his own? And as women are more corrupt, and more loose in their manners than ever, who can be Secure but by chusing a woman of real virtue? and how the devil will you know whether she is chaste till you have tried her? -- You tell me, I must have long seen by lady Charlotte’s behaviour, that she was of a mild modest temper; and ask me, what I would have more? She is, indeed, modest and mild, or I should not have thought of her at all. You tell me, also, that as I found her very averse to the improper freedoms I took, I should have proceeded no farther. -- I subscribe to your first position, my friend, hut not to your second. -- If I had only confined myself to the liberties allowable in every man who is an accepted lover, how should I have been certain of her being able to resist unwarrantable ones? -- I am now well assured that She is thoroughly displeased with my too great familiarities, though she loved me at the same time. -- But though I firmly believe she did love me, I do not smagine She ever loved me with a passion adequate to my own with that excessive ardour, which can alone render me supremely happy.
+
+I don’t think she loves me at all at present. -- By refusing my visits, she gives sushcient encouragement to this disheartening conjecture. -- Had She been as fondly attached to fme, as I hoped She was she could not have totally repelled my endearments. -- However, whether She is so attached to me or not, she is a vestal, as women run; and, therefore, I shall be extremely ready to take her as she is. -- Yet I own I am seriously piqued at her behaviour to me. -- I have not been accustomed to refusals -- to be repulsed when things were in such a forwardness! How ridiculous a man looks, so situated? -- My pride never received a severer blow. -- If she persists in keeping up this humour, and will not be reconciled, I cannot say to what I may be driven; "perplexed in the extreme," I  may do some action. --
+
+I shall write to her once more; if that makes no impression, I must conclude that she avails herself of this pretence to break with me, in order to be at liberty to give her hand to Sir Charles Conyers, who, from the progress he has made in the Elliot family, gets admittance to her. -- He, he is admitted. -- I -- I only, am denied.
+
+---
+
+## LETTER LI. 
+
+Lady Charlotte Morden to Mrs. Blomer.
+
+You press me to write to you, my dear friend, but I have neither health nor Spirits; I am not Satisfied with myself, nor with anybody else. -- ^ Even you, my dear Mrs. Blomer, Seem to have changed your Sentiments about me, and urge me to accept of Sir Charles Conyers. You tell me, that you are well acquainted with him, and know him
 to be a man of the nicesl honour. you may be
 right -- I have nothing to say to the contrary; and yet I find in myself not the Slightest inclination for him J and I will marry no man, in whole favour I
 am not very Strongly preposiested indeed. iwas
