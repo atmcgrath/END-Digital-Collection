@@ -1267,24 +1267,17 @@ I shall write to her once more; if that makes no impression, I must conclude tha
 
 Lady Charlotte Morden to Mrs. Blomer.
 
-You press me to write to you, my dear friend, but I have neither health nor Spirits; I am not Satisfied with myself, nor with anybody else. -- ^ Even you, my dear Mrs. Blomer, Seem to have changed your Sentiments about me, and urge me to accept of Sir Charles Conyers. You tell me, that you are well acquainted with him, and know him
-to be a man of the nicesl honour. you may be
-right -- I have nothing to say to the contrary; and yet I find in myself not the Slightest inclination for him J and I will marry no man, in whole favour I
-am not very Strongly preposiested indeed. iwas
-never very desirous of altering my Situation in life. -- The disappointment which I have met with, will probably prevent me from making any alteration in It.
-I agree with you, that Sir Charles is very Solicitous to please me; but if I am not to be pleased, I cannot help it. -- You tellme that I must go more into company, and Strive to conquer my melancholy. -- I may See a thousand people without being made in the least chearfuller by them. -- However, I have consented to oblige Mr. and Mrs. Elliot, and to return to London, though I had much rather continue here, provided Sir Charles would visit me less frequently-- -- and Mrs. Elliot chuse to See him,
-I cannot, therefore, avoid him, without confining, myfeif to my own apartment.' -- To such a confinement my friends are excedingly averse-- -- shoum have no. dislike to Sir Charles, as a common acqua/i^,
-tancsw
-130 iii o 1 V js. I w r
-tance; but his asiiduities -- I had almost added his impertinences -- -- -- -- --
-Kitty is here at present. -- As I cannot have your
-company, Sire is my most desirable companion. -- -- --
-With her, with my books', with my drawings, and now and then a visit from Mr. and Mrs. Elliot, I
-could be content. -- But it muit not be; they will
-force rne among people, in Spite of all my wislres to the contrary.
-LETTER LIII
-,
-Lord Woburn to Mr. Wilmot,
+You press me to write to you, my dear friend, but I have neither health nor Spirits; I am not satisfied with myself, nor with anybody else. -- Even you, my dear Mrs. Blomer, seem to have changed your sentiments about me, and urge me to accept of Sir Charles Conyers. You tell me, that you are well acquainted with him, and know him to be a man of the nicest honour. You may be right -- I have nothing to say to the contrary; and yet I find in myself not the slightest inclination for him; and I will marry no man, in whole favour I am not very strongly prepossessed indeed. I was never very desirous of altering my situation in life. -- The disappointment which I have met with, will probably prevent me from making any alteration in It.
+I agree with you, that Sir Charles is very solicitous to please me; but if I am not to be pleased, I cannot help it. -- You tell me that I must go more into company, and strive to conquer my melancholy. -- I may see a thousand people without being made in the least chearfuller by them. -- However, I have consented to oblige Mr. and Mrs. Elliot, and to return to London, though I had much rather continue here, provided Sir Charles would visit me less frequently -- and Mrs. Elliot chuse to see him, I cannot, therefore, avoid him, without confining, myself to my own apartment. -- To such a confinement my friends are exceedingly averse. -- I should have no dislike to Sir Charles, as a common acquantance; but his assiduities -- I had almost added his impertinences -- 
+
+Kitty is here at present. -- As I cannot have your company, she is my most desirable companion. -- With her, with my books, with my drawings, and now and then a visit from Mr. and Mrs. Elliot, I could be content. -- But it must not be; they will force rne among people, in spite of all my wishes to the contrary.
+
+---
+
+## LETTER LII.
+
+Lord Woburn to Mr. Wilmot. 
+
 I HAD just resolved upon writing again to ladjr Charlotte, when a thought flew into my head, which has done the businefs much better.
 Having taken care to inform myself of all her motions Since our difference, I heard that, though She was recovered from her illness, She was in a deep
 melancholy, which Seemed to be immoveable; -- -- -- --
