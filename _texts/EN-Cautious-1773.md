@@ -1363,98 +1363,76 @@ Lord Woburn to Mr. Wilmot.
 Since I have been assured that lady Charlotte is the dear delicate creature I always hoped to find her, I am become as light as air. I really never, was completely happy, till I was sensible of this charming woman’s tenderness, and that her affection for me was as pure as it was ardent.
 Thoroughly convinced of the purity of her love, as well as the ardour of it, my mind is no longer disturbed with doubts, and tortured with suspicions. I therefore behave to her quite in another manner; which will, I hope, remove all her apprehensions concerning me, and induce her to place some confidence in me. -- She is already much more easy than she was in my company, and more inclined to allow me all reasonable freedoms, as she finds that I do not abuse them.
 
-Things are, through my care and activity, in great forwardness towards the completion of my happiness. -- The settlements, &c. &c. are preparing. -- I offer *carie blanche* -- She modestly framed objections to such a proceeding; Mr. Elliot, as her guardian and friend to us both, compromised matters between us. -- Yet the dear creature tells me, I am too disinterested; but I say not. -- I would never marry the woman whom J could not tiust with all my fortune.
--- -- -- Do I not put a far greater confidence in lady
-Charlotte ?^ -- is not her own honour, as well as |
-mine, of more consequence, infinitely of more consequence, than a few paltry thousands?? -- her, all the money in. the universe would not give me a moment’s joy; with her, and a Sufficiency for
-her 
-her convenience, I Shall be amply provided for.
+Things are, through my care and activity, in great forwardness towards the completion of my happiness. -- The settlements, &c. &c. are preparing. -- I offer *carie blanche* -- She modestly framed objections to such a proceeding; Mr. Elliot, as her guardian and friend to us both, compromised matters between us. -- Yet the dear creature tells me, I am too disinterested; but I say not. -- I would never marry the woman whom I could not trust with all my fortune. -- Do I not put a far greater confidence in lady Charlotte? -- Is not her own honour, as well as mine, of more consequence, infinitely of more consequence, than a few paltry thousands? -- Without her, all the money in the universe would not give me a moment’s joy; with her, and a sufficiency for her convenience, I shall be amply provided for.
 
-Poor Ned absolutely Straitens himself to find Supplies adequate to lady louisa’s vans;; is a moll
-extravagant, voluptuous little toad. -- -- y\s I was
-obliged to be cool to her, I have lately been out of her favour -- -- but I could not refuse ned’s importunities,
-who dotes upon this idol, to See her dance the other day; he made a kind of a ball, and as he and his wife have been to visit lady Charlotte, with, my Sister and Sir George, he Sent cards to lady Charlotte and her friends for this entertainment; Sire honoured him with her presence, and Kitty down tonne was our party.
-Lady Charlotte, who knows that I am not a great dancer, excufi; d herself, by Saying, that She was Scarcely recovered from her late illness. -- Lady louisa danced an allemand with colonel Striker; had She been my wife, ihe should have had her feet cut osi'.
--- -- Never were there mcie charming and inviting
-attitudes, consequently very improper ones for married women. -- -- No woman, indeed in my opinion,
-but a profesfed stage dancer, Slrould attempt to excel
-in an allemand. -- -- She who has a design to make
-her fortune, and who imagines She Shall carry her point, by Sliewing her person in an alluring light, is certainly in the right to Study this dance with the nicest attention, for no dance is better calculated to premote the tender passion between the Sexes; but a woman who has been modestly educated, and who thinks as She ought, Mill never wish to be admired in public, for attitudes which can Serve only to excite the loofest ideas. -- It would disgust me in the highest degree, to See my Sister or daughter clasp a nian in her arms, to whom Sire was an utter Stranger, and be clasped by him in return. -- -- But if my
-’voife Slrould attempt to take Such monstrous liberties, or to admit of them, I believe I Should go dis trafted. -- Lady Charlotte has not discovered the
-xjl A o JL K I r j
-\
-»
-• least propensity that way; but Kitty Dovrnton, after we got home, gave a lively, and not an un 5
-graceful jump, and said She fancied She could Soon j
-learn the attitudes which She had.seen. |
-"Fie, Kitty !" replied my dear Charlotte. j
-, "Were I your father or guardian, " Said I, "those ■arms Should be pinioned down, and those legs tied j together, to prevent your exposing yourself in that preposterous manner."
-The poor girlcoloured, T-- -- -- -- -- really brieve She
-meant no harm, but Spoke merely from the liveliness i of her temper. After having clapped her hands to her face for a few moments. Sire ran to me, and, with a pleasing naivete, cried, "Pray, my lord,,
-don’t think amiss of mer- -- -- -- -- -- I did not;
-intend to say anything improper; but 1 always loved exercise, and I have heard you declare a hundred times,. that dancing was very proper for .young people." '■.......!
-"Aye, .child, ’’ replied I, laughing at her Simplicity, "under prudent regulations it may be very i wholesome, for aught I know; but I cannot approve of all kinds of dances, nor do I think that dancing after .marriage, is at all necessary for any woman." I
-"I may dance then in a prudent manner a long; while, for I am sure I slran’t be married.?
-"Why So ?" replied lady Charlotte.
-You have not made a vestal vow, surely, t Kitty ?" added I. _ 1
-"No, my lord, " answered She blushing, "but I shall be very nice in my man; and if it.is not proper j for me to dance an allemand, I Should not choose, I methinks, a man who would dance one with any I
-body elfe." _ 1
-"Sir Charles Conyers, my dear Kitty, " replied I,
-"will endeavour to make himself agreeable to you j
-in every respect,,
-"pslraw I :
-"Phaw I [turning away her face] how you love to rally ie my lord, -- But you Vvill See, that with all' yout sense and penetration, you may be mistaken.. Sir Charles is my Superior, indeed, in point of fortunh, but I would not marry a king if I did not love him.
-Noble Sentiments, Jack, in a girl of fifteen! -- --
-Is She not worthy of my charlotte’s friendsliip -- --
-You See the esfe£ts of good education -- What an amiable innocent this girl is! ’ She may be made an
-excellent woman. -- -- ^but it is a thousand to one if '
-Sire is not Spoilt strst. -- Under my Charlotte’;;.
-tuition, it 13 true sl'ic vi^culd, certainly improve, yet I Slrould not chuse to have her live witn us : She ■ would draw a train of fellows after her. -- ^ -- besides, a man and his wife do better by themselves how many famous disferences have I known to a rise, merely from the interposition of a third person!!
--- -- -- Siich person Should I choose in my family.
--- T must lock'slrarp’ aster Mrs: Dawson;; is Something in that woman very particular •, Sire casts glances at me with a meaning in them, which I am in no humour to comprehend at present 7^ -- ^^posiibly, tvhen 1 have been married a iittle while, J may begin to grow less rigid; yeti dare believe, that if my Charlotte continues to be the amiable woman She is, •
-I Shall not bfestow a thought' on any other -- -- -- -- a
-Woman true to'her hushand is So rare a creature, that though Sire barely does her' duty. Sire is infinitely Superior to the majority of her neighbours; and he must be an unreasonable man, indeed who complains ’ of his lot with such a companion
-Kitty, Downton, may, I firmly believe, be made a good wife, for She is ani exceeding good girl at present-- -- vas fo hurt by what I said to her about the allemand, that She came running to me the first ume I happened to be alone, and begged me '
-G 3 not
-.lj.j.ojlvyinxwr
-\ i
-not to imagine Sire had the leasc desire to learn that '
-O
-dance, nor any other which I did not approve of.
-.T, child! You know I have nothing to do with ycur education; your mother and Mrs. Elliot must take ciire of that
-‘‘ Well, but I am sure that neither of them will desire itie to learn what does not .meet with your approbation, as they are both fenstble, how great a ' judge you are of the propriety of behaviour in women; therefore, mv lord, I Should be exceedln^; -. iicoijiiged to you., if you would give them a hint I xipon this subject j
-Flattering little hustey !-1 took her in my arms; I
-und just as I was constderlng whether I Should kifs her for her compliment or not, Sir Charles Conyers came in. -- --
-"Here, Sir Charles, " said I reslynin^ her to him,
-IS the best and most amiable of girls ^ take her upon mv recommendation, and use her as kindly as ihe deferves.’’
-Sir Charles caught her, stand went to prests her to his bostom; but stlie broke hastily from him, and with a reproachful glance at me, yet looking at the same time, as if She was loth to be angry, cried, 5 ‘‘ hiw^coistd ycudofo, my lord
-Why stioiild you be angry with lord Woburn, my cliarniing Kitty, ’’ said Sir Charles, ‘‘ he could [ not have given you to a man who Vvstli love you better than I iliallst^
-lam never angry with lord Woburn, ’^ replied the pretty gypsy, bridling with resentment at him, | ‘‘ it is you who are to blame, for taking feriouoy I
-what he meant only in jestst^ I
-Lord Woburn is happy, Mists Dovv.dton, in bei ing fo highly in your favour I
-Lady Charlotte at tsiat moment came in -- I fiew 1 to her, and left than to make up their little quarrel by themselves.
+Poor Ned absolutely straitens himself to find supplies adequate to lady Louisa’s wants; it is a most extravagant, voluptuous little toad. -- As I was obliged to be cool to her, I have lately been out of her favour -- but I could not refuse Ned’s importunities, who dotes upon this idol, to see her dance the other day; he made a kind of a ball, and as he and his wife have been to visit lady Charlotte, with, my sister and Sir George, he sent cards to lady Charlotte and her friends for this entertainment; she honoured him with her presence, and Kitty Downton was our party.
+
+Lady Charlotte, who knows that I am not a great dancer, excused herself, by saying, that she was scarcely recovered from her late illness. -- Lady Louisa danced an allemand with colonel Striker; had she been my wife, she should have had her feet cut off. -- Never were there more charming and inviting attitudes, consequently very improper ones for married women. -- No woman, indeed in my opinion, but a professed stage dancer, should attempt to excel in an allemand. -- She who has a design to make her fortune, and who imagines she shall carry her point, by shewing her person in an alluring light, is certainly in the right to Study this dance with the nicest attention, for no dance is better calculated to premote the *tender passion* between the sexes; but a woman who has been modestly educated, and who thinks as she ought, will never wish to be admired in public, for attitudes which can serve only to excite the loofest ideas. -- It would disgust me in the highest degree, to see my sister or daughter clasp a man in her arms, to whom she was an utter stranger, and be clasped by him in return. -- But if my
+*wife* should attempt to take such monstrous liberties, or to admit of them, I believe I should go distracted. -- Lady Charlotte has not discovered the least propensity that way; but Kitty Downton, after we got home, gave a lively, and not an ungraceful jump, and said she fancied she could soon learn the attitudes which she had seen. 
+
+"Fie, Kitty!" replied my dear Charlotte. 
+
+"Were I your father or guardian," Said I, "those arms should be pinioned down, and those legs tied together, to prevent your exposing yourself in that preposterous manner."
+
+The poor girl coloured, -- I really believe she meant no harm, but spoke merely from the liveliness of her temper. After having clapped her hands to her face for a few moments, she ran to me, and, with a pleasing naivete, cried, "Pray, my lord, don’t think amiss of me -- Indeed I did not intend to say anything improper; but I always loved exercise, and I have heard you declare a hundred times,. that dancing was very proper for young people."
+
+"Aye, child," replied I, laughing at her simplicity, "under prudent regulations it may be very wholesome, for aught I know; but I cannot approve of all kinds of dances, nor do I think that dancing after marriage, is at all necessary for any woman." 
+
+"I may dance then in a prudent manner a long; while, for I am sure I shan’t be married?
+
+"Why so?" replied lady Charlotte.
+
+"You have not made a vestal vow, surely, Kitty ?" added I. 
+
+"No, my lord," answered she blushing, "but I shall be very nice in my man; and if it is not proper for me to dance an allemand, I should not choose, I methinks, a man who would dance one with anybody else." 
+
+"Sir Charles Conyers, my dear Kitty," replied I, "will endeavour to make himself agreeable to you in every respect."
+
+"Phaw I [turning away her face] how you love to rally me my lord, -- But you will See, that with all you sense and penetration, you may be mistaken. Sir Charles is my superior, indeed, in point of fortune, but I would not marry a king if I did not love him."
+
+Noble sentiments, Jack, in a girl of fifteen! -- Is she not worthy of my Charlotte’s friendship? -- You see the effects of good education -- What an amiable innocent this girl is! She may be made an excellent woman. -- But it is a thousand to one if she is not spoilt first. -- Under my Charlotte’s tuition, it is true she would, certainly improve, yet I should not chuse to have her live witn us: She would draw a train of fellows after her. -- Besides, a man and his wife do better by themselves how many famous differences have I known to a rise, merely from the interposition of a third person! -- No such person should I choose in my family. -- I must lock sharp after Mrs. Dawson; there is something in that woman very particular; she casts glances at me with a meaning in them, which I am in no humour to comprehend at present -- Possibly, when I have been married a iittle while, I may begin to grow less rigid; yet I dare believe, that if my Charlotte continues to be the amiable woman she is, I shall not bestow a thought on any other; -- a woman true to'her hushand is so rare a creature, that though she barely does her duty, she is infinitely superior to the majority of her neighbours; and he must be an unreasonable man, indeed who complains of his lot with such a companion
+
+Kitty, Downton, may, I firmly believe, be made a good wife, for she is an exceeding good girl at present -- she was so hurt by what I said to her about the allemand, that she came running to me the first time I happened to be alone, and begged me not to imagine she had the least desire to learn that dance, nor any other which I did not approve of.
+
+"I, child! You know I have nothing to do with ycur education; your mother and Mrs. Elliot must take care of that."
+
+"Well, but I am sure that neither of them will desire me to learn what does not meet with your approbation, as they are both sensible, how great a judge you are of the propriety of behaviour in women; therefore, my lord, I should be exceedingly obliged to you, if you would give them a hint I upon this subject." 
+
+Flattering little hussey! -- I took her in my arms; and just as I was considering whether I should kiss her for her compliment or not, Sir Charles Conyers came in. --
+
+"Here, Sir Charles," said I resigning her to him, "is the best and most amiable of girls; take her upon my recommendation, and use her as kindly as she deferves."
+
+Sir Charles caught her, and went to press her to his bossom; but shee broke hastily from him, and with a reproachful glance at me, yet looking at the same time, as if she was loth to be angry, cried, "How could you do so, my lord?" 
+
+"Why should you be angry with lord Woburn, my charming Kitty," said Sir Charles, "he could not have given you to a man who will love you better than I shall." 
+
+"I am never angry with lord Woburn," replied the pretty gypsy, bridling with resentment at him, "it is you who are to blame, for taking seriously what he meant only in jest."
+
+"Lord Woburn is happy, Mists Downton, in being so highly in your favour." 
+
+Lady Charlotte at that moment came in -- I flew to her, and left than to make up their little quarrel by themselves.
 
 ---
 
 ## LETTER LV.
 
-From the Same to the Same.
-WE are in the greatefc confusion -- Poor Ned!
-His lady Louiia, his wife -- -- What a devil"!
-'-- has been caught in bed with her hairdresser!! -- I feel for my brother, who had not the least Sulpiciqn of Such, an iasrraous proceeding 1 He was ever indeed a doting fool..
-■ While I was makiiiy" Some Severe Striftures ayainst
-O O'
-uxoriousness, even in the presence of my future, t’other day, Mrs. Elliot exclaimed, "Bless me, ray lord, can a man love his wife too veil.?.?
-"madam; if he i; So far blinded by his pallion for her, as to fusier her to injure hi honour and her own by her' indiscreet conduct, he certainly loves her too. well -- ^periiaps I ihould.rather say too much." -- Bux to my Story.
-This wanton toad, it Seems, had behaved in Such a manner, before her Servants,, that they Sufpected her for Some time tliev were all attached to northwest brother who was one of the belt ofmaster's; and s.nith who waits upon him, having aii afieition for Mrs. mastora, my lady’s woman, was infoimed by her how things went. -- -- He, therefore, immediately acquainted Ned with the disagreeable, intelligence, adding, "Sit. Perle, lir, is at this very instant with Lady Louisa."
-My brother' was at firsl incredulous; he was So unwilling to believe the information he had received, that, instead of going to surprise the rascal, he began to Swear at Smith, for daring to mention his lady in So injurious a way, threatening to turn him into the Street,
-G 4 Smith,
-XX X X VIX X VI
+From the same to the same.
 
-I
-Smith, knowing how much he idolised her, wait v ed patiently, till his fury was abated, and then told him, "that he had lived too long with him, and had been too well Satisfied with his Situation, to think of
+We are in the greatest confusion -- Poor Ned! His lady Louisa, his wife -- -- What a devil"! -- has been caught in bed with her hairdresser! -- I feel for my brother, who had not the least suspicion of such an infamous proceeding! -- He was ever indeed a doting fool.
+
+While I was making some severe strictures against
+uxoriousness, even in the presence of my *future,* t’other day, Mrs. Elliot exclaimed, "Bless me, my lord, can a man love his wife too well?"
+
+"Undoubtedly madam; if he is so far blinded by his passion for her, as to suffer her to injure his honour and her own by her indiscreet conduct, he certainly loves her too well -- perhaps I should rather say too much." -- But to my story.
+
+This wanton toad, it seems, had behaved in such a manner, before her servants, that they suspected her for some time ; they were all attached to northwest brother who was one of the best of master's; and Smith who waits upon him, having an affection for Mrs. Massom, my lady’s woman, was informed by her how things went. -- He, therefore, immediately acquainted Ned with the disagreeable, intelligence, adding, "Sit. Perle, sir, is at this very instant with Lady Louisa."
+
+My brother was at first incredulous; he was so unwilling to believe the information he had received, that, instead of going to surprise the rascal, he began to swear at Smith, for daring to mention his lady in so injurious a way, threatening to turn him into the street.
+
+Smith, knowing how much he idolised her, waited patiently, till his fury was abated, and then told him, "that he had lived too long with him, and had been too well Satisfied with his Situation, to think of
 making him uneasy for nothing. -- -- -- -- My lady. Sir, "
-added he, "has given the Strongest proofs of her infidelity j and I Should not deserve to live with fo good a master, if I concealed what I have heard and seen" "
+added he, "has given the Strongest proofs of her infidelity j and I Should not deserve to live with fo good a master, if I concealed what I have heard and seen" 
+
 with the steady tone in which he fpokc the last words, poor Ned could no longer refuse credit to what had been communicated. -- -- -- -- -- "Follow
 me, " said he, trembling, "follow me to my wifes apartment." '
 smi h followed at a distance;.
@@ -1490,7 +1468,10 @@ more ready to pity, than insult the unhappy wanderers from the paths of discreti
 Little Kitty is wondersully insinuating upon this occasion. -- She Sees me uneasy and dejedted. -- I must Seel for Ned. -- iiesldes, a disappointment of suclsa nature, is enough to Set any man thinking, who is going to enter into the most Solemn engagements with any woman. -- I have no doubts, indeecs, with regard to Charlotte -- neither had Ned any concerning Louisa- -- -- ^ -- then he was foolishly in love
 -- -- -- possibly So am I. -- When a man is paffiorr
 ately fond of a wonian, he Scarce knows what he is about. -- Love absolutely deprives us of our senses. -- After all my precautions, Wilmot, I Sear that lam no wiser than other men.
-LETTER LVI
+
+---
+
+## LETTER LVI.
 Lady Charlotte Morden, to Mrs. Blomer.
 I HAVE been exceedingly distrested upon lord woburn’s account, my dear friend j he has sussered So much for his brother, that I have pitied him extremely.
 Mr. v/oburn has had a Sever. -- His mind has hern greatly disturbed by Some domestic affairs, which have hurt his health, and required all the consolation his fiierds could administer to him. -- Yovt cannot think how much lord woburn’s anxiety about his brother, and concern for him, has raised him in my esteem. -- By that concern, and that anxiety 0
