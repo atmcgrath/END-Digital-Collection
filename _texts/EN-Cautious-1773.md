@@ -1429,79 +1429,81 @@ This wanton toad, it seems, had behaved in such a manner, before her servants, t
 
 My brother was at first incredulous; he was so unwilling to believe the information he had received, that, instead of going to surprise the rascal, he began to swear at Smith, for daring to mention his lady in so injurious a way, threatening to turn him into the street.
 
-Smith, knowing how much he idolised her, waited patiently, till his fury was abated, and then told him, "that he had lived too long with him, and had been too well Satisfied with his Situation, to think of
-making him uneasy for nothing. -- -- -- -- My lady. Sir, "
-added he, "has given the Strongest proofs of her infidelity j and I Should not deserve to live with fo good a master, if I concealed what I have heard and seen" 
+Smith, knowing how much he idolised her, waited patiently, till his fury was abated, and then told him, "that he had lived too long with him, and had been too well satisfied with his situation, to think of making him uneasy for nothing. -- "My lady, sir, "added he, "has given the strongest proofs of her infidelity; and I should not deserve to live with so good a master, if I concealed what I have heard and seen."
 
-with the steady tone in which he fpokc the last words, poor Ned could no longer refuse credit to what had been communicated. -- -- -- -- -- "Follow
-me, " said he, trembling, "follow me to my wifes apartment." '
-smi h followed at a distance;.
-Poor Ned, petrified with horror and furprise, called aloud for help;
-Smith hurried into the room to the aslistance of his master, but found' him only sunk down upon
-the bed, without sense or motion. -- -- -- -- The faithful
-fellow placed him in a chair, and gave him some of my lady’s cordial, which always stood upon the
-dresiing table. -- -- It was a good while before he
-came to himself-- -- his recovery, he charged Smith not to say a word about the affair, but to send for me..
-I hastened to him. -- T found him pale, considerably agitated, and exceedingly out of order.
-He made a Sign with his hand for me to Sit down.
-With some dishculty he brought out, "My wife, my louisa, on whom I fo fondly doted, is gone;
-She has left me for as vile a fellow as crawls upon, the face of the earth j the lowest of all rascals the villain who drestes her hair. -- I have just caught
-them together. -- -- -- While I stood, confounded with
-amazement, he jumped out of the window,, and she ran out of the room/’
-can'
-vy ixv vy o IN. ili
-can hardly tell you what reply I made to the
-poor fellow. -- -- 1 could not without deviating from
-i truth, say that I was surprised at the very disagreeable discovery, as I never, you know, liked lady lou ifa’s manners; but I was aiftually both Shocked and grieved at finding my brother duped by a designing! devil. -- -- I endeavoured to comfort' him, by say!
-! "I thought’ he'was happy in having fo fair i an opportunity to get rid ofher." i "You talk, " replied he, Shaking his head, "as if you had never loved."
-"Hhd I loved tomadnefs, " anfweted I, "such I behaviout would certainly have cured me." j A deep Sigh was the only reply he vas capable of making.' But I hope he v/illget over this disappointment, when time has a little inured him to it.
-I In CD N T I N ua.di O N. --
-My whole timeis taken up between Ned and lady Charlotte. -- My poor brother is almost distradted. -- • he talks of nothing but his Louisa, and of the tenderness She had always expr essed for him-- -- ’ convinced hirii fo thotoughly of her firm attachment to him; -- ihe fays', that he took little or no notice of ' her conduct, indulging her in all her most extravagant desires -- His indulgence was carried to a very imprudent height y for it made her quit e wanton ’ wit’n her unlimited power over him, and drove her
-to the raost ungrateful return imaginable for it- -- '
-however is better in health, and time may do w’onders.
-My Charlotte has behaved with a ' delicacy and tenderness to me upon' this occasion, ' which have prodigiously endeared meto her. -- How very, very different is She from the greatest part ofher sex, who love to exult over a fallen Sister, as if their own virtue was strengthened by the weaknestes of ano
-G 5 there i
-there! -- How erroneous a way of chinking f How
-much more amiable are those, who, charitably allowing for the frailties of human nature -- frailties
-from which no human creature is exempt -- -- are
-more ready to pity, than insult the unhappy wanderers from the paths of discretion and virtue.
-Little Kitty is wondersully insinuating upon this occasion. -- She Sees me uneasy and dejedted. -- I must Seel for Ned. -- iiesldes, a disappointment of suclsa nature, is enough to Set any man thinking, who is going to enter into the most Solemn engagements with any woman. -- I have no doubts, indeecs, with regard to Charlotte -- neither had Ned any concerning Louisa- -- -- ^ -- then he was foolishly in love
--- -- -- possibly So am I. -- When a man is paffiorr
-ately fond of a wonian, he Scarce knows what he is about. -- Love absolutely deprives us of our senses. -- After all my precautions, Wilmot, I Sear that lam no wiser than other men.
+Struck with the steady tone in which he spoke the last words, poor Ned could no longer refuse credit to what had been communicated. -- "Follow me," said he, trembling, "follow me to my wife's apartment." 
+
+Smith followed at a distance.
+
+Poor Ned, petrified with horror and surprise, called aloud for help. 
+
+Smith hurried into the room to the assistance of his master, but found him only sunk down upon the bed, without sense or motion. -- The faithful fellow placed him in a chair, and gave him some of my lady’s cordial, which always stood upon the dressing table. -- -- It was a good while before he came to himself. -- On his recovery, he charged Smith not to say a word about the affair, but to send for me.
+
+I hastened to him. -- I found him pale, considerably agitated, and exceedingly out of order. 
+
+He made a sign with his hand for me to sit down. 
+
+With some difficulty he brought out, "My wife, my Louisa, on whom I so fondly doted, is gone; she has left me for as vile a fellow as crawls upon, the face of the earth; the lowest of all rascals the villain who dresses her hair. -- I have just caught them together. -- While I stood, confounded with amazement, he jumped out of the window, and she ran out of the room."
+
+I can hardly tell you what reply I made to the poor fellow. -- I could not without deviating from truth, say that I was surprised at the very disagreeable discovery, as I never, you know, liked lady Louisa’s manners; but I was actually both shocked and grieved at finding my brother duped by a designing devil. -- I endeavoured to comfort him, by saying "I thought he was happy in having so fair an opportunity to get rid of her." 
+
+"You talk, " replied he, dhaking his head, "as if you had never loved."
+
+"Had I loved madness, " answered I, "such I behaviout would certainly have cured me." 
+
+A deep sigh was the only reply he was capable of making. But I hope he will get over this disappointment, when time has a little inured him to it.
+
+---
+
+## IN CONTINUATION. 
+
+My whole time is taken up between Ned and lady Charlotte. -- My poor brother is almost distracted. -- He talks of nothing but his Louisa, and of the tenderness she had always expressed for him -- which convinced him so thoroughly of her firm attachment to him; -- he says, that he took little or no notice of her conduct, indulging her in all her most extravagant desires -- His indulgence was carried to a very imprudent height; for it made her quite wanton with her unlimited power over him, and drove her
+to the most ungrateful return imaginable for it -- however is better in health, and time may do wonders.
+
+My Charlotte has behaved with a delicacy and tenderness to me upon this occasion, which have prodigiously endeared meto her. -- How very, very different is she from the greatest part ofher sex, who love to exult over a fallen sister, as if their own virtue was strengthened by the weaknesses of another! -- How erroneous a way of thinking! How ,uch more amiable are those, who, charitably allowing for the frailties of human nature -- frailties from which no human creature is exempt -- are more ready to pity, than insult the unhappy wanderers from the paths of discretion and virtue.
+
+Little Kitty is wonderfully insinuating upon this occasion. -- She sees me uneasy and dejected. -- I must feel for Ned. -- Besides, a disappointment of such a nature, is enough to set any man thinking, who is going to enter into the most solemn engagements with any woman. -- I have no doubts, indeed, with regard to Charlotte -- neither had Ned any concerning Louisa -- but then he was foolishly in love -- possibly so am I. -- When a man is passionately fond of a woman, he scarce knows what he is about. -- Love absolutely deprives us of our senses. -- After all my precautions, Wilmot, I fear that I am no wiser than other men.
 
 ---
 
 ## LETTER LVI.
+
 Lady Charlotte Morden, to Mrs. Blomer.
-I HAVE been exceedingly distrested upon lord woburn’s account, my dear friend j he has sussered So much for his brother, that I have pitied him extremely.
-Mr. v/oburn has had a Sever. -- His mind has hern greatly disturbed by Some domestic affairs, which have hurt his health, and required all the consolation his fiierds could administer to him. -- Yovt cannot think how much lord woburn’s anxiety about his brother, and concern for him, has raised him in my esteem. -- By that concern, and that anxiety 0
-W XV ^
-xiety, he curcovers an excellent heart, ansi Induces me to believe, that I Shall run no sort of rlsk i by venturing my happiness in his hands. --;! always iinap'ined that a Vood fon, a good' brother, ani a good friend, would most ' probably make a good busband to the woman' of his choice, anst I ’ dare say I Shall not be mistaken-- -- did lojd Wob'urii appear To amiable ill my 'eyes ^ never did my heart j feel fo fmcere an affe£lion for him. -- The woman who could deceive him must be abandoned indeed.
-• -- Kitty Downton h, iil my opinion, a sweet girl?
--- She certainly loves him. -- She looks on hiiii with fo i much compaslion, and fetches such sighs, that I some i times fear he will read what pasfes in her little heart,
-i A few days ago we were all three Sitting together.
-• -- I was trying to divert my lord', that he might net refleo; too deeply upon what, would only increase I his difqulet. -- He was leaning ori'the back of rhy chair listening to me. -- Poor kitty’s eyes, after having rambled frorri one to t’other, at last fixed on. him -- A heavy stall biirst frorn her, whifch fouzfed my lord. -- He threw hirrrself forward, locked in pier face, and cried, f‘ what’s thc matter, Kitty ?" ' ■ '
-I "I can’t tell, " replied she; ' not little consufed,
-I "but I am fo low Spirited today, that I ain fit for nothing."
-"I am'sorry to hear you Say So, " answered my ' lord,. "but you mustnot indulge your vaponrilh hu raour, child. -- Get Up quickly, and goto ycur needle, your beck, or your harpsichord.’ *
-"Indeed I would, replied She, in a plaintive tone,
-"but Tam incapable of ehher playing, or working, as I Should do; and 1 have taken up.my book and thrown it down again twenty times, today."
-Poor girl, " cried my lord, Smiling, .catching a, racket that lay on she table, -- "Yoh are idle I am afraid J come, a little exercise will do you good'
-'' way
-'7.
-♦ s. *' •
-• • r
-t
-la j; u X vy rw I r
-Away Hew the sliuttle cock and kitty’s vapours together.
-Sir Charles Conyers, who certainly comes after her, soon afterwards entered the room. -- Taking up another racket, hc/proposed to me to make a party. --.
-Before I could get out a refusal, lord Woburh hastily Sitting down by me, said" "Sir Charles, if you are inclmed to divert yourself, I restgn miss downton."
-Kitty, offended at this Speech, turned’ away her face, and burst into tears.
-"Heyday I what’s the matter now, " cried' my lord, while Sir Charles' endeavoured, in the gentlest terras to soothe her; -- but his esforts were un fuccessfuh She retired to her own apartment,
-"Surely, " said lords Woburn to me, "I have »ot mentioned anything to make her uneasy? pur pofely, I am certain, I have not. -- She ha good na tured, amiable girl, and f stiould. be lorry to have her stippwfe F had any intention to disconcert her."
-Sir Charles looked exceedingly Serious. -- -1 wanted
-to bring Kitty to herself, but had no mind to leave the two gentlemen togethei'i however as I could not suppose that they had the least reason to be of fendest with each other, I ventured upstairs, and gave a hint to poor Kitty, whom I Sound still weeping, that a construction might be put upon her behaviour,, different from what stie had thought of, if Ihe did not appear with her usual chearfulness padding, to give a turn to her Sorrow, that lord Woburn had expresied Some concern, lest he Should have Said anything to offend her,
-"Has he .?" replied stre, ", T will go then and af sure him to the contrary; "I would not have hini displeased with me for the world."
+
+I HAVE been exceedingly distressed upon lord Woburn’s account, my dear friend; he has suffered so much for his brother, that I have pitied him extremely.
+
+Mr. Woburn has had a fever. -- His mind has been greatly disturbed by some domestic affairs, which have hurt his health, and required all the consolation his friends could administer to him. -- You cannot think how much lord Woburn’s anxiety about his brother, and concern for him, has raised him in my esteem. -- By that concern, and that anxiety, he discovers an excellent heart, and induces me to believe, that I shall run no sort of risk by venturing my happiness in his hands. -- I always imagined that a good son, a good brother, and a good friend, would most probably make a good busband to the woman of his choice, and I dare say I shall not be mistaken. -- Never did lord Woburn appear so amiable in my eyes; never did my heart feel so sincere an affection for him. -- The woman who could deceive him must be abandoned indeed.
+-- Kitty Downton is, in my opinion, a sweet girl!
+-- She certainly loves him. -- She looks on him with so much compassion, and fetches such sighs, that I sometimes fear he will read what passes in her little heart.
+
+A few days ago we were all three sitting together. -- I was trying to divert my lord, that he might not reflect too deeply upon what, would only increase I his disquiet. -- He was leaning on the back of my chair listening to me. -- Poor Kitty’s eyes, after having rambled from one to t’other, at last fixed on. him -- A heavy sigh burst from her, which rouzed my lord. -- He threw herself forward, looked in her face, and cried, "What’s the matter, Kitty?" 
+
+"I can’t tell, " replied she; not little confused,
+"but I am so low spirited today, that I ain fit for nothing."
+
+"I am sorry to hear you say so," answered my lord, "but you must not indulge your vapourish humour, child. -- Get Up quickly, and go to your needle, your beck, or your harpsichord."
+
+"Indeed I would," replied she, in a plaintive tone,
+"but I am incapable of either playing, or working, as I should do; and I have taken up.my book and thrown it down again twenty times, today."
+
+"Poor girl," cried my lord, smiling, catching a racket that lay on she table -- "You are idle I am afraid; come, a little exercise will do you good."
+
+Away flew the shuttle cock and Kitty’s vapours together.
+
+Sir Charles Conyers, who certainly comes after her, soon afterwards entered the room. -- Taking up another racket, he proposed to me to make a party. 
+
+Before I could get out a refusal, lord Woburn hastily sitting down by me, said, "No, Sir Charles, if you are inclineed to divert yourself, I resign Miss Downton."
+
+Kitty, offended at this speech, turned away her face, and burst into tears.
+
+"Heyday! what’s the matter now," cried my lord, while Sir Charles endeavoured, in the gentlest terms to soothe her; -- but his efforts were unsuccessful she retired to her own apartment.
+
+"Surely," said lord Woburn to me, "I have not mentioned anything to make her uneasy? Purposely, I am certain, I have not. -- She is a good natured, amiable girl, and I should be sorry to have her suppose I had any intention to disconcert her."
+
+Sir Charles looked exceedingly serious. -- I wanted
+to bring Kitty to herself, but had no mind to leave the two gentlemen together; however as I could not suppose that they had the least reason to be of fendest with each other, I ventured upstairs, and gave a hint to poor Kitty, whom I sound still weeping, that a construction might be put upon her behaviour, different from what she had thought of, if she did not appear with her usual chearfulness; adding, to give a turn to her sorrow, that lord Woburn had expressed some concern, lest he should have said anything to offend her.
+
+"Has he?" replied she, ", T will go then and af sure him to the contrary; "I would not have hini displeased with me for the world."
 "Well, " answered, I, "and are yon not equally solicitous about Sir charles’s good opinion? He is a very pretty gentleman."
 Ah I
 L W K la VV LI ts U K in.
@@ -1513,7 +1515,7 @@ S slid" "my dear, Sir charles'’s apology b; sufficient"
 "isalldver, now, " cried she^holding out her and to lord Woburn, who had not indeed uttered a Syllable toher. ^ i -- ^hc' took her hand, but immediately presenting it to Sir Charles- -- Charles kisfedit with transport-- -- ^ -- drew it back, and fixed her eyes upon my lord.' -- what’s the matter, Kitty, " said hcj advancing, wsth a smile" "wc not friends .?"
 "I hope fo, " replied' She, Sighing, "bijt -- i -- but"
 "what, ?" answered my lord, ' hastily, taking her hand with a look full of pity, drawing .her neareir to him at the same time, and giving her a modest kiss, -- "there now, are you satisfied with me ?"
-"Nay, " interrupted Sir Charles, "if nothing less will ensure the lady’s pardon to you, .mylord, may not I hope for the same indulgence .?" following my lord’s example. *
+"Nay, " interrupted Sir Charles, "if nothing less will ensure the lady’s pardon to you, .mylord, may not I hope for the same indulgence .?" following my lord’s example. 
 Poor kitty’ksace glowed. -- She went to the other end of the room, and sat down.
 Sir
 sir Charles soon went after her, and fo affidaoufly
@@ -1529,7 +1531,11 @@ to be the very creature he describes, my dear friqnda
 will, become of me? -- ^ -- My love for him is, I feel, much Stronger than I imagined it was.
 your’s unchangeably.
 C H A R L O T r £ Ivl O R D E N,
-LETTER lvil.
+
+---
+
+## LETTER LVII. 
+
 Lord Woburn to Mr. Wilmot,
 r ** * • <.
 HOW dlstradted is my fituailon! -- I take up my pen to tell you my feelings but.l knew not how to deferibe them. -- -- ^mowever, as you are the only friend I have in the world, 1 will try to inform you of an event, which has made me fupreinely wreiched. ^
