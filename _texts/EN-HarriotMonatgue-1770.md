@@ -553,64 +553,36 @@ constancy, which his venturing thither after her did evidence, she concluded he 
 [171]
 When the wretched Leander saw himself and his friend in this dismal place, no words can express the, tortures or his mind; and indeed it was a providence he was at that time fettered,  his despair might have drove him to destroy himself; he sighed deeply, and the big drops ran scalding down his cheeks; grief had so benumbed his faculties, that his tongue could not utter one word; so that he remained silent, with his eyes fixed on his friend, who bore his afflictions calmly; for he had not love and despair to combat, had lost no mistress, loved his friend, and had a soul so generous, that he was even glad, since it was his fate to be thus confined, that he was a partner of his fortune, and reserved to comfort him in that place. Why, said he to the afflicted Leander, ‘My dear friend, do you thus abandon yourself to grief, and are ‘so cast down at an accidental
 [172] 
-fortune? Could you expect less than this from an incensed husband? Is it not a mercy you are still alive? When we went from our lodgings, we were determiund to run all risques, and are you shocked at a thing you had before armed against? Your jealous rival's rage will in time diminish; and when he comes to reflect on this action, he will doubtless repent, and permit you to depart this island : if he perfists in his revenge, death is the utmost we can fear; and can there be a place more fit to prepare for it in, than ‘ this? Here we may live free from the temptations of the world, and learn the state of our own souls; nay, converse with our Maker by contemplation, and enjoy that peace of mind, that we were strangers to whilst we lived at large. Confider how many brave men have perished for want abroad,
+fortune? Could you expect less than this from an incensed husband? Is it not a mercy you are still alive? When we went from our lodgings, we were determiund to run all risques, and are you shocked at a thing you had before armed against? Your jealous rival's rage will in time diminish; and when he comes to reflect on this action, he will doubtless repent, and permit you to depart this island: if he persists in his revenge, death is the utmost we can fear; and can there be a place more fit to prepare for it in, than this? Here we may live free from the temptations of the world, and learn the state of our own souls; nay, converse with our Maker by contemplation, and enjoy that peace of mind, that we were strangers to whilst we lived at large. Consider how many brave men have perished for want abroad,
 [173]
-and how many pious persons have ‘retreated to dismal caves and dei Sarts, and left all the delights of ‘ this life, to enjoy that quiet and ‘ repose which vve may here poc ‘ fds. Harriot has already, doubt ‘ less, Suffered for your imprudence;
-‘ and in pursuing her, you offended ‘ heaven, who having thus punifii
-* ed you, on your fnbmifiion will, I ‘ doubt not, free you hence. As for ‘ my own part, I am So far from ‘ repenting I accompanied you, that ‘ I rejoice that God has been pleated;
-‘ to preserve me, and bring me to
-* this place to comfort you; nor ‘ would 1 leave you, though I were
-‘ freed.’ Leander having been very'' attentive to all he Said, replied,
-‘ Was ever generosity like this .i
-‘ What a miserable wretch am I,
-‘ that by my follies have ruined the ‘ peace of her I loved, and fubjedl ‘ ed my faithful generous friend to
-* fetters and a dungeon? I merit
-I 3 ‘ all
-4
-174 The HI S T O R Y of
-all that I can Suffer; but your
-presence puts me on the rack, yet
-I will hope. My God, thy ways ‘ are marvellous j in thee i’ll trust, * and strive to bring my stubborn ‘ will to Submit to thine.’ The first transports of his pastion being thus conquered, he began to be resigned;; now food and wine being brought to them, they eat thankfully what was provided, and for Some days converted and prayed together, like men prepared for all
-events; but the damp unwholesome vapours in the dungeon threw them both into Such an illness, taking away the use of their limbs, that the commanding officer, who was a Frenchman, Sent to Don Carlos, to know what he should do with them; assuring him they would die, if not Soon removed: on which he tent orders to him, to remove them to an apartment on the top of the castle, where they might walk on the battlements
-miss Harriet montaq’ue. 175
-tlements and take the air,, have a bed, and chambers to walk about, and their fetters taken osti His conscience touched him, and he would willingly have ficeii leander’s kinsman, but that he feared he would make a clamour about his friend. Tiiefe orders were puudtually obeyed by the officer, aud the prisoners, Soon recovered: and he Sometimes paid them avifuvand So became informed of the true causc of their being brought thither,, and pitied their condition. At last he contradfed So great a friendship with them, that he Said he would willingly free them, could he be assured he Should not lose his eommiffion by it: but it would not be long, he supposed, before he ffiould be relieved by another officer and band of Soldiers, it being customary for the garison to be changed every six months; and then he would furniffi them with ropes tolet themselves down from the
-1 4 battle
-\
-The H I S T O R Y or
-battlements, on that' fide of the castle near the Sea, vs^hich beat against the wails; and that they, need not (ear drowning, tsie water being slaal low at ebb. ‘ Tlrence, says he, vyou may get to the Shore, and dif \v) two soldier’s coats,
-‘ which I will give you; hide ychir selves m the adjacent wood’.. This you must do in the night, and
-./ O''
-get off the island, if postible, as * Soon as daybreaks, for Sear of being taken; for Search will doubt icis be made for you So Soon as ‘ you are missed. a^ou mayeffed: this by Seizing the first fishing ‘ boat you find on the Shore, of ‘ which there are many, plenty of ‘ huts being in these parts on the ‘ coast; where fistiermen dwell during this fummer feason; and you ‘ will find their bpats, wshich are ‘ every night hauled up on the ‘ shore. This is all I dare do to ‘ Serve you, and this perhaps will
-cost
-miss Harriot Montague, i 77
-‘ cost me my life, if discovered. They not only thanked, him in the most expressive terms, but promised if they ever lived to reach Virginia again, to show their gratitude: and he promised to give them intel: : of whatever befell Harriot, by the captain who brought them thither, whom they resolved to send to that issand yearly, he giving them a diredsion where they Should always inquire for him. This concluded on, Leander and his kinsman grew cheerful.
-O
-At last orders coming for the off ficer to' depart thence, he faithfully performed all he had promised, leaving them ropes and red coats; nay,, when he took his leave, which he did with much affection, he presented Leander with a good purse of gold, which he had much ado to make him accept ol. But. indeed it was necessary they should not want money, of which they had no,
-I 5 great
-t
-178 The H I STORY fo
-\
-great store about them, having left allj their clothes and money at the lodgings in which the captain of the Ship had placed them at their landing in the town; for they brought nothing to the peasant’s house in the village, but Some linen and about twenty pistoles in gold, and Some Spanisti ducatoons in stiver, in their pockets.
-The very night aster the captain wa gone they made their escape, young dumaresque’^s kinsman venturing down first from the battlements, having Sworn his friend Should not venture till he had tried the danger > for it was a vast height from whence, they descended, and had the rope broke he had run a great risque of lostng his life. They fastened two ropes to the top of one of the battlements, and putting their gloves on,, stid down one after the other into the sea, which, then was fo high, it being young stood,, that it almo^.
-took
-t
-\
-'mss harriot Montague. 179
-took them up to their breasts, and the waves beat So strong, that they had much ado to reach the shore; from whence they fled to the wood,, and pasted through it to the other fide : there sheltered by the trees from the view of the garrison, they stood a while to See what boats lay on the shore; and choosing Such a one as they thought they were able to manage, and launch into the Sea without help, they dragged it into' it, hoisted Sail,, and put off. But.
-, alas! their condition was worse than ever, they knew not well how to steer the boat, and were So weak and tired before, that' they could Scarce row or guide it. They had no provision aboard but a little bis ket and Salt meat, that they found stowed in the fisherman’s locker in
-I
-his egbin, with a bottle of rack, and a Small barrel of fresh water.
-I
-And all their hopes were to reach Some istand not belonging to the.
-I ^ Spat
-1
-%
-jso The H I ST O KY OP
-Spaniards; they steered for Jamaira,.
-from vrhence they were certain they could get a passage to Virginia, where Leander resolved to remain with his uncle and friend till Harriot was dead, or a widow; and never to return to France again without her, whilst she was living. They were in sight of Jamaica, when the wind began to blow and the waters foam: then a terrible storm began, which drove them for four nights and days quite out of their Smowledge; in which time their provisions were Spent, and their strength fo decayed, that they were forced to lie down, and leave themselves to Providence. But nothing assiivsted them fo much as thirstall their fresh water was gone, and drinking fait, fo increased their drought, that they feared to repent It. Thus they continued for three days more drove by the winds and waves : iu these three days hunger
-fo
-M iss Ha r r rot Mo n t a cue. i 8 ^
-.So pressed them, that they ransacked every corner of the boat to find a morsel to eat, and devoured every bit of mouldy biscuit they could find : but, alas! that was So little, it only tantalised, not Satisfied their craving stomachs. And now they began to reflect, that it had been better for them to have continued prisoners, than have exposed themselves to Such miseries. Thus experience tells us, that when we have obtained our own wishes, not easy in the state Providence has placed us in, we are more unhappy than we were before. Isle generous Montandre begged his kinsman to kill him, and preserve his own life, by Seeding on his warm flesh, and Sucking his blood. Saying, ‘ We must now both inevitably perish, ‘ unless one Supply the other’s ‘ wants*’ Leander was So shocked at this proposal, that his very Soul shivered. ‘no, (Says he) before I
+and how many pious persons have retreated to dismal caves and deserts, and left all the delights of this life, to enjoy that quiet and repose which we may here possess. Harriot has already, doubtless, suffered for your imprudence; and in pursuing her, you offended heaven, who having thus punished you, on your submission will, I doubt not, free you hence. As for my own part, I am so far from  repenting I accompanied you, that ‘ I rejoice that God has been pleated; to preserve me, and bring me to this place to comfort you; nor would I leave you, though I were freed.’ 
+
+Leander having been very attentive to all he said, replied, ‘Was ever generosity like this? What a miserable wretch am I, that by my follies have ruined the peace of her I loved, and subjected my faithful generous friend to fetters and a dungeon? I merit
+[174]
+all that I can suffer; but your presence puts me on the rack, yet I will hope. My God, thy way are marvellous; in thee I’ll trust, and strive to bring my stubborn will to submit to thine.’ 
+
+The first transports of his passion being thus conquered, he began to be resigned; now food and wine being brought to them, they ate thankfully what was provided, and for some days converted and prayed together, like men prepared for all events; but the damp unwholesome vapours in the dungeon threw them both into such an illness, taking away the use of their limbs, that the commanding officer, who was a Frenchman, sent to Don Carlos, to know what he should do with them; assuring him they would die, if not soon removed: on which he sent orders to him, to remove them to an apartment on the top of the castle, where they might walk on the battlements
+[175]
+and take the air, have a bed, and chambers to walk about, and their fetters taken of. His conscience touched him, and he would willingly have freed Leander’s kinsman, but that he feared he would make a clamour about his friend. These orders were punctually obeyed by the officer, and the prisoners soon recovered: and he sometimes paid them a visit and so became informed of the true cause of their being brought thither, and pitied their condition. At last he contracted so great a friendship with them, that he said he would willingly free them, could he be assured he should not lose his commission by it: but it would not be long, he supposed, before he should be relieved by another officer and band of soldiers, it being customary for the garison to be changed every six months; and then he would furnished them with ropes to let themselves down from the
+[176]
+battlements, on that side of the castle near the sea, which beat against the walls; and that they, need not fear drowning, the water being shallow at ebb. ‘Thence, says he, you may get to the shore, and disguised in two soldiers' coats, which I will give you; hide yourselves in the adjacent wood. This you must do in the night, and get off the island, if possible, as soon as daybreaks, for fear of being taken; for search will doubtless be made for you so soon as you are missed. You may effect this by seizing the first fishing boat you find on the shore, of which there are many, plenty of huts being in these parts on the coast; where fishermen dwell during this aummer season; and you will find their bpats, wshich are ‘ every night hauled up on the ‘ shore. This is all I dare do to serve you, and this perhaps will
+[177]
+cost me my life, if discovered.'
+
+They not only thanked, him in the most expressive terms, but promised if they ever lived to reach Virginia again, to show their gratitude: and he promised to give them intelligence of whatever befell Harriot, by the captain who brought them thither, whom they resolved to send to that island yearly, he giving them a direction where they should always inquire for him. This concluded on, Leander and his kinsman grew cheerful.
+
+At last orders coming for the officer to depart thence, he faithfully performed all he had promised, leaving them ropes and red coats; nay, when he took his leave, which he did with much affection, he presented Leander with a good purse of gold, which he had much ado to make him accept of. But indeed it was necessary they should not want money, of which they had no
+[178]
+great store about them, having left all their clothes and money at the lodgings in which the captain of the ship had placed them at their landing in the town; for they brought nothing to the peasant’s house in the village, but some linen and about twenty pistoles in gold, and some Spanish ducatoons in silver, in their pockets.
+
+The very night after the captain was gone they made their escape, young Dumaresque’s kinsman venturing down first from the battlements, having sworn his friend should not venture till he had tried the danger for it was a vast height from whence, they descended, and had the rope broke he had run a great risque of lostng his life. They fastened two ropes to the top of one of the battlements, and putting their gloves on, slid down one after the other into the sea, which, then was so high, it being young flood, that it almost
+[179]
+took them up to their breasts, and the waves beat so strong, that they had much ado to reach the shore; from whence they fled to the wood, and pasted through it to the other side: there sheltered by the trees from the view of the garrison, they stood a while to see what boats lay on the shore; and choosing such a one as they thought they were able to manage, and launch into the sea without help, they dragged it into it, hoisted sail, and put off. But alas! Their condition was worse than ever, they knew not well how to steer the boat, and were so weak and tired before, that they could scarce row or guide it. They had no provision aboard but a little bisket and salt meat, that they found stowed in the fisherman’s locker his cabin, with a bottle of rack, and a small barrel of fresh water.
+And all their hopes were to reach some island not belonging to the
+[180]
+Spaniards; they steered for Jamaica from whence they were certain they could get a passage to Virginia, where Leander resolved to remain with his uncle and friend till Harriot was dead, or a widow; and never to return to France again without her, whilst she was living. They were in sight of Jamaica, when the wind began to blow and the waters foam: then a terrible storm began, which drove them for four nights and days quite out of their knowledge; in which time their provisions were spent, and their strength so decayed, that they were forced to lie down, and leave themselves to Providence. But nothing afflicted them so much as thirst; all their fresh water was gone, and drinking salt, so increased their drought, that they feared to repent it. Thus they continued for three days more drove by the winds and waves: in these three days hunger
+[181]
+so pressed them, that they ransacked every corner of the boat to find a morsel to eat, and devoured every bit of mouldy biscuit they could find: but, alas! that was so little, it only tantalised, not Satisfied their craving stomachs. And now they began to reflect, that it had been better for them to have continued prisoners, than have exposed themselves to Such miseries. Thus experience tells us, that when we have obtained our own wishes, not easy in the state Providence has placed us in, we are more unhappy than we were before. Isle generous Montandre begged his kinsman to kill him, and preserve his own life, by Seeding on his warm flesh, and Sucking his blood. Saying, ‘ We must now both inevitably perish, ‘ unless one Supply the other’s ‘ wants*’ Leander was So shocked at this proposal, that his very Soul shivered. ‘no, (Says he) before I
 ‘ would
 r
 The HI S TOR Y or
