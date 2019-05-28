@@ -820,28 +820,21 @@ to this place by the hands of a gentleman who is an officer in Fort Philip, to w
 [198]
 freedom of those Christians who like you have unfortunately fallen into their hands. Thus I have lived for these eight years, and am now so inured to this solitary way of living, and so satisfied with this poor retreat, that I do not think ever to return to h ranee again, or venture into the world any more; and hoping I have made my peace with God, I wait my death as a man who places his hopes on an eternal state.
 
-Thus he concluded his story, Leander, who during this discourse was filled with admiration, yet never interrupted him, now broke silence: Monsieur De Liste, said he, ‘ What transport can equal mine to find you here? I ‘ have news to tell you will recall ‘ you Soon to France. I Shall tell ‘ you wonders.’ “Is not your name “Leander, (Said the amazed sher mit) “and have I the happiness to meet with and entertain the youth
-‘‘ whom
-4
-miss Harriot Montague. 199
-“whom I So dearly loved‘ Yes,
-Said Leander, ‘ I am that man * whom you were pleased to honour ‘ with your friendflfip in So pecu ‘ liar a manner; and to convince ‘you that the Almighty hasaceept ‘ ed your repentance and alms deeds,
-‘ am doubtless Sent to this place to ‘ Set your mind at ease, and restore ‘ that peace of conscience that you ‘ have been So long a stranger to.
-‘ Flavia is, I hope, still living; She ‘ was in perscct health six years a
-‘ gone when I left France.’ “Fla“ “living! (Said the henbit}amaz “ing wonder 1 my ravish’d Soul can “Scarce credit the strange report,
-“though my best loved friend,
-“Speak, tell me the manner how ' “She was preserved from death,
-“whilst my listening wounded Soul « is healed with the Soft sound of “your Sweet Speech, ” ‘ I will make ‘ haste (Said Leander) to Satisfy you,
-‘ So Soon as you had left the houfci
-K 4 flavia’s
-N
-200 The HI STORY or
-^ ilavia’s aunt, who had been be ‘ Sore informed of all your adfions,
-‘ knew your courtlhip to your new
-* mistress, and frequent visits there,
-‘ had marked your coldness to and
-neglect of Flavia, and made observations on your behaviour that ‘ ratal night, her Sudden illness and ‘ Surprising death; the minute you ‘ turned your back, ran to the con ’
-^ vent, which you know was not a ‘ stone’s throw from the house; and ‘- called upon the honest cordelier,
+Thus he concluded his story, Leander, who during this discourse was filled with admiration, yet never interrupted him, now broke silence: Monsieur De Liste, said he, ‘ What transport can equal mine to find you here? I have news to tell you will recall you soon to France. I shall tell you wonders.’ 
+
+“Is not your name Leander, (said the amazed hermit) “and have I the happiness to meet with and entertain the youth
+[199]
+whom I so dearly loved?"
+
+'Yes, said Leander, ‘I am that man whom you were pleased to honour with your friendship in so peculiar a manner; and to convince you that the Almighty has accepted your repentance and alms deeds, am doubtless sent to this place to set your mind at ease, and restore  that peace of conscience that you have been so long a stranger to. Flavia is, I hope, still living; she was in perfect health health six years a gone when I left France.’ 
+
+“Flavia living! (Said the hermit) amazing wonder! my ravish’d soul can scarce credit the strange report, though my best loved friend,
+speak, tell me the manner how she was preserved from death, whilst my listening wounded soul is healed with the soft sound of your sweet speech.” 
+
+‘I will make haste (Said Leander) 'to satisfy you, so soon as you had left the house
+[200]
+Flavia’s aunt, who had been before informed of all your actions, knew your courtship to your new mistress, and frequent visits there,
+had marked your coldness to and neglect of Flavia, and made observations on your behaviour that fatal night, her sudden illness and surprising death; the minute you turned your back, ran to the convent, which you know was not a stone’s throw from the house; and called upon the honest cordelier,
 ‘ who had married you, .a man who *- was a good physician as well as a
 ‘ divine, and told him with tears
 0
