@@ -832,59 +832,43 @@ whom I so dearly loved?"
 speak, tell me the manner how she was preserved from death, whilst my listening wounded soul is healed with the soft sound of your sweet speech.” 
 
 ‘I will make haste (Said Leander) 'to satisfy you, so soon as you had left the house
+
 [200]
 Flavia’s aunt, who had been before informed of all your actions, knew your courtship to your new mistress, and frequent visits there,
-had marked your coldness to and neglect of Flavia, and made observations on your behaviour that fatal night, her sudden illness and surprising death; the minute you turned your back, ran to the convent, which you know was not a stone’s throw from the house; and called upon the honest cordelier,
-‘ who had married you, .a man who *- was a good physician as well as a
-‘ divine, and told him with tears
-0
-* the strange manner of Flavians
-‘ death, which he immediately fuf ' ‘ peded to be the effect of poison;
-‘ and taking Some strong emeticks ‘ with him, ran to the house as fast ‘ as his legs could carry him, and ‘ finding her body warm and pliant,
-‘ poured enough down her throat
-* to effect his good design; for it So
-‘ wrought.
-miss Harriot Montague. 20
-* wrought, that it Soon brought up ^ the baneful drug, and with more ' proper application, at last restored
-* her oppressed faculties to their use, ‘ and her to life and health, with the ‘ innocent child, fo that both were ‘ preserved, and»she perfectly re ‘ covered in a few days; which they ‘ kept a Secret by his advice. Since ‘ your cruel husband (Said he) has ^ this time failed of executing his ‘ wicked purpose, he will no doubt ‘ repeat the attempt, and may ‘ at last Succeed; to avoid which, ‘ you Shall retire to a convent of ‘ our order, where niy Sister is ah ‘ bess, there care Shall be taken of ‘ you and the child. Let him Suffer ‘ by the remorse of his own con
-‘ Science, and Smart for his sin, nor ^ be freed from his torments by
-* knowing you are Saved. When he ‘ dies, I will do justice to the child ‘ if it lives, and Seize the estate.
-‘ Mean time you Shall know how
-‘ he
-V
-202 The HISTORY OF
-* he fares with his new choice, and ‘ be freed from those fears which his ‘ knowledge of your being alive will ‘ subject you to. She consented, and ‘ has continued in this convent ever ‘ since, with her fon, who was born
-'* there. All this I was informed of
-* by her aunt, my near kinswoman,
-* who had made me privy to your ‘ marriage, and engaged me not to
-* disclofe it j but now it ought to be
-* no longer a secret to you, since ‘ you are truly penitent.’ The hermit fell on his knees, and with a stood of tears returned thanks to God, in such moving exprestions, as drew tears from Leander and his kinf man’s eyes. Then they relate d the particulars of their adventures; and rising as soon as day appeared, fet out together for Fort philip, resolv
-to go to Virginia by the first opportunity, whence De Lille might easily get passage to France, being
+had marked your coldness to and neglect of Flavia, and made observations on your behaviour that fatal night, her sudden illness and surprising death; the minute you turned your back, ran to the convent, which you know was not a stone’s throw from the house; and called upon the honest cordelier, who had married you, a man who was a good physician as well as a divine, and told him with tears
+ the strange manner of Flavia's death, which he immediately suspeded to be the effect of poison; and taking some strong emeticks with him, ran to the house as fast as his legs could carry him, and finding her body warm and pliant, poured enough down her throat to effect his good design; for it so
+
+[201]
+wrought, that it soon brought up the baneful drug, and with more proper application, at last restored her oppressed faculties to their use, and her to life and health, with the innocent child, so that both were preserved, and she perfectly recovered in a few days; which they kept a secret by his advice. Since your cruel husband (said he) has this time failed of executing his wicked purpose, he will no doubt repeat the attempt, and may at last succeed; to avoid which, you shall retire to a convent of our order, where my sister is abbess, there care Shall be taken of you and the child. Let him suffer by the remorse of his own conscience, and smart for his sin, nor be freed from his torments by knowing you are saved. When he dies, I will do justice to the child if it lives, and seize the estate.
+Mean time you shall know how
+
+[202]
+he fares with his new choice, and be freed from those fears which his knowledge of your being alive will subject you to. She consented, and has continued in this convent ever since, with her son, who was born there. All this I was informed of by her aunt, my near kinswoman, who had made me privy to your marriage, and engaged me not to disclose it; but now it ought to be no longer a secret to you, since you are truly penitent.’ 
+
+The hermit fell on his knees, and with a stood of tears returned thanks to God, in such moving exprestions, as drew tears from Leander and his kinsman’s eyes. Then they related the particulars of their adventures; and rising as soon as day appeared, set out together for Fort-Philip, resolving to go to Virginia by the first opportunity, whence De Lisle might easily get passage to France, being
 impatient to see and ask pardon of
-bit
-miss Harriot Montague. 20%
-his injured Flavia. Being arrived at Fort philid, they were kindly entertained by tke hermits friend, furnished them with clothes, and a guide, with Some Soldiers to guard them to Virginia, and protect them from the Indians. This officer being acquainted with his friend’s story and leander’s, gave them money to defray their charges on the way to Virginia, from whence Leander promised to furnish De Lisle with all necessaries for his return to France.
-And here we shall leave these gentlemen, to inquire what is become of Monsieur Le Montague harriot’s kinsman, whom she met with in the cottage on the desolate island, and brought with her to the istand of St. Domingo, from whence he went in a bark to Canada in Search of Clementina. He arrived Safe at Quebeck, where he was informed
-204 The H I S T O K Y oy
-formed the French captainshad been to trade, but here he could get no news of her; he visited all the coast in vain, till he came to find out a French merchant, who altured him the Iship was gone to Newfoundland to trade; he immediately went a board his bark, and Set Sail for that place, and here he got intelligence: that Clementina had been Seen there very much indifposed, and that the captain had carried her thence with design to retiirn to France. mon fieur Le Montague was overjoyed at this news; and returning to the island of St. Domingo with the bark, acquainted Dbn Carlos and Harriot with this good news, and resolved to go for France, hoping to find her there before him. An opportunity for this he quickly found, and got Safe thither in a French merchant ship. At his arrival he found hia eldest brother dead, and
-tock
-$
-miss Harriot montagun. 205
-took possession of his estate again, and would have Sat down in repose, had Clementina been there; but no other news could be got of her, but ' that the Ship She was in was taken by the Algerine pirates, and none returned to France to give any account of what was become of her and the other persons on board of it. He well knew it was in vain for him to attempt a farther Search for her, and therefore retired to a little seat in the country, where he gave himself up to contemplation, and lived the life of a man that had quitted the world; whilst poor Clementina being niade a stave, was sold by the Algerine pirate to the bay of Tunis; whose steward, a Moor, that used to purchase the handsome European virgins for his master, bought her, and carried her home to his Seraglio. The French captain had done all that he was able to debauch her
-4
-him
-c The HISTORY or
-«
-himself, but in vain; he was So in amoured, that he could not part with her, though an old man, and having carried her from place to place to no purpose, resolved at last to bring her back to France, and restore her to her friends; condemning her mother’s proceedings and himself for being instrumental in fo wicked a design. But now he was also a stave, and punished for his crime. The virtuous Clementina thus lodged in the Seraglio, with others as unhappy as herfels, being
-a lady of an heroic Spirit and consummate virtue, bravely resolved to die, rather than stabmit to a Mahometan; and thus determined, began to constder what to do to deliver herself; in order to which (he thought it best to apply herself to one of those unfortunate beauties, who seemed well acquainted with that place and life, appearing to have
-£omc
-Miss Harriot Montague. 207
-Some command there. This proved to be a Venetian lady, to whom She addressed herself with tears. Saying, * Madam, your face Speaks you ‘ a Christian as I am, I beg that ‘ you would inform me what I am ‘ to be done withal, in this strange ‘ place ‘ Alas, sweet creature, Said She, ‘ you are destined to be ruin ‘ ed, and deprived of your liberty ‘ during your life. I have lived ‘ here these four years, and never
-* hope to See the outside of these ‘ walls again Then (he took her by the hand, and led her into her chamber, saying, ‘ We shall be ob
-* let us shut the door and ^ talk alone, * Being seated in this room, which was richly furnished, the Seraglio being the finest in the whole city, in which there was apartments for twenty women and their attendants, with fine gardens to walk in, enclosed with walls of
-a great
-ao8 The HIST O R Y, ca
-great height, Clementina told her the whole story of her life and misfortunes, which drew tears from the lovely mariana’s eyes; for So the 'Venetian lady was named. she related her life in this manner,
+
+[203]
+his injured Flavia. Being arrived at Fort-Philip, they were kindly entertained by tke hermit's friend, furnished them with clothes, and a guide, with some soldiers to guard them to Virginia, and protect them from the Indians. This officer being acquainted with his friend’s story and Leander’s, gave them money to defray their charges on the way to Virginia, from whence Leander promised to furnish De Lisle with all necessaries for his return to France.
+
+And here we shall leave these gentlemen, to inquire what is become of Monsieur Le Montague Harriot’s kinsman, whom she met with in the cottage on the desolate island, and brought with her to the istand of St. Domingo, from whence he went in a bark to Canada in search of Clementina. He arrived safe at Quebeck, where he was informed
+
+[204]
+the French captain had been to trade, but here he could get no news of her: he visited all the coast in vain, till he came to find out a French merchant, who assured him the ship was gone to Newfoundland to trade; he immediately went a board his bark, and set sail for that place, and here he got intelligence: that Clementina had been seen there very much indisposed, and that the captain had carried her thence with design to return to France. Monsieur Le Montague was overjoyed at this news; and returning to the island of St. Domingo with the bark, acquainted Don Carlos and Harriot with this good news, and resolved to go for France, hoping to find her there before him. An opportunity for this he quickly found, and got safe thither in a French merchant ship. At his arrival he found his eldest brother dead, 
+
+[205]
+and took possession of his estate again, and would have sat down in repose, had Clementina been there; but no other news could be got of her, but that the ship she was in was taken by the Algerine pirates, and none returned to France to give any account of what was become of her and the other persons on board of it. He well knew it was in vain for him to attempt a farther search for her, and therefore retired to a little seat in the country, where he gave himself up to contemplation, and lived the life of a man that had quitted the world; whilst poor Clementina being made a slave, was sold by the Algerine pirate to the bay of Tunis; whose steward, a Moor, that used to purchase the handsome European virgins for his master, bought her, and carried her home to his seraglio. The French captain had done all that he was able to debauch her
+
+[206]
+himself, but in vain; he was so in amoured, that he could not part with her, though an old man, and having carried her from place to place to no purpose, resolved at last to bring her back to France, and restore her to her friends; condemning her mother’s proceedings and himself for being instrumental in so wicked a design. But now he was also a slave, and punished for his crime. The virtuous Clementina thus lodged in the seraglio, with others as unhappy as herfelf, being a lady of an heroic spirit and consummate virtue, bravely resolved to die, rather than submit to a Mahometan; and thus determined, began to consider what to do to deliver herself; in order to which she thought it best to apply herself to one of those unfortunate beauties, who seemed well acquainted with that place and life, appearing to have
+
+[207]
+some command there. This proved to be a Venetian lady, to whom she addressed herself with tears. Saying, Madam, your face speaks you a Christian as I am, I beg that you would inform me what I am to be done withal, in this strange place.'
+
+‘Alas, sweet creature, said she, ‘you are destined to be ruined, and deprived of your liberty during your life. I have lived here these four years, and never hope to see the outside of these walls again then she took her by the hand, and led her into her chamber, saying, we shall be observed let us shut the door and talk alone.' Being seated in this room, which was richly furnished, the seraglio being the finest in the whole city, in which there was apartments for twenty women and their attendants, with fine gardens to walk in, enclosed with walls of
+
+[208]
+great height, Clementina told her the whole story of her life and misfortunes, which drew tears from the lovely Mariana’s eyes; for so the Venetian lady was named. She related her life in this manner,
 N
 » •
 md QF THE FIRST VOLUME.
@@ -920,8 +904,7 @@ T H E
 history
 ♦
 O F
-Miss Harriot Montague,
-f
+Miss Harriot Montague,f
 IN TWO VOLUMES,
 »
 N LII.
