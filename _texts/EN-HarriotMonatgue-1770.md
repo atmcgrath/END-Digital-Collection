@@ -868,7 +868,7 @@ some command there. This proved to be a Venetian lady, to whom she addressed her
 ‘Alas, sweet creature, said she, ‘you are destined to be ruined, and deprived of your liberty during your life. I have lived here these four years, and never hope to see the outside of these walls again then she took her by the hand, and led her into her chamber, saying, we shall be observed let us shut the door and talk alone.' Being seated in this room, which was richly furnished, the seraglio being the finest in the whole city, in which there was apartments for twenty women and their attendants, with fine gardens to walk in, enclosed with walls of
 
 [208]
-great height, Clementina told her the whole story of her life and misfortunes, which drew tears from the lovely Mariana’s eyes; for so the Venetian lady was named. She related her life in this manner,
+great height, Clementina told her the whole story of her life and misfortunes, which drew tears from the lovely Mariana’s eyes; for so the Venetian lady was named. She related her life in this manner.
 
 
 
@@ -890,12 +890,13 @@ OF
 MISS HARRIOT MONTAGUE
 
 
-I AM the daughter of a noble. Venetian, my brother is a knight of Malta, my name is Mariana. I was placed in a monastery as a pensioner, being but twelve years old; there a young gentleman courted me secretly, the younger son of a noble family, who was a captain in the service of the state, and had no other for tunebut his commistion, which indeed was Sufficient to fupportshim nobly, but ' vol. II B was
-K 2- The HISTORY OF
-was not considerable enough to answer that great fortune my father defign’d me, or to answer his and my brother’s ambitious expectations, I being an only daughter. This gen \ tieman’s person and sense gain d my affection. So that I preser’d him in my heart before all others, gave him my hand and promise to be his; but it was not long e’er it was discoverd that Some conversation had pass’d between us, and I was Sent for home
-and question’d, but confefs’d nothing. This distracted my lover, and he was impatient at' my being kept from him: So that at last he made use of a stratagem to get me, which he thus effected : He sent me a letter by a servant to my father’s, which he doubted not would be intercepted; in which he acquainted me, after abundance of pastionate asturances, that he would ever love me; that fearing I foster’d much constraint and unea stnefs on his account, he was refolv d
-to sell his post, and go for Spain, hav
-Miss Harriot Montague. J
+I AM the daughter of a noble Venetian, my brother is a knight of Malta, my name is Mariana. I was placed in a monastery as a pensioner, being but twelve years old; there a young gentleman courted me secretly, the younger son of a noble family, who was a captain in the service of the state, and had no other fortune but his commistion, which indeed was sufficient to support him nobly, but 
+
+[2]
+was not considerable enough to answer that great fortune my father design’d me, or to answer his and my brother’s ambitious expectations, I being an only daughter. This gentleman’s person and sense gain'd my affection, so that I prefer’d him in my heart before all others, gave him my hand and promise to be his; but it was not long e’er it was discoverd that some conversation had pass’d between us, and I was sent for home and question’d, but confess’d nothing. This distracted my lover, and he was impatient at my being kept from him: so that at last he made use of a stratagem to get me, which he thus effected: He sent me a letter by a servant to my father’s, which he doubted not would be intercepted; in which he acquainted me, after abundance of passionate assurances, that he would ever love me; that fearing I foster’d much constraint and uneasiness on his account, he was resolv'd
+to sell his post, and go for Spain, having
+
+[3]
 ing Some great relations there by his mother’s fide, who was a spanish lady, by whose interest he doubted not to get a better post; and this was the most generous proof he could give me of his affections, being refolv’d to make himself miserable to render me happy. My father, who broke open this letter, was very glad, and had me narrowly watch’d, till he saw that he did what he pretended, which he quickly did; for he sold his post, and took leave of his friends, and went aboard a stiip for Spain, as he pretended. Then I was sent back to the monastery, where I Soon receiv’d a letter from him by means of another penlioner who was our confident; in which he inform’d me, that he lay conceal’d at a village hard by, and that he conjur’d me to get away with the first opportunity, and come to him This I did the next evening at the close of the day, and got safe to his friend’s house where he was conceal’d.
 Here he receiv’d me with open arms,
 B 2, and
