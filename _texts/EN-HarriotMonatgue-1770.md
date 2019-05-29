@@ -869,70 +869,28 @@ some command there. This proved to be a Venetian lady, to whom she addressed her
 
 [208]
 great height, Clementina told her the whole story of her life and misfortunes, which drew tears from the lovely Mariana’s eyes; for so the Venetian lady was named. She related her life in this manner,
-N
-» •
-md QF THE FIRST VOLUME.
-t.
-J
-K •
-9
-t' - ■ ^
-\
-• I
-4
-%
-S
-'\
-/
-• •
-t
-\
+
+
+
+---
+<p class ="centered large">THE HISTORY OF</p>
+<p class ="centered">MISS HARRIOT MONTAGUE</p>
+<p class ="centered large">IN TWO VOLUMES.</p>
+<p class ="centered large">VOL. II.</p>
+<p class ="centered large">LONDON:</p>
+<p class ="centered large">Printed for J. Roson, No. 54, St, martin’s</p>
+<p class ="centered large">Lc Grand, near Newgate street.</p>
+<p class ="centered large">M DCC LX</p>
+---
+<a id ="Volume 2" />
+
 THE
 HISTORY
-\
-I
-O F
-->
-4
-D Miss Harriot Montague.
->
-V
-m
-%
-I
-T H E
-history
-♦
-O F
-Miss Harriot Montague,f
-IN TWO VOLUMES,
-»
-N LII.
-♦
-I
-r
-L O N D O N:
-ated for J. Roson, No. 54, St. maitinv Iu€ wrahu^ near Newgate^'street*
-MDCGLXX. "
-I ^ •
-»•
-V. ^ f
-# ^ ♦
-• * 4
-\
-^ ' / ’ ’
-%
-4 %
-THE
-HIS TORY
-I
-K s
 OF
-\
-mifsharriot Montague,
-s •
-I A M the daughter of a noble. Venetian, my brother is a knight of Malta, my name is Mariana
-I was placed in a monastery as a pensioner, being but twelve years old; there a young gentleman courted me Secretly, the younger fbn of a noble family, who was a captain in the service of the state, and had no other for tunebut his commistion, which indeed was Sufficient to fupportshim nobly, but ' vol. II B was
+MISS HARRIOT MONTAGUE
+
+
+I AM the daughter of a noble. Venetian, my brother is a knight of Malta, my name is Mariana. I was placed in a monastery as a pensioner, being but twelve years old; there a young gentleman courted me secretly, the younger son of a noble family, who was a captain in the service of the state, and had no other for tunebut his commistion, which indeed was Sufficient to fupportshim nobly, but ' vol. II B was
 K 2- The HISTORY OF
 was not considerable enough to answer that great fortune my father defign’d me, or to answer his and my brother’s ambitious expectations, I being an only daughter. This gen \ tieman’s person and sense gain d my affection. So that I preser’d him in my heart before all others, gave him my hand and promise to be his; but it was not long e’er it was discoverd that Some conversation had pass’d between us, and I was Sent for home
 and question’d, but confefs’d nothing. This distracted my lover, and he was impatient at' my being kept from him: So that at last he made use of a stratagem to get me, which he thus effected : He sent me a letter by a servant to my father’s, which he doubted not would be intercepted; in which he acquainted me, after abundance of pastionate asturances, that he would ever love me; that fearing I foster’d much constraint and unea stnefs on his account, he was refolv d
