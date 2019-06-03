@@ -900,36 +900,32 @@ ing some great relations there by his mother’s side, who was a Spanish lady, b
 Here he receiv’d me with open arms, and
 
 [4]
-his friend’s chaplain married us that night. We went away thence before day the next morning, in his coach, which carry’d us to the port where the ship’s boat lay ready to receive us, he having hir’d the vessel on purpose. We went aboard, weigh’d anchor, and set sail for Barcelona; but before we could reach that port, we were unfortunately taken by an Algerine pirate, and brought to this dismal place, where I was parted from him, and sold to this vile infidel, to whose curs’d bed I have been forc’d, and have had the misfortune to be lik’d. He has been absent these four months, being gone to his country seat to pafs the summer feafon, where he has other wretched women to divert him; he is to return hither in three days, and then you must be a victim to his lust no question.
-- Here stie let fall a stood of tears, and Clementina bore her company. ‘ You have, said she, told me a story. ‘ more unhappy than my own, since
-‘ I have
-W
-^ %
-Miss Harriot Montague. 5
-I have still preserv’d my virtue, and ^ am now resolved rather to die than ‘ yield, since providence grants me ‘ three days for my escape. i’ll use ‘ that time, and bravely venture to ‘ get hence, or die in the attempt; if ‘ you will venture with me, speak, i’ll ‘ lead the way, death is preferable to ‘ such a life as this “You say you “are a Christian, heroic maid, said' ' “would you commit self murder? Is no other way left to free us, or must we kill each other ?”
-‘ Far be that dreadful thought, said
-* from my soul; no, I ‘ have thought of other means in the ‘ Short time I have been here. I have ‘ obferv’d a moorish sta whom I ‘ saw enter the garden? ^ 9ith a key at
-* a door that leads to the sea, as near ' as I can guess; that key I am re ‘ solved to purchase by his death. Do ‘ you contrive some strange disguife
-to cover us, and pack your jewels ‘ up, or what you have of value elfe, ready to carry out with us, and I
-B 3 “will
-6 The HISTORY OF
-will meet him at the gate when he enters at the break of day, as I fnp« pose his custom is, and stab him with a penknife I have hid about me. Could we get the habit of an eunuch for each of us, it would be the ‘ safest disguise we could put on; the ‘ Bey being absent, few of his fer ‘ vants left here, and those left on
-* their guard, and more negligent ‘ than when he is present, it will not
-* be fo difficult to. get away as at ano
-'* there time I can procure Such
-“habits, said Mariana, and doubt not ‘‘ though our apartment is lock’d up every night, yet the windows are not fo high, but we may easily ven ture dowm, tying the Sheets of our beds togv er, by which we may slip down iiito the garden, where “in a chamber on one fide the southeast raglio door, two white eunuchs lie “to guard it; next this chamber is the' ‘‘ wardrobe: if one of us can but get in at the window of this place, and
-they not. hear ys, we may have
-‘‘ clothes
-Miss Harriot Montague. 7
-clothes of any kind, - and jewels ‘‘ too.” ‘ I will attempt it, Said Cle ‘ mentina, and would prefer all darr ‘ gers, and even death, to infamy and * fiavery.’ And So will I, Said Ala ‘ riana. Being thus refolv’d, they waited till night came on, when hearing all things still, Clementina crept to her friend’s chamber, who had bundled up her jewels and Some linen : they got down from the window, and then went to the wa rdrobe, the moon Shining very bright, and were Some time before they could get in at the window, it being very high; but at last clemeritina’s wit, which 'exceeded her Sex (tho’ women ever were esteem’d more quick and Subtle than mankind at cunning plots and quick contrivances) Soon found the way to enter; She got on mariana’s shoulders, and went in there trembling; she got two rich vests, two turbants, two pair of Turkish boots, and a box, whose rich outfivde and weight, though small, made her be
-B 4 lieve
-« The HISTORY OF
-lieve it worth the carrying away j these She bundled up, and threw out of the window to her friend : but then She was at a mighty loss how to get out again, which She in vain attempted, it being impofisible for her to get np to the window from whence She had dropped down into the room: no way was left but to pafs through the eunuchs chamber, and this necesfity prevail’d with her to do. She took down two rich fcymiters that hung up in fine embroider’d belts, and having drawn one, pafs’d through the chamber where the eunuchs lay fast asteep, resolving if they stirr’d, to kill them, or to die by their hands. Upon the table there stood a stiver bowl half full of wine, of which no doubt they had took their fill, although their prophet does forbid st them; for fewmuf felmen refuse to drink it in private: this bowl She took, with a bunch of
-^ keys which lay by it; and going to the door found the key in it, fo She gently unlock’d it, and putting it to after her,
-went
-/
-Alifs Harriot Montague. 9
-went out Safely to her friend, who stood trembling and almost dead with fear. Clementina fhew’d her the keys, one of which stie fancy’d would open the garden gate, to which they hasted, and to their great fatisfacftion found it fo : being got out of the gate, ' which they lock’d after them, they stood to confider which vyay to go, and refolv’d to get away from the town to. the next wood or rush’d building they could meet with; they had not gone above two miles, when they enter’d a grove, at the farther end of which they found an old ruin’d mosque, which they went into with great fear, lest some old Turkilh Brahmen or Saintoin Should live there; but hear shg no creature stir but bats and screech owls, and Such vermin as live in unfrequented places, they took courage, and the day beginning to break, they laid down their bundles, and changing their clothes, put on ' their Turkifb habits, which instead of being mean, such as staves wear, be --
+his friend’s chaplain married us that night. We went away thence before day the next morning, in his coach, which carry’d us to the port where the ship’s boat lay ready to receive us, he having hir’d the vessel on purpose. We went aboard, weigh’d anchor, and set sail for Barcelona; but before we could reach that port, we were unfortunately taken by an Algerine pirate, and brought to this dismal place, where I was parted from him, and sold to this vile infidel, to whose curs’d bed I have been forc’d, and have had the misfortune to be lik’d. He has been absent these four months, being gone to his country seat to pass the summer season, where he has other wretched women to divert him; he is to return hither in three days, and then you must be a victim to his lust no question.
+ 
+Here she let fall a stood of tears, and Clementina bore her company. ‘You have, said she, ‘told me a story more unhappy than my own, since
+
+[5]
+I have still preserv’d my virtue, and am now resolved rather to die than yield, since providence grants me three days for my escape. I’ll use that time, and bravely venture to get hence, or die in the attempt; if you will venture with me, speak, I’ll lead the way, death is preferable to such a life as this.’
+
+“You say you are a Christian, heroick maid, said Mariana, “would you commit self murder? Is no other way left to free us, or must we kill each other?”
+
+‘Far be that dreadful thought, said Clementina ‘from my soul; no, I have thought of other means in the short time I have been here. I have observ’d a moorish slave whom I saw enter the garden with a key a a door that leads to the sea, as near as I can guess; that key I am resolved to purchase by his death. Do you contrive some strange disguise to cover us, and pack your jewels up, or what you have of value else, ready to carry out with us, and I
+
+[6]
+will meet him at the gate when he enters at the break of day, as I suppose his custom is, and stab him with a penknife I have hid about me. Could we get the habit of an eunuch for each of us, it would be the safest disguise we could put on; the Bey being absent, few of his servants left here, and those left on their guard, and more negligent than when he is present, it will not be so difficult to get away as at another time.’ 
+
+‘I can procure such habits, said Mariana, and doubt not though our apartment is lock’d up every night, yet the windows are not so high, but we may easily venture dowm, tying the sheets of our beds together, by which we may slip down into the garden, where in a chamber on one side the seraglio door, two white eunuchs lie to guard it; next this chamber is the wardrobe: if one of us can but get in at the window of this place, and they not hear us, we may have
+
+[7]
+clothes of any kind, and jewels too.” 
+
+‘I will attempt it, said Clementina, and would prefer all dangers, and even death, to infamy and slavery.’ And so will I, said Mariana. Being thus resolv’d, they waited till night came on, when hearing all things still, Clementina crept to her friend’s chamber, who had bundled up her jewels and some linen : they got down from the window, and then went to the wardrobe, the moon shining very bright, and were some time before they could get in at the window, it being very high; but at last Clementina’s wit, which exceeded her sex (tho’ women ever were esteem’d more quick and subtle than mankind at cunning plots and quick contrivances) soon found the way to enter; She got on Mariana’s shoulders, and went in there trembling; she got two rich vests, two turbants, two pair of Turkish boots, and a box, whose rich outsivde and weight, though small, made her
+
+[8]
+believe it worth the carrying away; these she bundled up, and threw out of the window to her friend : but then she was at a mighty loss how to get out again, which she in vain attempted, it being imposisible for her to get np to the window from whence She had dropped down into the room: no way was left but to pass through the eunuchs chamber, and this necessity prevail’d with her to do. She took down two rich scymiters that hung up in fine embroider’d belts, and having drawn one, pafs’d through the chamber where the eunuchs lay fast asleep, resolving if they stirr’d, to kill them, or to die by their hands. Upon the table there stood a stiver bowl half full of wine, of which no doubt they had took their fill, although their prophet does forbid it them; for few Musselmen refuse to drink it in private: this bowl she took, with a bunch of keys which lay by it; and going to the door found the key in it, so she gently unlock’d it, and putting it to after her,
+
+[9]
+went out safely to her friend, who stood trembling and almost dead with fear. Clementina shew’d her the keys, one of which she fancy’d would open the garden gate, to which they hasted, and to their great satisfacftion found it so : being got out of the gate, ' which they lock’d after them, they stood to confider which vyay to go, and refolv’d to get away from the town to. the next wood or rush’d building they could meet with; they had not gone above two miles, when they enter’d a grove, at the farther end of which they found an old ruin’d mosque, which they went into with great fear, lest some old Turkilh Brahmen or Saintoin Should live there; but hear shg no creature stir but bats and screech owls, and Such vermin as live in unfrequented places, they took courage, and the day beginning to break, they laid down their bundles, and changing their clothes, put on ' their Turkifb habits, which instead of being mean, such as staves wear, be --
 B r long’d
 /
 10 The HISTORY or
