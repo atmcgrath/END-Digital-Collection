@@ -1703,7 +1703,7 @@ P.S. I have, not returned answers to any of the letters which I have received fr
 
 ---
 
-## LETTER LX.
+## LETTER LX.(180)
 
 From the same to the same.
 
@@ -1713,8 +1713,9 @@ He wrote yesterday to Mrs. Elliot, to desire her to persuade me only to pardon h
 
 My hand trembles so, that I fear this will not be legible. -- It has never been steady, I think, since my fright; nor, in truth, do I ever go to bed absolute
 free from apprehensions, though I lock and bolt both my chamber doors -- I hope I have now only honest people about me; but indeed I always thought Dawson so; she
+had, however, the art to impose upon me. How very cautious ought people to be whom they trust, and what servants they take. Since the very best are so little to be
 
-had, however, the art to impose upon me.^^how very cautious ought people to be whom they trust, and what Servants they take. Since the very best are So little to be depended upon! We Slrould at leasl never put ourselves too much in their power-- -- how uncomsortable is existence, is we must be always Slaves to suspicion -- To have nobody near us whom we can trust, nobody on ■whom we can rely -- What a miserable State! I declare to you, my dear friend, that I look upon the disposition and corruption among our domestics, to be Serious evils, and greatly detrimental to Society.
+depended upon! We Slrould at leasl never put ourselves too much in their power-- -- how uncomsortable is existence, is we must be always Slaves to suspicion -- To have nobody near us whom we can trust, nobody on ■whom we can rely -- What a miserable State! I declare to you, my dear friend, that I look upon the disposition and corruption among our domestics, to be Serious evils, and greatly detrimental to Society.
 -- -- -- -- We must all, in Some Shape, depend upon
 each other, for the comforts and conveniences of life; nor can the highest enjoy themselves -- r -- they cannot indeed subsistr -- without the labour and attendance of the lowest.' -- For my part, I don’t know anything which could have asfedted me more (the loss of my nearest relations and intimate frienda excepted) than this discovery of dawfon’s treacherous behaviour, as She was one of whom I had e ver a very high opinion; but I suppose She, like many of her thoughtless Sex in much Superior Situations, was .weak enough to listen to the tales.of a man who, in order to gratify his own licentious inr clinations, made her believe that he was violently in love with herr-- -- creature j lam afraid She
 wili susser extremely for her credulity. -- -- -- -- Yet,
