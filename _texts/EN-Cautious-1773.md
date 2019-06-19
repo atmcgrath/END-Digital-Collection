@@ -1731,68 +1731,29 @@ Scarce had I finished my last letter to you, when I was obliged to be put to bed
 
 I am a little recovered, so will proceed. --
 
-"When I arrived in St. James’s Square," said Harry, "I resused to send in my name, though the Servant asked me more than once, that he might tell his lady who wanted to Speak with her. -- Let her know, " replied I, "that a gentleman wislies to See her upon particular business, but has not the honour to be acquainted with her. -- From her extreme caution, I was asraid that I Slrould not get at the Sight of
+"When I arrived in St. James’s Square," said Harry, "I resused to send in my name, though the Servant asked me more than once, that he might tell his lady who wanted to speak with her. -- Let her know," replied I, "that a gentleman wishes to see her upon particular business, but has not the honour to be acquainted with her. -- From her extreme caution, I was afraid that I should not get at the sight of her. -- At last, however, she came down into the parlour, accompanied by one of the finest girls I ever beheld. -- Lady Charlotte, with a mingled dignity, and sweetness of aspect, desired to know my business. -- I replied, rather too abruptly, I believe, (though it was only with a view to serve you, my lord) that I came from a dying friend, lord Woburn, who waited only for her pardon to quit the world, which, from the loss osher esteem, was grown odious to him, in peace. -- When I began to speak, she was advancing towards a chair, after having desired me to be seated. -- But she stopped short, while I was speaking,changed colour, and said, "Sir?" I saw that what I had said operated -- I, therefore doubled the dose -- "I say, madam, " continued I, "that my dear friend, lord Woburn, however culpable he may have appeared, or really is in his conduct, now lies at the point of death possibly he may not live to hear your determination about him; he may not live to hear whether you will or will not pardon a behaviour of which nothing but his ardent love for you could have made him guilty." -- I was going on in the pathetic strain. -- The blood instantly forsook her lovely face; she trembled all over, and sunk to the floor. -- I flew to, raise her, to support her, assisted by that charming girl, who continued weeping from the moment I parted my mournful intelligence. -- She called aloud for help. -- The servants entered. -- I carried lady Charlotte to a sopha. -- After numberless applications, she recovered. -- I then made a great many excuses for having so abruptly declared, what I might have imagined would affect her greatly. -- She made no reply. -- In a few moments; riling from the Sopha, She took her young friend by the arm, and walked up stairs, without saying a single syllable, though I made more than one effort to obtain an answer. -- I Sent up to know if she grew better, before I would leave the house. -- No reply came from herself; yet I am sure she was half killed with the news of your danger. -- She is, indeed, a most lovely creature."
 
-her. -- -- At last, however, Sire came down into the
-parlour, accompanied by one of the sinest girls I ever
-beheld. -- Lady Charlotte, with a mingled dignity,
-and sweetness of aspedt, desired to know my business.
-
-• -- I replied, rather too abruptly, I believe, (though it was only with a view to Serve you, my lord) that I came from a dying friend, lord Woburn, who waited only for her pardon to quit the world, which, ‘srom the loss osher esteem, was grown odious to him, in peace. -- -- When I began to Speak, She was advancing
-towards a chair, ‘ after having desired me to be Seated. -- But She Stopped Short, while I was Speaking,
-changed colour, and Said, "Sir ?" I Saw that what I had Said operated -- ^ -- -1, therefore doubled
-the dose-- -- "Say, madam, " continued I,
-"that
-....
-that my dear friend, lord Woburn, however cul" "he may have appeared, or reailynisin his conduct, now lies at the point of death ^posiibly "he may not live to hear your determination about "him; • he may not live to hear whether you will or "will not pardon a behaviour of which nothing but'. "his ardent love for you could have made him guilty." ^! was going on in the pathetic Strain'. ^ The blood instantly forsook her lovely face; Sire trembled alloverj and.sunk to the floor. -- I flew to, raise her, to Support her, aslilted by that charming girl, who continued weping from the iroment I im^ ' parted my mournsul intelligence. -- She called ^ aloud
-for help. -- The Servants entered. -- -- -- -1 carried lady
-Charlotte to a Soplia. -- -- -- aster numberless applications, She recovered. -- -- 1 then made a great
-many excuses for having So abruptly declared, what I might have imagined would afseu her greatly. -- > She made no reply. -- Ina Sew moments; riling from the Sopha, She took her young friend by the arm, and walked up stairs, without Saying a Angle Syllable, though I made more than one essort to obtain an answer. -- I Sent up to know if she grew better,
-before I would leave the house. -- -- No reply came
-from herself j yet I am Sure She was half killed vith
-the news of your danger. -- -- -- She is, indeed, a rnosl
-lovely creature."
-
-Here Harry finished his narrative, and I was convinced, from his description of her disorder, that I was Still dear to her. -- I theresore began to conceive hopes -- consequently to breathe more freely. -- -- -- By
-the way, I could not have been in the danger declared by the doctors-- -- indeed, never thought me Sd. -- What raised my Spirits Still more, was an tnqviry from the dear angel in about bals an hour?
-
-a cordial
-
-
-a cordial superior to all the medicines I hasd swallowed-- -- same inquiry was every half hour repeated, till I was able to quit my bed. -- T have beea up these two days, but am, nevertheless, very indifferent. -- Never Shall I be well, I believe, if ffio
-does not forgive what is past. since my growing
-I etter, her inquiries have ceafeid; I fear She will not be reconciled, as She has refused to see Harry a gain, who has cnilecd twice, at my request, to try to move hei in my favour. -- I am fo weary that I must break off -- You cannot think how weak anid fpirit lels I am grown. -- Lady Huxley wants me to try the air of Huxley Park, but I cannot Bear the thoughts of quitting London, while this dear injured woman Stays in k.
+Here Harry finished his narrative, and I was convinced, from his description of her disorder, that I was still dear to her. -- I theresore began to conceive hopes -- consequently to breathe more freely. -- By the way, I could not have been in the danger declared by the doctors -- Henry, indeed, never thought me so. -- What raised my spirits still more, was an inquiry from the dear angel in about half an hour; a cordial superior to all the medicines I had swallowed. -- The same inquiry was every half hour repeated, till I was able to quit my bed. -- I have been up these two days, but am, nevertheless, very indifferent. -- Never shall I be well, I believe, if she does not forgive what is past. since my growing letter, her inquiries have ceased; I fear she will not be reconciled, as she has refused to see Harry again, who has called twice, at my request, to try to move her in my favour. -- I am so weary that I must break off -- You cannot think how weak anid spirit less I am grown. -- Lady Huxley wants me to try the air of Huxley Park, but I cannot bear the thoughts of quitting London, while this dear injured woman stays in it.
 
 ---
 
-## LETTER LXII
+## LETTER LXII.
 
 Lady Charlotte Morden to Mrs. Blomer.
 
-HOW excesiively have I been surprised, my dear friend! -- But, indeed, though I am become accustomed to Sudden changes, I do not bear them well. -- My fainting away on being told that lord Woburn was dying, is a Strong proos, I imagine, of this assertion. -- I cannot help being affected, on his • account at this moment, though they asture me, that he has been out osdanger for Some time. -- I do not pretend to be insensible, ncr can I forget the
-hopes I once entertained of Spending the remainder
-of
-^ ■' -- » -- -- ▼ MM
-.
-of my life with a man -- -- Yet, why Should I complain? Why should I repine.? Ought I not rather to think heaven for Saving me from the misery of pafi sing my days with a man of principles So opposite to my own.? -- Yet there is no reason why I Should be j in any sirape accestary to his death, because our I Sentiments da not happen to be the Same. -- I could not, I confess, hear of his dangerous Situation, related by a friend, whom he Sent to me to Solicit my forgiveness, without Shuddering; yet, tho’ I loll my senses, from Surprise and concern, I was not, on my recovery, weak enough to enter into a conversation, with Mr, Wilmot (that I think was his name) upon a Subject that could not but be distreffing to me.
-Poor Kitty was wilh me, and almost wept out her eyes. -- She never lets me rest a moment j Sire Says,
-'perpetually Says, that Sire is Sure he did not design to behave amiss, as he loved me too well to vex me. --
-Poor dear girl! Sire is ignorant, happily ignorant, of the arts of designing men. -- May Sire never susser by their insinuating manners, and iniquitous proceedings!
-I also thank heaven that lord Woburn is better. --
-I Slrould never have enjoyed a moment’s ease, if I had only Sancied I had been any vv^ay instrumental to his death.
-I will, from this time, keep myself quite Sree from any connedt/ons with men. -- I never knew Sorrow'
-till I knew lord Woburn; -- -- -- and yet they tease
-me about Sir Charles Conyers. -- -- -- -1 was in hopes
-i that he had been Sixed upon for Kitty; but I find he only thought ofher, on a Supposition that I was engaged. -- However, he Slrall not Serve my iittle friend So. -- I will never take him from her, though She dish covers a remarkable dislike and shyness. -- lord Woburn was her Savourite. -- Poor girl! -- -- -- -- Yet if he
-Should marry her, he will, I dare Say, behave well '
-H 5 to
-to So Sweet a young creature, about whom he cannot be suspicious-- -- he is not likely to recover, 1 -- People, indeed, who have Seen him, tell me he is a riazingly altered. -- I wisli for his recovery, but I wish also, never to remember what I have Suffered on his account.
+How excesiively have I been surprised, my dear friend! -- But, indeed, though I am become accustomed to sudden changes, I do not bear them well. -- My fainting away on being told that lord Woburn was dying, is a strong proog, I imagine, of this assertion. -- I cannot help being affected, on his account at this moment, though they assure me, that he has been out of danger for some time. -- I do not pretend to be insensible, nor can I forget the hopes I once entertained of spending the remainder of my life with a man -- -- Yet, why dhould I complain? Why should I repine? Ought I not rather to think heaven for saving me from the misery of passing my days with a man of principles so opposite to my own? -- Yet there is no reason why I should be in any shape accessary to his death, because our I sentiments do not happen to be the same. -- I could not, I confess, hear of his dangerous situation, related by a friend, whom he sent to me to solicit my forgiveness, without shuddering; yet, tho’ I lost my senses, from surprise and concern, I was not, on my recovery, weak enough to enter into a conversation, with Mr. Wilmot (that I think was his name) upon a subject that could not but be distressing to me.
 
-LETTER lxm.
-i
-*
-Lord woburn to Mr. Wilmot.
-\
+Poor Kitty was wilh me, and almost wept out her eyes. -- She never lets me rest a moment; she says, perpetually says, that she is sure he did not design to behave amiss, as he loved me too well to vex me. -- Poor dear girl! She is ignorant, happily ignorant, of the arts of designing men. -- May she never suffer by their insinuating manners, and iniquitous proceedings!
+
+I also thank heaven that lord Woburn is better. -- I should never have enjoyed a moment’s ease, if I had only fancied I had been any way instrumental to his death.
+
+I will, from this time, keep myself quite free from any connections with men. -- I never knew sorrow till I knew lord Woburn; -- and yet they tease me about Sir Charles Conyers. -- I was in hopes that he had been fixed upon for Kitty; but I find he only thought ofher, on a supposition that I was engaged. -- However, he shall not serve my little friend so. -- I will never take him from her, though she discovers a remarkable dislike and shyness. -- lord Woburn was her favourite. -- Poor girl! -- Yet if he should marry her, he will, I dare Say, behave well to so sweet a young creature, about whom he cannot be suspicious -- he is not likely to recover. -- People, indeed, who have seen him, tell me he is a amazingly altered. -- I wish for his recovery, but I wish also, never to remember what I have suffered on his account.
+
+---
+
+## LETTER LXIII. (186)
+
+Lord Woburn to Mr. Wilmot.
 
 HOW much am I indebted to your brother! Had he not Stood my friend, I must have Sunk ere now, under the weight of a disappointment which will, I believe, make an end of me. -- So much the better -- My whole Soul is wrapped up In lady Charlotte, and Sire cannot forgive me. -- Perhaps She may in time be prompted by her excellent disposition to
 pardon me -- -- but her delicacy will never, I fear,
@@ -1813,9 +1774,10 @@ venture, in any Shape, to incur her displeasure.
 Adieu,
 w-- -- :
 
+---
 
-I
-LETTER LXIV
+## LETTER LXIV.
+
 Lady C h ari. OTTE Morden to
 Mrs, Blomer.
 show
@@ -1829,9 +1791,11 @@ that
 X -- v y XV T y W IV 1, JL Q 4
 that will never do. -- Wilmot is only a younger brother, though, to all appearance, an agreeable man,
 '-- Sir Charles is Sull as agreeable, and has a large
-1 eslate, -- -- -- -- -1 am interrupted,
-1
-In CONTINUATION.
+1 eslate, -- -- -- -- -1 am interrupted
+
+---
+
+## IN CONTINUATION.
 I Lady Huxley is jusl gone, -- She has lest nothing unsaid to vindicate her brother, and to prevail on me to pardon him; to pardon him, is I will not accept of him. -- I begged to be excused talking of, or listening to a Subject which gives me but too much disturbance.
 "Only tell me that you forgive him, lady Charlotte, " Said Sire, at last, "you need not be apprehensive of his taking advantage of Such a Savour, " added Sire, Sobbing while She Spoke, "my pool Charles will not live to osfend you again."
 Will you condemn me, my dear Blomer, if I asture you that my tears Slowed as fast as
@@ -1855,16 +1819,10 @@ present illness. -- -- -- It was the Shame, the remorse he
 Selt after having acted in a manner not to be justified by his own conscience, in the calm moments of recollection, which.brought his Sever on.him; -- -- -- -- and yet they will impute his illness to my inflexibility. -- -- -- -- Pray examine both Sides of this unfortunate
 afsair with attention. -- You will then, I flatter snyself, be of my opinion.
 
-\
-I
-}
-\
-f
-'f
-L E TIN.
-, 0j
-LETTER LXV
-«
+---
+
+## LETTER LXV.
+
 Lord Woburn to Mr. Wilmot.
 I THANK you for your Solicitude about my recovery,
 
