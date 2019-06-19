@@ -405,7 +405,7 @@ It is not to be endured. I must speak or die; nothing can save me. -- This encha
 
 ---
 
-## LETTER XIV. (47)
+## LETTER XIV.
 
 Lady Charlotte Morden to Mrs. Blomer.
 
