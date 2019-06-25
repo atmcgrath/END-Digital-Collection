@@ -1846,31 +1846,24 @@ But I shall fatigue you too much, lady Charlotte, in sending you such a long let
 
 ---
 
-## LETTER LXVIII. (212)
+## LETTER LXVIII. (202)
 
 From the same to the same.
 
 I am going to continue my narative, madam, and without any apology, because you, I imagine, desire to read the continuation of it, without being interrupted by any impertinent preface to it.
 
-My friend, Carey, soon found that Miss Boswell was as saithless, as fire was fair; and that he had no reason to expe£t fidelity from a woman who had not been Saithful to herself. -- In the sirst tranfc ports of his anger, he turned her out of his house, and bade her go to the man whom Sire prcsered to him.
-Shocked at having been discovered, and Stung to the Soul at being So cavalierly treated by the man fo whom She had Sacrificed everything -- Sire lest him, as Sire believed, quite cured of the Slightest regard for him; as he had behaved to her in So
+My friend, Carey, soon found that Miss Boswell was as faithless, as fire was fair; and that he had no reason to expect fidelity from a woman who had not been Saithful to herself. -- In the first transports of his anger, he turned her out of his house, and bade her go to the man whom she prefered to him.
 
-infamous a manner. -- -- However, after a very Short
-residence with her new lover, who was the mosl volatile and fickle creature breathing, She Sound that Sire Still loved Carey, and that her tenderness
-for him was not to be extinguislied. yet, being
-too proud to make the Smallest submisiions, andcon fcious of having been grosly abused, Sire remained for Some time, in a State of wretchedness, not to be described.
-Her relations and friends in England had totally abandoned her, upon her sirst going off in So in discreet a manner; and her Sather divided the for tun.e he was to have given with her, to Carey, between her two younger Siiters, who were, in coni
-Sequence
-Sequence of that division, married. -- -- -- -- -- Without
+Shocked at having been discovered, and stung to the soul at being so cavalierly treated by the man to whom she had sacrificed everything -- she left him, as she believed, quite cured of the slightest regard for him; as he had behaved to her in so infamous a manner. -- However, after a very short residence with her new lover, who was the most volatile and fickle creature breathing, she found that she still loved Carey, and that her tenderness for him was not to be extinguished. -- Yet, being too proud to make the smallest submisiions, and conscious of having been grosly abused, she remained for some time, in a state of wretchedness, not to be described.
 
-that addition to the fortunes intended for them be?" fore, they might never have received any honourable overtures, for the indiscretion of one daughter in a Samily is Srequently detrimental to her Sisters.
+Her relations and friends in England had totally abandoned her, upon her first going off in so in discreet a manner; and her father divided the fortune he was to have given with her, to Carey, between her two younger sisters, who were, in consequence of that division, married. -- Without that addition to the fortunes intended for them before, they might never have received any honourable overtures, for the indiscretion of one daughter in a family is frequently detrimental to her sisters.
 
-As miss bor\a'’eli vt^as deserted thus, and negleued hy thole to whom Sire was most nearly related, with whom Sire was most intimately conneued, Carey refledled with pleasure on his not having married a woman of So loose a disposition, of So infamous a eharadter : Ire even began to think himself less culpable, for having attempted her to deviate from
+As Miss Boswell was deserted thus, and negleued hy thole to whom Sire was most nearly related, with whom Sire was most intimately conneued, Carey refledled with pleasure on his not having married a woman of So loose a disposition, of So infamous a eharadter : Ire even began to think himself less culpable, for having attempted her to deviate from
 virtue. -- -- Her incontinence, however, made the Sex
 in general, appear to him in So unfavourable a light, that he chose to avoid any connexions with them, for Sear of meeting with a Second Mira bosvvell.
 -- -- -- aster having Spent Some years in different parts
-
 of France and Italy, during which I became intimate with him, as he Saved me more than once from being drawn into the greatest hazard of my lise, by the licentious behaviour of the women in both those countries -- he returned to England 5 and, from that time, We continued on the raost friendly Footing.
+
 One day pasling by the house, in which he had Spent many, many happy hours with Mira, he Star -- ted, turned pale, and laying his hand on my slioul der, cried, "I am always affected at the Sight of a place once dear to me, but V hich is now remembered with a kind of horror."
 
 At that instant cne of the prettiest little boys I had ever Seen, very plainly, but neatly drested, puh led him by the coat, and begged him to give him a penny.
@@ -1938,9 +1931,13 @@ trouble. -- -1 am waiting very Salt. -- -- -- My life
 will Soon come to a period; yet Shall f, with niy
 latest bieath, call down blessings on you. and
 I Shall leave the world Supremely satisfied, in having found out the most virtuous woman in it.
-LETTER LXIX
-Lady Charlotte Morden to Mrs.
-Blomer.
+
+---
+
+## LETTER LXIX.
+
+Lady Charlotte Morden to Mrs. Blomer.
+
 At the repeated interceslion of Mr. Wilmot, I have read three asfefting letters (received from his hands) from lord Woburn. 1 have transcribed them for your perusal. -- -- The melancholy tale
 ■ related In two of them is a true one, as Mr. Wilmot allures me. -- -- Mr. Carey, it Seems, dying without
 being capable of making a provision for his Son, lord Woburn, from friendship to the Sather, and compaslion to the child, immediately Settled five thousand pounds upon him, and put him to School; from which time he has treated him like his own Son. -- ■there is Something very great in this behaviour.
@@ -1968,7 +1965,11 @@ ail this Submiffipn and admiration, added to the agreeableness of his person, ca
 hurn, -- Kitty, now deprived of the Sight of the
 
 latter, thinks the Sormer a very charming man; -- .1 Sancy So, from my remarks on her behaviour j for She has not declared her partiality in his behalf.
-LETTER LXX
+
+---
+
+## LETTER LXX.
+
 Lord Woburn to Mr. Wilmot.
 I HAVE Sent, as I told you I would, the hislory of poor Carey, at disserent times, to lady Charlotte. -- Wilmot kindly undertook to prevail on her to read it; and I have had the satissauion to know, that it
 asseued her extremely. -- Yetis She immoveable
@@ -1985,10 +1986,10 @@ brother persuades me to throw mysels in her way, and thinks Sire cannot withstan
 by Sollowing his advice. -- -- -- However, I cannot be
 , worst than I am. -- that’s imposiible.
 
-I 6 L E TIFF
-t,
-/
-LETTER LXXI
+---
+
+## LETTER LXXI.
+
 Lady Ch A r L ott e Morde n,. to Mrs. Blomer.
 
 I THANK you for your opinion, and am glad that we think alike, with regard to lord Woburn 5 but I cannot agree with you, that it is quite neces sary for me, to accept of the sirst man who offers himself. -- besides, neither Sir William asliton, nor Sir Charles Conyers have, I am persuaded, the leasl afsedtion for me. -- They, undoubtedly, have no dislike to my Sortune and connedlions. how very
