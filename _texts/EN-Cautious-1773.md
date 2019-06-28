@@ -1939,44 +1939,34 @@ She blushed, he said, and hung her head, as is she felt the truth of his asserti
 
 ---
 
-## LETTER LXXI. (212)
+## LETTER LXXI.
 
 Lady Charlotte Morden, to Mrs. Blomer.
 
-I thank you for your opinion, and am glad that we think alike, with regard to lord Woburn but I cannot agree with you, that it is quite necessary for me, to accept of the first man who offers himself. -- Besides, neither Sir William asliton, nor Sir Charles Conyers have, I am persuaded, the leasl afsedtion for me. -- They, undoubtedly, have no dislike to my Sortune and connedlions. how very
-different is their behaviour from that of lord Woburn, when he was sirst accepted.? How disferent, indeed, are they in their manners, from Mr. Wilmot, whose whole attention to please is extreme. -- ■ He has, entirely by making himsels agreeable, induced Mr. and Mrs. Elliot to treat him with particular politeness; their behaviour to him is, I think, the more extraordinary, as they cannot, I am Sure, entertain any thoughts of him either for me or Kitty.: -- In Short, we are rather a little at cross purposes, if I may be permitted to Say So; for Mr. Wilmot, though be treats everybody with the mosl becoming propriety, evidently distinguislres me. -- 1 do not Speak out of vanity; believe me. I cannot be mistaken. -- Indeed, I am not the only person who
-has taken notice of his Solicitude about me; he
-Seems, however, to endeavour to conceal his Seelings in my favour. -- He Srequently flies to asfisl me, to entertain me, to please me, but often draws back, as is he checked himsels for his sorwardness to o blige me. -- When a man discovers a Strong desire to make himself agreeable, and behaves, at the Same
-time.
-j -- ^ -- -- -- * » 'W
-\
-\ time, with an uncommon modesty, ought he not to be distinguiihed'pyet, do not fancy, my dear Mrs. Blomer, that I can ever look upon Mr. Wilmot in
-I the light I beheld lord Woburn. -- I look upon him
-, only as my lord’s friend. -- Poor Kitty is not So indis
-Serent. -- While he his with his eyes now and then lifted up, and now and then cast down, with half Suppressed Sighs, She sighs too, and Says Some good. natured thing to divert his thoughts, and to turn them into another channel. -- I really think tbese a greeablg people may Sigh themselves into a pasiion for each other in a little while; that is, I am Sure She likes him, and, I imagine, that the discovery of her inclination by him, may produce Similar emotions in his breast. -- Sir Charles Conyers fluctuates between Kitty and me; but were I to give him encouragement, he would not, lam certain, think
-about her, because my fortune is the largest. -- --
-Would you advise me, my dear friend, to marry, Such a man?
-«
-your’s, Sincerely,
-Charlotte morioenj
+I thank you for your opinion, and am glad that we think alike, with regard to lord Woburn but I cannot agree with you, that it is quite necessary for me, to accept of the first man who offers himself. -- Besides, neither Sir William Ashton, nor Sir Charles Conyers have, I am persuaded, the least affection for me. -- They, undoubtedly, have no dislike to my fortune and connections. -- How very
+different is their behaviour from that of lord Woburn, when he was first accepted? How different, indeed, are they in their manners, from Mr. Wilmot, whose whole attention to please is extreme. -- He has, entirely by making himself agreeable, induced Mr. and Mrs. Elliot to treat him with particular politeness; their behaviour to him is, I think, the more extraordinary, as they cannot, I am sure, entertain any thoughts of him either for me or Kitty.-- In short, we are rather a little at cross purposes, if I may be permitted to Say so; for Mr. Wilmot, though be treats everybody with the most becoming propriety, evidently distinguishes me. -- I do not speak out of vanity; believe me. I cannot be mistaken. -- Indeed, I am not the only person who has taken notice of his solicitude about me; he seems, however, to endeavour to conceal his feelings in my favour. -- He frequently flies to assist me, to entertain me, to please me, but often draws back, as if he checked himself for his forwardness to oblige me. -- When a man discovers a strong desire to make himself agreeable, and behaves, at the same time, with an uncommon modesty, ought he not to be distinguished? Yet, do not fancy, my dear Mrs. Blomer, that I can ever look upon Mr. Wilmot in the light I beheld lord Woburn. -- I look upon him only as my lord’s friend. -- Poor Kitty is not so indifferent. -- While he has with his eyes now and then lifted up, and now and then cast down, with half suppressed sighs, she sighs too, and says some good-natured thing to divert his thoughts, and to turn them into another channel. -- I really think these agreeable people may sigh themselves into a passion for each other in a little while; that is, I am sure she likes him, and, I imagine, that the discovery of her inclination by him, may produce similar emotions in his breast. -- Sir Charles Conyers fluctuates between Kitty and me; but were I to give him encouragement, he would not, I am certain, think about her, because my fortune is the largest. -- Would you advise me, my dear friend, to marry, such a man?
+
+> Your’s, sincerely,
+
+>> Charlotte Morden.
 
 ---
 
 ## LETTER LXXII.
 
-From the Same to the Same.
+From the same to the same.
 
-SOON after I dispatched my last letter to you, ''T" had a long conversation with Mr. Wilmot --
-He pleaded with Such earnestness for his friend, and ' discovered So much sensibility, that I could hardly bear it. -- -- -- I, theresore, desired him not to mention, lord Woburn again, if he had the least regard for ' me, "As I have long taken my final resolution upon the Subject" " I, "let me entreat you, Sir, to Spare my listening to arguments, which only fill me with concern, on his lordslrip’s account. -- I cannot but be concerned, I own, to think oshis having put
-it entirely out of my power to grant his request. -- -- '
-Has he not already induced me, by Mr. carey’s Story, to believe, that two people cannot expect to be happily connected, when they have proceeded, on both Sides, to improper Sreedoms ?"
-"You do not State the case Sairly, I apprehend, madam" " he; "Mr. Carey was rendered" miserable, from the want of discretion in his mis -- -- ' tress;; would you make lord Woburn Singular --, ly unhappy, by having Sound So much ?"
-, "I am Sure, " Said I, "it will be discreet in me to put an end to this conversation; and So I Slrail leave you to Mils Downton."
+Soon after I dispatched my last letter to you, I had a long conversation with Mr. Wilmot. -- He pleaded with such earnestness for his friend, and discovered so much sensibility, that I could hardly bear it. -- I, theresore, desired him not to mention, lord Woburn again, if he had the least regard for me, "As I have long taken my final resolution upon the Subject," added I, "let me entreat you, Sir, to spare my listening to arguments, which only fill me with concern, on his lordship’s account. -- I cannot but be concerned, I own, to think of his having put it entirely out of my power to grant his request. --Has he not already induced me, by Mr. Carey’s story, to believe, that two people cannot expect to be happily connected, when they have proceeded, on both sides, to improper freedoms "
+
+"You do not state the case fairly, I apprehend, madam," replied he; "Mr. Carey was rendered miserable, from the want of discretion in his mistress; and would you make lord Woburn singularly unhappy, by having found so much?"
+
+"I am sure," said I, "it will be discreet in me to put an end to this conversation; and so I shall leave you to Miss Downton."
+
 I then went upstairs.
-Kitty Soon came to tell me, that Sire had been endeavouring to console Mr. Wilmot for my cruelty, .but that Sire had Spent her time in vain, as he was
-not
-not to be comsorted : adding, "he has told me in confidence, that lord Woburn is in a very declining State; and, that he Sirmly believes, nothing but a change in you can Save his lise, "
-I heard all this, but made no answer; imagining that Wilmot had only talked in this Strain to Kitty, to move me to compaslion. -- That my lord is concerned at our Separation, I can easily conceive; and I suppose he is not thoroughly recovered from his Sever, which has been, probably, increased by his reproaching reflections. -- He may now, perhaps, be ashamed of his imprudent conduit, and Sorry for having acted with Such glaring impropriety; but his. Shame and his Sorrow will wear off by degrees, and he will, posiibly, forget all his palt misderneanors. -- • 1 Sincerely wisli him well. -- I can Say no more
+
+Kitty soon came to tell me, that she had been endeavouring to console Mr. Wilmot for my cruelty, but that she had spent her time in vain, as he was not to be comforted: adding, "he has told me in confidence, that lord Woburn is in a very declining state; and, that he firmly believes, nothing but a change in you can save his life."
+
+I heard all this, but made no answer; imagining that Wilmot had only talked in this strain to Kitty, to move me to compassion. -- That my lord is concerned at our separation, I can easily conceive; and I suppose he is not thoroughly recovered from his fever, which has been, probably, increased by his reproaching reflections. -- He may now, perhaps, be ashamed of his imprudent conduit, and sorry for having acted with such glaring impropriety; but his shame and his sorrow will wear off by degrees, and he will, possibly, forget all his past misderneanors. -- I sincerely wish him well. -- I can say no more.
 
 ---
 
@@ -1984,88 +1974,63 @@ I heard all this, but made no answer; imagining that Wilmot had only talked in t
 
 Lord Woburn to Mr. Wilmot.
 
-I SHALL Soon be obliged, my friend, by the irresistible hand of Sat, to put an end to a corresh pondence which has been So long and So amicably carried on between us -- I wish only to live to enjoy your friendsliip, and to hear of lady charlotte’s for
+I shall soon be obliged, my friend, by the irresistible hand of fate, to put an end to a correspondence which has been so long and so amicably carried on between us -- I wish only to live to enjoy your friendship, and to hear of lady Charlotte’s forgiveness. -- Of the former I am sure, but not all the eloquence of our dear Harry can procure me the latter. -- I must submit.
 
-giveness. -- -- of the Sormer I am Sure, but not all
-the eloquence of our dear Harry can procure me
-the latter. -- -1 must Submit.
-I am, through weakness, or I know not what, obliged
+I am, through weakness, or I know not what, obliged to lay down my pen. -- I shall soon lay It down, never to take it up again.
 
-to lay down ray pen. -- -- -- -1 Slrall Soon lay It
-down, never to take it up again, ^
-I have
-I have made my will; but have left lady Charlotte nothing, ■ because I believed it would pain her extremely, to receive anything that had been mine. -- ■ While I had hopes of pardon, I looked above everything; but as I now find, that her pardon is not to be obtained, I most readily give up all I held dear.
--- -- -- -- -- hadi, indeed, the least interest with her, I
-would recommend Harry to her; but my recommendation, as matters are circumstanced might,
-perhaps, deprive him ofher delightsui Society. -- -- -- -- --
-I think he would make her happy; he loves her with a kind of idolatry, and has acted with the noblest, the most disinterested friendship towards me. -- It is time for me to be out of the world, as I only disturb or disgusl everybody whom I love and esh teem in it.
-Lady Huxley has just been here. -- Her concern afsedts me; yet I cannot yield to her entreaties to try the South of France, which the impertinent
-doctors declare absolutely necestary for me. -- -- -- -- --
-But Supposing I was willing to leave England, what relies could a disterent climate give to a wounded mind? Nothing but the dear cause of my disorder can efredtually cure it; and as She Sears to put herself into my power, why Should I torment her.? It Is better for me to die, than Sorus both to be miserable. -- -- -- -- -- Let me only add, that women in
-general might, by behaving in a disserent manner. Save themselves, and many an honest fellow, from that kind of distradtion under which I now labour. -- The majority of both Sexes, indeed. Suffer by discovering each other’s infamous proceedings; but I am now hastening to my lasl moments, for having Sound lady Charlotte possessed of more virtues than could have existed, I believed, in a female Sorm. -- Great, I consess, has been my folly, and while I am enduring inexpressible anguish for it, I can
-Scarce
-jl ji 'W JL V JL T T X # w ^
-\
-Scarce blame the dear creature for keeping up a ' proper Spirit, and resenting an insult which deserved the Severest chastiseraent. -- ^shehas Severely chaslifed me, and I kiss her corredting hand.
-I have lest carey’s boy, who promifes to be as a miable as his Sather. -- May he, by associating only with women of real virtue, escape his sather’s Sat! -- I have left him ten thousand pounds, and appointed
-you and your brother his trustees- -- -- -- and he
-will, I doubt not, take care to See him well educated,
-'-- I owe him this mark of my regard, in return for all the proofs I received of his father’s friendship--
--- -- -- -- him up with a thorough detestatioa
-of every kind of vice-- -- particularly careful to Warn him against the Sedudtion of women. -- They are bad enough of themselves-- -- want no provocatives to mischies,
-I, et his sather’s Sat be Srequently displayed to him in the most lively colours, that he may be deterred from availing himselsof the tenderness osthe woman whom he intends to make his wise j and let my jealousy and resentment, causeless jealousv' and raslr resentment, -- be Strongly pointed out to him, that he may not be hurried to Sulpedt the woman whom he honourably addrestes, without the most alarming
-reasons. -- -- -- Above all, let him be taught
-never to deviate So Sar from the respedt due to virtue, as to offer to take any improper Sreedoms.
-How Sincerely do I now condemn myself for having.. So ridiculous a precipitation, attempted to try lady charlotte’s discretion! -- How nobly did Sire repel all my attacks And how cruelly -- may I not Say cruelly! -- does She for ever reject a man, who cannot but find his tenderness increase Sora woman, whom he has discovered to be So exemplary a character.? -- Freely do I acknowledge, that I was highly culpable in going Such unjultifiable lengths, when I had all the reason in the world to believe that my suspicions were groundless j -- but yet my contrition,
-zio XT. i o J. w rv I va r
-my remorse, and even the principles which led me to' believe, that no woman could make me happy except herfels, whom I distinguished for the purity of her Sentiments, and her excellent manners, ought, I think, to have Some weight with her-- -- -- who is Searful of meeting with women of a loose disposition, and desirous of aslociating only with the most virtuous of the Sex, must be totally disserent from the libertine in his governing Sentiments, that a woman of the nicest honour need not to be asraid of his behaving, improperly to her, when Sh has consented to take him for her husband. -- But Hiy raslr behaviour, for which I can, it Seems, make no atonement; has Steeled lady charlotte’s heart against me.
-I am too ill to write any more at present-- --
+I have made my will; but have left lady Charlotte nothing, because I believed it would pain her extremely, to receive anything that had been mine. -- While I had hopes of pardon, I looked above everything; but as I now find, that her pardon is not to be obtained, I most readily give up all I held dear. -- Had I, indeed, the least interest with her, I would recommend Harry to her; but my recommendation, as matters are circumstanced might, perhaps, deprive him ofh er delightful society. -- I think he would make her happy; he loves her with a kind of idolatry, and has acted with the noblest, the most disinterested friendship towards me. -- It is time for me to be out of the world, as I only disturb or disgust everybody whom I love and esteem in it.
 
-have but one card more to play -- -- -- -- then ftrewelb
-for ever.
-Adieu, --
+Lady Huxley has just been here. -- Her concern affects me; yet I cannot yield to her entreaties to try the South of France, which the impertinent doctors declare absolutely necestary for me. -- But supposing I was willing to leave England, what relief could a different climate give to a wounded mind? Nothing but the dear cause of my disorder can effectually cure it; and as she fears to put herself into my power, why should I torment her.? It Is better for me to die, than for us both to be miserable. -- Let me only add, that women in general might, by behaving in a different manner. Save themselves, and many an honest fellow, from that kind of distraction under which I now labour. -- The majority of both sexes, indeed, suffer by discovering each other’s infamous proceedings; but I am now hastening to my last moments, for having found lady Charlotte possessed of more virtues than could have existed, I believed, in a female form. -- Great, I confess, has been my folly, and while I am enduring inexpressible anguish for it, I can scarce blame the dear creature for keeping up a proper Spirit, and resenting an insult which deserved the Severest chastisement. -- She has severely chastised me, and I kiss her correcting hand.
+
+I have left carey’s boy, who promises to be as amiable as his father. -- May he, by associating only with women of real virtue, escape his sather’s fate! -- I have left him ten thousand pounds, and appointed you and your brother his trustees -- and he will, I doubt not, take care to see him well educated. -- I owe him this mark of my regard, in return for all the proofs I received of his father’s friendship -- Bring him up with a thorough detestation of every kind of vice -- particularly careful to Warn him against the seduction of women. -- They are bad enough of themselves -- they want no provocatives to mischief.
+
+Let his father’s fate be frequently displayed to him in the most lively colours, that he may be deterred from availing himself of the tenderness of the woman whom he intends to make his wife; and let my jealousy and resentment, causeless jealousv and rash resentment, be strongly pointed out to him, that he may not be hurried to suspect the woman whom he honourably addresses, without the most alarming reasons. -- Above all, let him be taught never to deviate so far from the respect due to virtue, as to offer to take any improper freedoms.
+
+How Sincerely do I now condemn myself for having so ridiculous a precipitation, attempted to try lady Charlotte’s discretion! -- How nobly did she repel all my attacks And how cruelly -- may I not say cruelly! -- does she for ever reject a man, who cannot but find his tenderness increase for a woman, whom he has discovered to be so exemplary a character? -- Freely do I acknowledge, that I was highly culpable in going Such unjustifiable lengths, when I had all the reason in the world to believe that my suspicions were groundless; -- but yet my contrition, my remorse, and even the principles which led me t  believe, that no woman could make me happy except herself, whom I distinguished for the purity of her sentiments, and her excellent manners, ought, I think, to have some weight with her -- who is fearful of meeting with women of a loose disposition, and desirous of associating only with the most virtuous of the sex, must be totally different from the libertine in his governing sentiments, that a woman of the nicest honour need not to be afraid of his behaving, improperly to her, when she has consented to take him for her husband. -- But his rash behaviour, for which I can, it seems, make no atonement, has steeled lady Charlotte’s heart against me.
+
+I am too ill to write any more at present. -- I have but one card more to play -- then farewell for ever.
+
+> Adieu,
+
+>> W-----.
 
 ---
 
-## LETTER LXXIV.
+## LETTER LXXIV. (219)
 
-From the Same to the Same.
-IH A V E done as I Said T would. -- -- -- have had
+From the same to the same.
 
-an interview. -- Such an interview! -- Oh! Wilmot, I am beloved to an extravagance of tenderness,
--- -- Yet will the dear, dear creature, be Still perverse
-; Still obstinately refuse to make me complete !y happy.
-• Harry had long persuaded me to let her See me, but I could not think of any place in which I could exhibit myself in a manner the moult likely to touch her; at least in which Such an interview could be unobserved by any persons but those who were interested. in it. her own house Seemed to be the
-properest place. -- And though Sire had declared to Harry Several times, that She never would receive a visit from me, I was not, by any means Sure that her Servants had orders to deny her to me j I, theresore, threw myself into my chair, aster having given Hind his instructions..
-At an hour of the day when I thought Sire would, ■ most probably be at home, and by herself, I Set out. -- I bore the motion of the chair with difficulty. -- I could hardly Support mysels, till I reached the room in which She Sat.
-The porter gave me admittance, without the Slightest hesitation, but one osher Sellows was flying
-upstairs to inform his lady who was coming. 1
-caught him by the arm, and clapping a couple of guineas into his hand, told I Should want his assistance-- -- fellow Seemed better bred than many of his Sraternity; and, by Silent respecls'ul Signs, discovered
-axjlioxv: in X‘ ^
-covered the compassion which he Selt at the Sight of me, So totally changed in my .person Since he lasl Saw me.
-When We arrived at the door of the dreffing room, I bade him leave me-- -- had just Strength to crawl to her Sect. -- I then Sunk down, unable to Speak or
+I have done as I said I would. -- I have had an interview. -- such an interview! -- Oh! Wilmot, I am beloved to an extravagance of tenderness. -- Yet will the dear, dear creature, be still perverse; still obstinately refuse to make me completly happy.
+
+Harry had long persuaded me to let her see me, but I could not think of any place in which I could exhibit myself in a manner the most likely to touch her; at least in which such an interview could be unobserved by any persons but those who were interested in it. -- Her own house seemed to be the properest place. -- And though she had declared to Harry several times, that she never would receive a visit from me, I was not, by any means sure that her servants had orders to deny her to me; I, therefore, threw myself into my chair, after having given him his instructions.
+
+At an hour of the day when I thought she would, most probably be at home, and by herself, I set out. -- I bore the motion of the chair with difficulty. -- I could hardly support myself, till I reached the room in which she sat.
+
+The porter gave me admittance, without the slightest hesitation, but one of her fellows was flying upstairs to inform his lady who was coming. I caught him by the arm, and clapping a couple of guineas into his hand, told I should want his assistance. -- The fellow seemed better bred than many of his fraternity; and, by silent respectful signs, discovered the compassion which he felt at the sight of me, so totally changed in my person since he last saw me.
+
+When we arrived at the door of the dressing room, I bade him leave me. -- I had just strength to crawl to her feet. -- I then sunk down, unable to speak or
 move. -- -- I can only remember that She Started at
-the Sight of me, and exclaimed, "Lord Woburn !"
-Her agitation increased mine -- I was overcome -- -- --
-When I first opened my eyes, I Selt sensations which I cannot, polsibly, describe. -- ' -- I Sound niyseis on the floor. -- -- My head res’ted on the lap of this dear woman, who was on the ground by me. Tears ihrea'med from her eyes, her voice Saultered, and Sire, Sobbing, asked me, why I would come and terrify her with the Siuhf of me, in So dreadful a condition?
-At first I had not Sufficiently recovered my senses to compveiiend. her-- -- I could make a reply,, your brother Harry entered the room, lifting up bis hands and eyes at the Scene presented to him-- -- --. "Mr. Wilmot, come, " cried the weeping angel, "and affist mein railing your friend, and then call for proper people to conduct him home, "
-"Never will I go home, " Said I to her, "never will I leave you, till you promise to be less Severe,, till you promise to pardon me, and to See me while I linger in this world of misery."
-"Do not talk of dying, " replied ihe, wringing
-her hands, "I cannot -- cannot bear it. -- -- -- raise
-him, Mr. Wilmot, and place him on this Sopha. -- He has almost deprived me of my senses by his Sudden appearance; -- by Such an appearance too -- Merciful G -- d 1 what have I done that I musl See him die ?"
+the sight of me, and exclaimed, "Lord Woburn!" Her agitation increased mine -- I was overcome. -- When I first opened my eyes, I felt sensations which I cannot, possibly, describe. -- I found myself on the floor. -- My head rested on the lap of this dear woman, who was on the ground by me. Tears streamed from her eyes, her voice faultered, and she, sobbing, asked me, why I would come and terrify her with the sight of me, in so dreadful a condition?
 
-Here a sresli Sliower of tears put a Stop to her utterance; while I, exceedingly loth to leave So sost, So Sweet a place ofreit, railed my Ian;
-;
-vvvy UV^AN IN.
-guid head Srorn her lap, Seixed one of her dear hands, and astured her, that if She would be condefeending enough to pardon what was past, and give me but the Slightest hopes of being ever restored to her former favour, 1 might 1 believe recover.
-She returned no answer- -- -- only looked at
+At first I had not sufficiently recovered my senses to comprehend. -- Before I could make a reply, your brother Harry entered the room, lifting up bis hands and eyes at the scene presented to him. --
 
-Wilmot, who aslisted'me to get to the Sopha j with Some difficulty I was conducted to it. -- Soon, however, I attempted to rise from it, in order to plead my cause. -- She made a sign with her band for me to sit Still. -- Wilmot, who Seemed actually to tremble for her, led her to a chair.
+"Come, Mr. Wilmot, come," cried the weeping angel, "and assist me in raising your friend, and then call for proper people to conduct him home."
+
+"Never will I go home," said I to her, "never will I leave you, till you promise to be less severe, till you promise to pardon me, and to see me while I linger in this world of misery."
+
+"Do not talk of dying," replied she, wringing her hands, "I cannot -- cannot bear it. -- Raise him, Mr. Wilmot, and place him on this sopha. -- He has almost deprived me of my senses by his sudden appearance; -- by such an appearance too -- Merciful G--d! what have I done that I must see him die?"
+
+Here a fresh of tears put a stop to her utterance; while I, exceedingly loth to leave so soft, Sso sweet a place of rest, raised my languid head from her lap, seized one of her dear hands, and assured her, that if she would be condescending enough to pardon what was past, and give me but the slightest hopes of being ever restored to her former favour, I might I believe recover.
+
+She returned no answer- -- -- only looked at Wilmot, who aslisted'me to get to the Sopha j with Some difficulty I was conducted to it. -- Soon, however, I attempted to rise from it, in order to plead my cause. -- She made a sign with her band for me to sit Still. -- Wilmot, who Seemed actually to tremble for her, led her to a chair.
+
 She Sat a little while, then rose, and walked, with agitation, towards the door.
+
 I folio vsed her as fast as my feeble limbs would :, carry ine„ and catching her by her gown, fella second time at her feet, crying, Oh! stay and ■hear me.. -- I cannot let you go-- -- h --! 1 cannot' ' --
-her head toward me, and fetching a deep sigh, five replied, .Save me, Mr. Wilmot -- -- 1 hen broke from me, and left the room.
-I became half frantic at this behaviaur, and called after her, but to no purpose-- -- cursed hac ry, myfeif, and all the world; and when my amiable friend ostered to astist me, in getting to my chair: : a threatening tone charged him with having supplanted me.
-‘‘ How tmjust is your aceufation !’" fajd he, with his iifiral mild and gentle manner. -- -- -- Have I ever •received such proofs ofher tenderness as you have? Have I ever been (upported on her knees, like' you? Has stie ever thrown herself on the floor In an a^o
+
+Turning head toward me, and fetching a deep sigh, five replied, .Save me, Mr. Wilmot -- -- 1 hen broke from me, and left the room.
+
+I became half frantic at this behaviaur, and called after her, but to no purpose-- -- cursed hac ry, myfeif, and all the world; and when my amiable friend ostered to astist me, in getting to my chair: : a threatening tone charged him with having supplanted me.How tmjust is your aceufation !’" fajd he, with his iifiral mild and gentle manner. -- -- -- Have I ever •received such proofs ofher tenderness as you have? Have I ever been (upported on her knees, like' you? Has stie ever thrown herself on the floor In an a^o
 o
 ny of grief, on my account.? -- And yet I love her as well as you do, my lord -- Recover your reason, theresore, and let rne conduct you home."
 "I will not Stir, " Said J, "till I have Succeeded j till I have bent this Stubborn heart to compaifion."
