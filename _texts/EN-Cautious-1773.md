@@ -1996,7 +1996,7 @@ I am too ill to write any more at present. -- I have but one card more to play -
 
 ---
 
-## LETTER LXXIV. (219)
+## LETTER LXXIV.
 
 From the same to the same.
 
@@ -2009,8 +2009,7 @@ At an hour of the day when I thought she would, most probably be at home, and by
 The porter gave me admittance, without the slightest hesitation, but one of her fellows was flying upstairs to inform his lady who was coming. I caught him by the arm, and clapping a couple of guineas into his hand, told I should want his assistance. -- The fellow seemed better bred than many of his fraternity; and, by silent respectful signs, discovered the compassion which he felt at the sight of me, so totally changed in my person since he last saw me.
 
 When we arrived at the door of the dressing room, I bade him leave me. -- I had just strength to crawl to her feet. -- I then sunk down, unable to speak or
-move. -- -- I can only remember that She Started at
-the sight of me, and exclaimed, "Lord Woburn!" Her agitation increased mine -- I was overcome. -- When I first opened my eyes, I felt sensations which I cannot, possibly, describe. -- I found myself on the floor. -- My head rested on the lap of this dear woman, who was on the ground by me. Tears streamed from her eyes, her voice faultered, and she, sobbing, asked me, why I would come and terrify her with the sight of me, in so dreadful a condition?
+move. -- -- I can only remember that She started at the sight of me, and exclaimed, "Lord Woburn!" Her agitation increased mine -- I was overcome. -- When I first opened my eyes, I felt sensations which I cannot, possibly, describe. -- I found myself on the floor. -- My head rested on the lap of this dear woman, who was on the ground by me. Tears streamed from her eyes, her voice faultered, and she, sobbing, asked me, why I would come and terrify her with the sight of me, in so dreadful a condition?
 
 At first I had not sufficiently recovered my senses to comprehend. -- Before I could make a reply, your brother Harry entered the room, lifting up bis hands and eyes at the scene presented to him. --
 
@@ -2020,65 +2019,51 @@ At first I had not sufficiently recovered my senses to comprehend. -- Before I c
 
 "Do not talk of dying," replied she, wringing her hands, "I cannot -- cannot bear it. -- Raise him, Mr. Wilmot, and place him on this sopha. -- He has almost deprived me of my senses by his sudden appearance; -- by such an appearance too -- Merciful G--d! what have I done that I must see him die?"
 
-Here a fresh of tears put a stop to her utterance; while I, exceedingly loth to leave so soft, Sso sweet a place of rest, raised my languid head from her lap, seized one of her dear hands, and assured her, that if she would be condescending enough to pardon what was past, and give me but the slightest hopes of being ever restored to her former favour, I might I believe recover.
+Here a fresh of tears put a stop to her utterance; while I, exceedingly loth to leave so soft, so sweet a place of rest, raised my languid head from her lap, seized one of her dear hands, and assured her, that if she would be condescending enough to pardon what was past, and give me but the slightest hopes of being ever restored to her former favour, I might I believe recover.
 
-She returned no answer- -- -- only looked at Wilmot, who aslisted'me to get to the Sopha j with Some difficulty I was conducted to it. -- Soon, however, I attempted to rise from it, in order to plead my cause. -- She made a sign with her band for me to sit Still. -- Wilmot, who Seemed actually to tremble for her, led her to a chair.
+She returned no answer- -- -- only looked at Wilmot, who aslisted'me to get to the sopha; with some difficulty I was conducted to it. -- Soon, however, I attempted to rise from it, in order to plead my cause. -- She made a sign with her hand for me to sit still. -- Wilmot, who seemed actually to tremble for her, led her to a chair.
 
-She Sat a little while, then rose, and walked, with agitation, towards the door.
+She sat a little while, then rose, and walked, with agitation, towards the door.
 
-I folio vsed her as fast as my feeble limbs would :, carry ine„ and catching her by her gown, fella second time at her feet, crying, Oh! stay and ■hear me.. -- I cannot let you go-- -- h --! 1 cannot' ' --
+I followed her as fast as my feeble limbs would carry me, and catching her by her gown, fell a second time at her feet, crying, "Oh! stay and hear me. -- I cannot let you go -- by -- h---n! I cannot."--
 
-Turning head toward me, and fetching a deep sigh, five replied, .Save me, Mr. Wilmot -- -- 1 hen broke from me, and left the room.
+Turning head toward me, and fetching a deep sigh, she replied, "Save me, Mr. Wilmot!" -- Then broke from me, and left the room.
 
-I became half frantic at this behaviaur, and called after her, but to no purpose-- -- cursed hac ry, myfeif, and all the world; and when my amiable friend ostered to astist me, in getting to my chair: : a threatening tone charged him with having supplanted me.How tmjust is your aceufation !’" fajd he, with his iifiral mild and gentle manner. -- -- -- Have I ever •received such proofs ofher tenderness as you have? Have I ever been (upported on her knees, like' you? Has stie ever thrown herself on the floor In an a^o
-o
-ny of grief, on my account.? -- And yet I love her as well as you do, my lord -- Recover your reason, theresore, and let rne conduct you home."
-"I will not Stir, " Said J, "till I have Succeeded j till I have bent this Stubborn heart to compaifion."
-At length, however, after a number of persuasions, and partly, indeed by eompulfion, Harry got me out of the house, though I quarrelled with him till he saw me iliut up in ray chair. -- He walked by the fide of it. ’
-When I got home I was fo fatigued, fo spent, that they could hardly keep life in me. -- Your brother oitlered them to put rae to bed, and made life of fo many arguments to convince me, that lady Charlotte loved rae no less than I loved her, that 1 began to be pacified. -- I even entreated him to return to lier, and to tell her, that I had been too much fliocked by the last cruel proof of her unforgiving disposition to expect a recovery.
+I became half frantic at this behaviour, and called after her, but to no purpose. -- I cursed Harry, myself, and all the world; and when my amiable friend offered to assist me, in getting to my chair, in a threatening tone charged him with having supplanted me.
 
-He smiled, and left rae, after having strongly recommended patience to rae.
-In about two hours, which I thought almost two
-years, die came back -- -- -- I was fo eager with ray
-inquiries, that I hardly gave him time to speak- --
+"How unjust is your accusation!" said he, with his usual mild and gentle manner. -- Have I ever received such proofs of her tenderness as you have? Have I ever been supported on her knees, like you? Has she ever thrown herself on the floor in an agony of grief, on my account. -- And yet I love her as well as you do, my lord -- Recover your reason, therefore, and let me conduct you home."
 
-last, he informed rae, that lady Charlotte had received him pale, trembling, and Scarce recovered from tsie Surprise and terror into which I had thrown her. -- She gently reprimanded raef’ continued be, for fufferiiig you to endanger your life, by coming out in such a state-- -- told her, that as you had very often declared you must die, if deprived of the sight of her, I had, indeed, persuaded you to make an atteiript to see her once more. -- I also told her, that I knew not of your having let out in order to visit her in So abrupt a manner; but that, on calling at your house, and hearing wdrither you was gone, I hastened to give you all the astiltance which could, I knew, be necestary. -- I concluded with
-J
-letting her know, that I believed you never would appear abroad again. So deeply had her coldness affected you." -- "My coldness 1 -- Gracious G -- d 1" exclaimed She, while tears trickled down her Sweet face, "can he complain of mv coldness, alter he
+"I will not stir," said I, "till I have succeeded; till I have bent this stubborn heart to compassion."
 
-had
-I
-had almost deprived me of my life, bythe condition in which I beheld him? Did I not do everything
-in my power to restore his senses ?.^ -- -- -- --
+At length, however, after a number of persuasions, and partly, indeed by compulsion, Harry got me out of the house, though I quarrelled with him till he saw me shut up in my chair. -- He walked by the side of it.
 
-He knows not -- he knows not how much 1 suffered by the Sight of him In So deplorable a Situation." --. i "You can this moment, then, my lady, " replied
-i I, "restore him at once to health and peace, by
-! consenting to his wislres. -- It is in your power, and in your’s alone, to raise him from misery to happi ‘ ness, from death to life." -- She was Silent a Sew moments, Seemed to be very much agitated, and then Said, "if nothing but a behaviour on my Side,, directly opposite to my opinion, can Save lord Woburn, what am I to do ?" -- -- "Change that opinion, madam, and yield a little, to have your kind condescension repaid by the restored health, by the sincere and perpetual gratitude, and by the most ardent tenderness of a man who truly deserves whatever you can posiibly •feel in his Savour, though he unfortunately, for a few ■moments, Sorgot the respect he owed you dazzled ■by that beauty, which would have tempted any man in his Situation to have been off h .s guard; many mien, I believe. So Situated, would have been far
-more indiscreet- -- -- her lovely face was in
+When I got home I was so fatigued, so spent, that they could hardly keep life in me. -- Your brother ordered them to put me to bed, and made use of so many arguments to convince me, that lady Charlotte loved me no less than I loved her, that I began to be pacified. -- I even entreated him to return to her, and to tell her, that I had been too much shocked by the last cruel proof of her unforgiving disposition to expect a recovery.
+
+He smiled, and left me, after having strongly recommended patience to me.
+
+In about two hours, which I thought almost two years, he came back. -- I was fo eager with my inquiries, that I hardly gave him time to speak. -- At last, he informed me, that lady Charlotte had received him pale, trembling, and scarce recovered from the surprize and terror into which I had thrown her. -- She gently reprimanded me,"continued he, for suffering you to endanger your life, by coming out in such a state-- -- told her, that as you had very often declared you must die, if deprived of the sight of her, I had, indeed, persuaded you to make an attempt to see her once more. -- I also told her, that I knew not of your having let out in order to visit her in so abrupt a manner; but that, on calling at your house, and hearing wdrither you was gone, I hastened to give you all the assistance which could, I knew, be necessary. -- I concluded with letting her know, that I believed you never would appear abroad again. So deeply had her coldness affected you." -- "My coldness! -- Gracious G -- d!" exclaimed she, while tears trickled down her sweet face, "can he complain of my coldness, after he had almost deprived me of my life, by the condition in which I beheld him? Did I not do everything in my power to restore his senses? -- He knows not -- he knows not how much I suffered by the sight of him in so deplorable a Situation." "You can this moment, then, my lady," replied I, "restore him at once to health and peace, by consenting to his wishes. -- It is in your power, and in your’s alone, to raise him from misery to happiness, from death to life." -- She was silent a few moments, seemed to be very much agitated, and then said, "If nothing but a behaviour on my side, directly opposite to my opinion, can save lord Woburn, what am I to do?" -- "Change that opinion, madam, and yield a little, to have your kind condescension repaid by the restored health, by the sincere and perpetual gratitude, and by the most ardent tenderness of a man who truly deserves whatever you can possibly feel in his favour, though he unfortunately, for a few moments, forgot the respect he owed you dazzled by that beauty, which would have tempted any man in his situation to have been off his guard; many men, I believe, so situated, would have been far more indiscreet." -- Here her lovely face was in
 the most beautiful glow I ever beheld, and She ap
-■ a radient objetl to my enchanted eyes. -- --
-Riling hastily. Sire Said, "excuse me now, Mr. Wilmot, I muit retire; I cannot talk any more upon this Subject. -- Thinking it cruel to disturb her any longer, and to drive her from the apartment we
-were in, I bowed and left her. -- -- --
-Thus ends your brother’s narrative -- • -- and now, jack, what am I to think of all this? -- Are there any hopes, or not? -- But my constitution is So miserably Slratered by this affair, that I don’t much think I Shall ever recover the Sliock it has received.
-You know not at how many different time, I have written this letter, ^my Strength is quite exhausted.,
--- All
--- AH I have to vvisir for now is, that if I must die, X I may expire on her dear lap, on which I Selt tyre moft ecstatic joy I was everyet sensible of.
-your’s as usual,
-w -- -- -- -- --
-P. S. Lady Huxley continues to teaxe me about going to Montpelier j but I cannot think of it.
-- -- No -- 1 would not, on any account, die at a distance Siora lady Charlotte.~ to be only within a Sew yards ofher, in my last agonies, would give rne even in those agonies, no Small faiisfaclion.
+appeared a radient object to my enchanted eyes. -- Rising hastily, she said, "Excuse me now, Mr. Wilmot, I must retire; I cannot talk any more upon this subject." -- Thinking it cruel to disturb her any longer, and to drive her from the apartment we were in, I bowed and left her. --
 
-Adieu,
+Thus ends your brother’s narrative -- And now, Jack, what am I to think of all this? -- Are there any hopes, or not? -- But my constitution is so miserably shatered by this affair, that I don’t much think I shall ever recover the shock it has received.
+
+You know not at how many different time, I have written this letter, my strength is quite exhausted. -- All I have to wish for now is, that if I must die, I may expire on her dear lap, on which I felt the most ecstatic joy I was ever yet sensible of.
+
+> Your’s as usual,
+
+>> W-----.
+
+P. S. Lady Huxley continues to teaze me about going to Montpelier; but I cannot think of it. -- No -- I would not, on any account, die at a distance from lady Charlotte. -- To be only within a few yards of her, in my last agonies, would give me even in those agonies, no small satisfaction.
+
+> Adieu.
 
 ---
 
-## LETTER LXXV.
+## LETTER LXXV. (221)
 
 Lady Charlotte Morden to Mrs. Blomer.
 
-IH A V E been almost deprived of my senses by the sight of lord Woburn, expiring, as I believed, at my feet : I have Since been almost reasoned
-out of them by his insinuating friend. 1 cannot
-relate the particulars. -- 1 wilh, indeed, to Sorget
+I have been almost deprived of my senses by the sight of lord Woburn, expiring, as I believed, at my feet: I have since been almost reasoned out of them by his insinuating friend. I cannot relate the particulars. -- 1 wilh, indeed, to Sorget
 
 them. -- I only know, that while I was Sitting in my dresling room, lord Woburn entered, but So pale and emaciated. So entirely changed in his person, that had not his image been deeply -- too deeply -- engraven on my memory, I Should hardly have
 recollected him. -- He approached rae, however,
@@ -2096,10 +2081,11 @@ dying at my feet j but to See lord Woburn die. --
 
 Oh! Mrs. Blomer, it was too much to bear. -- -- -- Trembling with terror, and Scarce knowing what
 'K I was
-[
-1410 JL X 1. o X vy XX X L
+
 I was about, my heart Strongly prompted me to aslrft the man whom I could have Saved, with the loss of my own lise. -- Surely, my dear friend, therei.s nothing indelicate, nothing criminal, in giving as sistance to a sellow creature Sinking in the arms of death. -- I raised his poor languid head upon my lap, and applied a bottle ot eau de luce, to his nose; though my hand Slrook foi could hardly hold it.
+
 At that instant, happily for me, Mr. Wilmot came in.
+
 I called to him, immediately, to aslifl me. -- I cannot proceed. -- I can only Say, that I am extremely miserable-- -- why would lord Woburn beliave in Such a manner as to render me absolutely incapable of acting agreeably to the dictates of my heart?
 Say Sornething, my good friend, by way of consolation, if you can. -- -- -- 1 can Say nothing for myself.
 -- I am agitated -- I am tortured beyond expression- -- -- honour, and discretion, Stir uma tempest
