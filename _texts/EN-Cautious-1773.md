@@ -2059,60 +2059,34 @@ P. S. Lady Huxley continues to teaze me about going to Montpelier; but I cannot 
 
 ---
 
-## LETTER LXXV. (221)
+## LETTER LXXV.
 
 Lady Charlotte Morden to Mrs. Blomer.
 
-I have been almost deprived of my senses by the sight of lord Woburn, expiring, as I believed, at my feet: I have since been almost reasoned out of them by his insinuating friend. I cannot relate the particulars. -- 1 wilh, indeed, to Sorget
-
-them. -- I only know, that while I was Sitting in my dresling room, lord Woburn entered, but So pale and emaciated. So entirely changed in his person, that had not his image been deeply -- too deeply -- engraven on my memory, I Should hardly have
-recollected him. -- He approached rae, however,
-weak as he was. -- Iwas So Sliocked, and So Srightened, that I could not get away from him. -- He Sell at my feet -- I knew not then what I did -- I became almost Srantic. -- I called -- I Stamped -- nobody came
-near me -- -- -- Perhaps I had not Strength to make
-myself Sufficiently heard. -- 1 Selt my heart die
-within me, at the Sight of him liseless on the floor, --
-I threw myself down by him. -- -1 heard him groan,
-at least I thought So-- -- was ready to expire by his Side. -- All the sost, the tender sensations, which had, alternately, given me So much pleasure, and So.
-
-much pain, returned with double violence. -- ..-.
-I was moved in a manner not to be described. -- -1
-Should have been Struck with horror, I Slrould have been melted with compassion, if I had Seen any man
-dying at my feet j but to See lord Woburn die. --
-
-Oh! Mrs. Blomer, it was too much to bear. -- -- -- Trembling with terror, and Scarce knowing what
-'K I was
-
-I was about, my heart Strongly prompted me to aslrft the man whom I could have Saved, with the loss of my own lise. -- Surely, my dear friend, therei.s nothing indelicate, nothing criminal, in giving as sistance to a sellow creature Sinking in the arms of death. -- I raised his poor languid head upon my lap, and applied a bottle ot eau de luce, to his nose; though my hand Slrook foi could hardly hold it.
+I have been almost deprived of my senses by the sight of lord Woburn, expiring, as I believed, at my feet: I have since been almost reasoned out of them by his insinuating friend. I cannot relate the particulars. -- I wish, indeed, to forget them. -- I only know, that while I was sitting in my dressing room, lord Woburn entered, but so pale and emaciated. So entirely changed in his person, that had not his image been deeply -- too deeply -- engraven on my memory, I should hardly have recollected him. -- He approached me, however, weak as he was. -- I was So shocked, and so frightened, that I could not get away from him. -- He fell at my feet -- I knew not then what I did -- I became almost frantic. -- I called -- I stamped -- nobody came near me -- Perhaps I had not strength to make myself sufficiently heard. -- I felt my heart die within me, at the sight of him listless on the floor. -- I threw myself down by him. -- I heard him groan, at least I thought so. I was ready to expire by his side. -- All the lost, the tender sensations, which had, alternately, given me so much pleasure, and so much pain, returned with double violence. -- I was moved in a manner not to be described. -- I should have been struck with horror, I should have been melted with compassion, if I had seen any man dying at my feet; but to See lord Woburn die. --
+Oh! Mrs. Blomer, it was too much to bear. -- Trembling with terror, and scarce knowing what I was about, my heart strongly prompted me to assist the man whom I could have saved, with the loss of my own life. -- Surely, my dear friend, there is nothing indelicate, nothing criminal, in giving assistance to a fellow creature sinking in the arms of death. -- I raised his poor languid head upon my lap, and applied a bottle ot eau de luce, to his nose; though my hand shook so, I could hardly hold it.
 
 At that instant, happily for me, Mr. Wilmot came in.
 
-I called to him, immediately, to aslifl me. -- I cannot proceed. -- I can only Say, that I am extremely miserable-- -- why would lord Woburn beliave in Such a manner as to render me absolutely incapable of acting agreeably to the dictates of my heart?
-Say Sornething, my good friend, by way of consolation, if you can. -- -- -- 1 can Say nothing for myself.
--- I am agitated -- I am tortured beyond expression- -- -- honour, and discretion, Stir uma tempest
-in my breast, and the violent opposition made by those paslions to each other, almoit deprive me
-of my reason. -- -- -- 1 am really not able to determine
-what is right, what is wrong.
-This man, during this stat e of racking uncertainty, is dying. -- What will become of nre? -- My fears, my apprehensions, unspeakably alarming, will drive me to d’lstradtion. -- -- I will fly to you as Soon as I can persuade Mr. and Mrs. Elliot not to make resistance to my wislres.
-Kitty is nearly as wretched as myself. -- She certainly loves Wilmot. -- -- -- Sir Charles Ccnyers, having
+I called to him, immediately, to assist me. -- I cannot proceed. -- I can only say, that I am extremely miserable -- why would lord Woburn behave in such a manner as to render me absolutely incapable of acting agreeably to the dictates of my heart?
 
-no hopes of me attaches himself to her, but to very little purpose.
-Earnestly
-t
-KA S LA V Y JUT V J. ^
-Earnestly wishing to hear from you Soon, for your
-letters are ever niost welcome to me, -- -- 1 remain
-your very Sincere, but very unhappy friend,
-Charlotte moroe rf,
+Say something, my good friend, by way of consolation, if you can. -- I can say nothing for myself. -- I am agitated -- I am tortured beyond expression. -- Love, honour, and discretion, stir up a tempest in my breast, and the violent opposition made by those passions to each other, almost deprive me of my reason. -- I am really not able to determine what is right, what is wrong.
+
+This man, during this state of racking uncertainty, is dying. -- What will become of me? -- My fears, my apprehensions, unspeakably alarming, will drive me to distraction. -- I will fly to you as soon as I can persuade Mr. and Mrs. Elliot not to make resistance to my wishes.
+
+Kitty is nearly as wretched as myself. -- She certainly loves Wilmot.-- Sir Charles Ccnyers, having no hopes of me attaches himself to her, but to very little purpose.
+
+Earnestly wishing to hear from you aoon, for your letters are ever most welcome to me, --  I remain your very sincere, but very unhappy friend,
+
+> Charlotte Morden.
 
 ---
 
-## LETTER LXXI.
+## LETTER LXXI. (228)
 
-From the Same to the Same.
+From the same to the same.
 
-My dear, dear friend, why don’t you write td
-
-me? -- I cannot hold out much longer. -- -- -- ^
+My dear, dear friend, why don’t you write to me? -- I cannot hold out much longer. -- -- -- ^
 Lady Huxley, has been with me again -- She Sell on her knees, and with Streaming eyes conjured me to Spare her brother; but I was not Sliaken by her arguments, nor Softened by ber persuafions. -- Yet I
 was conquered. You Slrall hear. -- -- -- --
 She astured me over and over, that lord vsoburn’s entrance into my chamber, vas not in consequence of his having intended to take any improper Sreedoms, but of his Seeing a man let into my house, in a manner susheient to create suspicions. -- She allowed, however, that he ought not by any means, to have adtedas he did. -- "Yet, my dear lady Charlotte, " added this artful advocate, "only consider a little; -- put yourself in my brother’s place Sora moment -- consider how ardently he loves you -- consider how rnuch reason he had to believe, that
