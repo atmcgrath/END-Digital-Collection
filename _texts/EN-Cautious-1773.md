@@ -2146,7 +2146,7 @@ Write to me immediately, or you will be punished -- with a still longer letter
 
 ---
 
-## LETTER LXXVII. (234)
+## LETTER LXXVII.
 
 Lord Woburn to Mr. Wilmot.
 
@@ -2166,57 +2166,59 @@ When my chair was opened in the hall, I sat in it a little while, to recover my 
 
 "You will not refuse to see him, I am sure," said Harry; "perhaps -- most probably, you will never see him again; it is impossible for him to outlive the fatigue of such a journey, weak, dying, as he is."
 
-"Good h -- n!" exclaimed Sire, trembling, and red and pale by turns, "Why will he go then .?"
-"He goes in obedience to your ladysliip’s com -- mands, madam."
-"My commands, Mr. Wilmot! -- -- -- -- -- -- -- have no
-right to command him. Sir; lady Huxley told me, that my lord’s physicians advised Such a tour, as highly necestary^ for the re eftablishment of his health. -- I have no commands, " added Sire, bursting into tears, and covering her Sace with her handkerchief. --
-"condescend to see him, then; my lady; to admit him upstairs, and to honour him with your Sentiments."
-"I -- I -- ." Here Sire Saulrered, and appeared to be violently agitated. -- "I have nothing to say, lir. -- I cannot talk." -- (rising).
-"You Shall not be desired to talk, madam, " Said Harry, taking her hand and re seating her -- you Shall only hear -- "
-"Do, my dear, dear lady Charlotte, " added the
-weeping Kitty, "do but hear him -- -- -- -- -- hear him
-but this once."
-"Do not discress me thus, Kitty; -- why this importunity? -- -- -- 1 have done what my lord, what
-lady Huxley desired. -- ^ -- -- I mull leave you, Mr.
-Wilmot. -- --
-At that moment I was led into the room by Sir George Huxley and Mr. Elliot (the two ladies fol lowing) who conduced me to the feet of my angel.
-She lifted up her hands and eyes, but Said no thing.
-"Now, my Sweet lady Charlotte, " Said lady Huxley, Seating herself on one Side of her, while
+"Good h---n!" exclaimed she, trembling, and red and pale by turns, "Why will he go then?"
+
+"He goes in obedience to your ladyship’s commands, madam."
+
+"My commands, Mr. Wilmot! -- I have no right to command him. Sir; lady Huxley told me, that my lord’s physicians advised such a tour, as highly necessary for the re-establishment of his health. -- I have no commands," added she, bursting into tears, and covering her face with her handkerchief. --
+
+"Condescend to see him, then; my lady; to admit him upstairs, and to honour him with your sentiments."
+
+"I -- I -- ." Here she faulrered, and appeared to be violently agitated. -- "I have nothing to say, sir. -- I cannot talk." -- (rising).
+
+"You shall not be desired to talk, madam," Said Harry, taking her hand and re-seating her -- "you shall only hear --"
+
+"Do, my dear, dear lady Charlotte," added the weeping Kitty, "do but hear him -- hear him but this once."
+
+"Do not distress me thus, Kitty; -- why this importunity? -- I have done what my lord, what lady Huxley desired. -- I must leave you, Mr. Wilmot." --
+
+At that moment I was led into the room by Sir George Huxley and Mr. Elliot (the two ladies following) who conducted me to the feet of my angel.
+
+She lifted up her hands and eyes, but said no thing.
+
+"Now, my sweet lady Charlotte," Said lady Huxley, seating herself on one side of her, while Mrs. Elliot took the other, "look upon this poor dying creature; and let pity, for once, supply the place of a softer passion. -- Remember that mercy
+is the darling attribute of heaven." -- "Come, lady Charlotte," added Mrs. Elliot, taking her hand, "lord Woburn has suffered enough for his foibles; let my petitions, joined to lady Huxley’s, prevail on you to pardon him. -- "
+
+"I have -- I have pardoned him," replied she, hastily, turning away her charming face.
+
+"Complete, then, my felicity, my adored Charlotte," cried I, "by giving me this dear hand." -- (gently seizing it).
+
+"Well -- well," answered she, "I will -- when you return."
+
+"I shall never return alive," said I, "I cannot, indeed, go, without my Charlotte’s consent to be mine, now everything is ready; and then, if I should die, you will not have my death to answer for." --
+
+"Oh! do not talk so, " cried she, "do not tear my heart in pieces. (laying her head upon Mrs. Elliot’s Shoulder.) -- What a distress is this?" --
+
+"You may easily remove it, my dear lady Charlotte," Said Mrs. Elliot, "lord Woburn’s friends, and your friends, think it high time for you to discover less severity in your behaviour, to a man who has been brought by it to the very brink of the grave. -- Nothing but your immediate consent can now save him. -- Possibly your consent may come too late." -- "Yet, when you have done all you can," added lady Huxley, "his death will not be charged to your account."
 
 
-Mrs. Elliot took the other, "look upon this poor dying creature; and let pity, for once, Supply the
-place osa soster pasiion. ‘remember that mercy
-is the darling attribute of heaven." -- "Come, lady Charlotte, " added Mrs. Elliot, taking her hand, "rd Woburn has Suffered enough for his Soibles; let my petitions, joined to lady huxley’s, prevail on you to pardon him. -- "
-"I have -- I have pardoned him, " replied Sire, hastily, turning away her charming face.
-"Complete, then, my Selicity, my adored Charlotte, " cried I, "by giving me this dear hand." -- (gently Seizing it).
-"Well -- well, " answered She, "Iwill -- -- -- when you
-return."
-"I Shall never return alive, " Said I, "I cannot, indeed, go, without my charlotte’s consent to be mine, now everything is ready; and then, if I Slrould die, you will not have my death to answer for." -- --
-‘ Oh! do not talk So, " cried Sire, "do not tear my heart in pieces, (laying her head upon Mrs. elliot’s Shoulder.) -- What a distrefs is this ?" -- --
-"You may easily remove it, my dear lady Charlotte, " Said Mrs. Elliot, "lord woburn’s friends, and your friends, think it high time for you to discover less Severity in your behaviour, to a man who has been brought by it to the very brink of the grave. -- -- -- -- -- Nothing but your immediate consent
-can now lave hi n. -- posiibly your consent may come too late." -- "Yet, when you have done all you can, " added lady Huxley, "his death will not be charged to your account."
-"Is my existence, then, So little to be desired? Said I, ^
-"Cruel !" replied She, quite overcome-- -- looking at the Elliots, "Do with me, " continued Sire, "what you please.
+"Is my existence, then, so little to be desired?" said I.
+
+"Cruel!" replied She, quite overcome. -- Then looking at the Elliots, "Do with me," continued she, "what you please."
 . '
-Everything had been provided for our marriage.
-■ -- A Special licence was ready, and Dr. Dolby attended.
-Poor Harry (I Selt for him) astisted Sir George In Supporting me -- a most eligible bridegroom to be Sure, while Mr. Elliot gave me his niece’s invaluable
-hand. -- -- She was just on the point ossainting. --
-I pitied her from my Soul •, yet I was unable to relieve her, almost Sainting rnysels -- So ecstatic were my sensations. -- After having clasped her, withal the Strength I had left, to my throbbing heart, we Sat down.
-• Mrs. Elliot, feeing how incapable my angel was of giving orders, took care of everything. -- cosfee,
-’ tea, jellies, c. were brought up. -- -- -- Soon afterwards
-all out company lest us, except Mrs. Elliot and Kitty. -- I then became So exceedingly ill, from the Sudden alteration of my affairs, and from the weakness of my condition, that I could no longer
-Support myself. -- -- My dear Charlotte Saw and Selt
-my uneasiness. -- Sitting down by me, Sire took my hand, and prested it in the tenderest manner imaginable. -- -- -- -- "You will not Send me from you ?"
-Said I to her -- "Never, replied She." -- I could not proceed -- -- -- They carried me to that very apartment,
-in which I had So heavily offended -- no other bed being prepared. --
-When the Servants retired, my dear Charlotte approached me, and with accents heavenly Sweet, while her lovely face was crimsoned with blusires, Said, "I have ordered a bed to be brought into my dresfing room, that I may be ready to give you anything you want in the night, "
-"No, my love, " replied I, pressing her hand to my lips, "I cannot bear this." -- But I was not able to divert her from her purpose. -- Her woman, whom fire has taken in the room of dawson, and who is older and fitter for the bufiness, Sat up with me, and
-... gave
-gave me Something warm whenever! wanted any resresliraent. -- In the morning my wise, delightful
-word! -- -- breaksalted by my bedside-- -- Still
-weak and languid, but Seel an ease in my mind, which prognosticates the restoration of my health.'
-My angel has begged me not to Sit too long at my writing table. -- You may imagine that I have writ ’ ten this at disserent times. -- I Shall be ever most will ■ to obey her who has Saved my life, for whom only I wisla to live.
+Everything had been provided for our marriage. -- A special licence was ready, and Dr. Dolby attended.
+
+Poor Harry (I felt for him) assisted Sir George In supporting me -- a most eligible bridegroom to be sure, while Mr. Elliot gave me his niece’s invaluable
+hand. -- She was just on the point of fainting. -- I pitied her from my soul, yet I was unable to relieve her, almost fainting myself -- so ecstatic were my sensations. -- After having clasped her, withal the strength I had left, to my throbbing heart, we sat down.
+
+Mrs. Elliot, feeing how incapable my angel was of giving orders, took care of everything. -- Coffee, tea, jellies, &c. were brought up. -- Soon afterwards all out company left us, except Mrs. Elliot and Kitty. -- I then became so exceedingly ill, from the sudden alteration of my affairs, and from the weakness of my condition, that I could no longer support myself. -- My dear Charlotte saw and felt my uneasiness. -- Sitting down by me, she took my hand, and pressed it in the tenderest manner imaginable. -- "You will not send me from you?" said I to her -- "Never," replied she. -- I could not proceed -- -- -- They carried me to that very apartment, in which I had so heavily offended -- no other bed being prepared. --
+
+When the Servants retired, my dear Charlotte approached me, and with accents heavenly sweet, while her lovely face was crimsoned with blushes, said, "I have ordered a bed to be brought into my dressing room, that I may be ready to give you anything you want in the night. "
+
+"No, my love, " replied I, pressing her hand to my lips, "I cannot bear this." -- But I was not able to divert her from her purpose. -- Her woman, whom fire has taken in the room of Dawson, and who is older and fitter for the business, sat up with me, and gave me something warm whenever I wanted any refreshment. -- In the morning my wife, delightful word! -- breakfasted by my bedside. -- I am still
+weak and languid, but feel an ease in my mind, which prognosticates the restoration of my health.
+
+My angel has begged me not to sit too long at my writing table. -- You may imagine that I have written this at different times. -- I shall be ever most willling to obey her who has saved my life, for whom only I wish to live.
 
 ---
 
@@ -2224,56 +2226,45 @@ My angel has begged me not to Sit too long at my writing table. -- You may imagi
 
 Lady Woburn to Mrs. Blomer.
 
-WHAT a Sudden! what an imexpefted change, my dear friend! I have not leisure to Send' you the particulars j but t am certainly married to lord Woburn. -- if my union with him, if my perpetual Solicitude and tenderness can Save him, I Shall be completely happy. -- If I have acted indiscreetly in this aisair, you muit not blame me -- your brother and fister, Sir feeorge, lady Huxley, Mr. will t mot, every creature of my acquaintance, for whom I have a value (excepting yourselsi insisted upon my
-compliance. -- -- My dear loied, himself, was almost
-killed with ffatigue, and with the suddenness of the event; but I think he is better -- 1 hcpe So. -- All my
-prayers
-prayers are for his recovery; all iny wiihes, all my cares are to promote it. -- May heaven restore him!
--- Do not condemn me, my dear Mrs. Blomer; -- --
-hear all firth, from Mrs. Elliot, and let me have your sentiments upon this unlocked for and Surprising revolution -- a revolution astonislring, even to myselt. -- I am, however, and ever Slrall be,
+What a sudden! what an unexpected change, my dear friend! I have not leisure to send you the particulars; but I am certainly married to lord Woburn. -- if my union with him, if my perpetual solicitude and tenderness can save him, I shall be completely happy. -- If I have acted indiscreetly in this affair, you must not blame me -- your brother and sister, Sir George, lady Huxley, Mr. Wilmot, every creature of my acquaintance, for whom I have a value (excepting yourself insisted upon my compliance.) -- My dear lord, himself, was almost killed with fatigue, and with the suddenness of the event; but I think he is better -- I hcpe so. -- All my
+prayers prayers are for his recovery; all my wishes, all my cares are to promote it. -- May heaven restore him! -- Do not condemn me, my dear Mrs. Blomer; --
+hear all first, from Mrs. Elliot, and let me have your sentiments upon this unlocked for and surprising revolution -- a revolution astonishing, even to myself. -- I am, however, and ever shall be,
 
-Your very asfeuionate ‘ Charlotte Woburn.
-^ ^ ^ ^^ ^ ^ ^
-LET T E R LXXIX
-V
-Lord Woburn to Mr VI L m o t.
-whai'a charming creature have I married I How undeserving am I of all her care and tenderness! 1 actually wonder at my asiurance, in daring to make only a nurse, at present, of the sinesl woman in the world. -- -- Yet Such a nurse, Wilmot,
-
-you never Sav, nor heard of! -- She has Saved my life, and Sire will make it a moil blested one to me, indeed.
-We have been preparing to Set out for France; but, I believe, a visit to the Contnient will not be necestary. -- I recover Strength hourly, and do not desire to hear of anything likely to disturb the tranquillity I at present enjoy, with my Charlotte ever by my fide. -- I cannot think of being happier, or better ia one place than another..
-
-You can hardly imagine, by how many winning
-ways
-23 ^ HISTORY Or
-ways She endeavours to amuse me, to entertain me, and to convince me of her Sincere afsedtion for me.
--- -- She is in hopes that a journey to France will
-prove beneficial to me, and is, theresore, eager to Set out.
-
-"Was you not going to France, my dear lord Said She, "besore we were married."
-"Yes, my life, " replied I, -- "they told me, there was a necessity for trying the air of Montpelier; and as I was determined never to go thither without you, itook those hasty Steps which you condemned at the time; ■ but as I am now happy by having taken them, and as you, also, are now happy, you will not, I hope, my dear Charlotte, disapprove of them."
-"I will not, " replied She, with an enchanting. Smile. -- However, She Still urges me to adopt every prudent measure to forward my recovery.
-The doctors have made a movement, which wilt ■ fix me in I'mgland. -- They recommended the air of Some Salutary Spot near town. -- I mentioned Windsor, because I always liked that place; and because We can have the very house to which my Charlotte retired, when I drove her, by my rasli behaviour, from her own. -- 1 will go thither as Soon as il is ready. -- We Shall take Kitty and Harry with us, on whom we have a Small design -- a very friendly one you may be Sure; I Mill not asfront your understanding by naming it.
-
-L E T
-K II VY U U K IN.
+> Your very affectionate Charlotte Woburn.
 
 ---
 
-## LETTER LXXX.
+## LETTER LXXIX.
 
-Lady Woburn to Mrs, Blomer,
-windsor.
-HOW happy am I, my good friend, in receiving your approbation; how Supremely So, in being the wise of the most amiable of men!
-We are, agreeably to the advice of the physicians,
+Lord Woburn to Mr. Wilmot.
 
-• at windsor, as my lord was unwilling to go to France, when the doctors insormed him, that there was not an absolute necesiity for his departure from England. -- To tell you the truth, I believe the Montpelier Scheme was Sormed, in order to draw me in with the greater Sacility. -- I told my lord So -- he Smiled, and assured rne I was mistaken j but added, that as he could not think ds going to France without me, he had Some Small hopes, that I would rather accompany hi m,. than let him die, by Staying behind'. -- I chid him for entertaining any doubts, concerning my behaviour, iipon So interesting an occasion. -- fie kissed me, and' told me, he was extremely happy in finding that I loved him better than he imagined I did.
+What a charming creature have I married I how undeserving am I of all her care and tenderness! I actually wonder at my assurance, in daring to make only a nurse, at present, of the finest woman in the world. -- Yet Such a nurse, Wilmot, you never saw, nor heard of! -- She has saved my life, and she will make it a most blessed one to me, indeed.
+
+We have been preparing to set out for France; but, I believe, a visit to the contnient will not be necessary. -- I recover strength hourly, and do not desire to hear of anything likely to disturb the tranquillity I at present enjoy, with my Charlotte ever by my side. -- I cannot think of being happier, or better in one place than another.
+
+You can hardly imagine, by how many winning ways she endeavours to amuse me, to entertain me, and to convince me of her sincere affection for me. -- She is in hopes that a journey to France will prove beneficial to me, and is, therefore, eager to set out.
+
+"Was you not going to France, my dear lord?" said she, "before we were married."
+
+"Yes, my life," replied I, -- "they told me, there was a necessity for trying the air of Montpelier; and as I was determined never to go thither without you, I took those hasty steps which you condemned at the time; but as I am now happy by having taken them, and as you, also, are now happy, you will not, I hope, my dear Charlotte, disapprove of them."
+
+"I will not, " replied she, with an enchanting smile. -- However, She still urges me to adopt every prudent measure to forward my recovery.
+
+The doctors have made a movement, which will fix me in England. -- They recommended the air of some salutary spot near town. -- I mentioned Windsor, because I always liked that place; and because we can have the very house to which my Charlotte retired, when I drove her, by my rash behaviour, from her own. -- I will go thither as soon as it is ready. -- We shall take Kitty and Harry with us, on whom we have a small design -- a very friendly one you may be sure; I will not affront your understanding by naming it.
+
+
+---
+
+## LETTER LXXX. (250)
+
+Lady Woburn to Mrs. Blomer.
+
+Windsor.
+
+How happy am I, my good friend, in receiving your approbation; how supremely so, in being the wise of the most amiable of men! We are, agreeably to the advice of the physicians, at Windsor, as my lord was unwilling to go to France, when the doctors informed him, that there was not an absolute necessity for his departure from England. -- To tell you the truth, I believe the Montpelier Scheme was Sormed, in order to draw me in with the greater Sacility. -- I told my lord So -- he Smiled, and assured rne I was mistaken j but added, that as he could not think ds going to France without me, he had Some Small hopes, that I would rather accompany hi m,. than let him die, by Staying behind'. -- I chid him for entertaining any doubts, concerning my behaviour, iipon So interesting an occasion. -- fie kissed me, and' told me, he was extremely happy in finding that I loved him better than he imagined I did.
 
 We have Mr. Wilmot and miss Downton with us j the former talks of going abroad, and, by So talking, makes the, latter look rather melancholy’s; and her fpints are not at ail yet mended, by her mother’s urging her to receive Sir Charles, as Soon' as he returns from the North, whither he was obliged to go, to take posseshon of an estate lately fallen to him. ■ -- Mrs. Downton was not very willing, knowing
-our party, to let her daughter accompany us but as I politlvely declared, that I could not
-do
-
-T' ' H I S T O R T OF
-do mhthout her, ilie coidd not well refuse me.
+our party, to let her daughter accompany us but as I politlvely declared, that I could not do mhthout her, ilie coidd not well refuse me.
 
 -- -- -- -- -- It was awkward to have no lady with me ^
 I could not think of any, as you were at such a distance, half fo agreeable to my lord.. was the • person to be first considered, ars Kitty-- -- dear girt' was exceedingly rejoiced, to find that I succeeded with her mother; and being sensible how nice my lord is in his opinion about women, it was paying her a great compliment, to fele6t her from the rest of our acquaintance; stnd stie exprested a modest acknowledgment for this preference, which still rxiore and
