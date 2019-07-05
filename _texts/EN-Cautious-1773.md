@@ -2255,67 +2255,67 @@ The doctors have made a movement, which will fix me in England. -- They recommen
 
 ---
 
-## LETTER LXXX. (250)
+## LETTER LXXX.
 
 Lady Woburn to Mrs. Blomer.
 
 Windsor.
 
-How happy am I, my good friend, in receiving your approbation; how supremely so, in being the wise of the most amiable of men! We are, agreeably to the advice of the physicians, at Windsor, as my lord was unwilling to go to France, when the doctors informed him, that there was not an absolute necessity for his departure from England. -- To tell you the truth, I believe the Montpelier Scheme was Sormed, in order to draw me in with the greater Sacility. -- I told my lord So -- he Smiled, and assured rne I was mistaken j but added, that as he could not think ds going to France without me, he had Some Small hopes, that I would rather accompany hi m,. than let him die, by Staying behind'. -- I chid him for entertaining any doubts, concerning my behaviour, iipon So interesting an occasion. -- fie kissed me, and' told me, he was extremely happy in finding that I loved him better than he imagined I did.
+How happy am I, my good friend, in receiving your approbation; how supremely so, in being the wise of the most amiable of men! We are, agreeably to the advice of the physicians, at Windsor, as my lord was unwilling to go to France, when the doctors informed him, that there was not an absolute necessity for his departure from England. -- To tell you the truth, I believe the Montpelier scheme was formed, in order to draw me in with the greater facility. -- I told my lord so -- he smiled, and assured rne I was mistaken; but added, that as he could not think of going to France without me, he had some small hopes, that I would rather accompany him, than let him die, by staying behind. -- I chide him for entertaining any doubts, concerning my behaviour, upon so interesting an occasion. -- he kissed me, and' told me, he was extremely happy in finding that I loved him better than he imagined I did.
 
-We have Mr. Wilmot and miss Downton with us j the former talks of going abroad, and, by So talking, makes the, latter look rather melancholy’s; and her fpints are not at ail yet mended, by her mother’s urging her to receive Sir Charles, as Soon' as he returns from the North, whither he was obliged to go, to take posseshon of an estate lately fallen to him. ■ -- Mrs. Downton was not very willing, knowing
-our party, to let her daughter accompany us but as I politlvely declared, that I could not do mhthout her, ilie coidd not well refuse me.
+We have Mr. Wilmot and miss Downton with us; the former talks of going abroad, and, by so talking, makes the, latter look rather melancholy; and her spirits are not at all yet mended, by her mother’s urging her to receive Sir Charles, as soon as he returns from the North, whither he was obliged to go, to take possession of an estate lately fallen to him. -- Mrs. Downton was not very willing, knowing
+our party, to let her daughter accompany us but as I politely declared, that I could not do withou her, she could not well refuse me. -- It was awkward to have no lady with me; I could not think of any, as you were at such a distance, half so agreeable to my lord, was the person to be first considered, as Kitty. -- The dear girl was exceedingly rejoiced, to find that I succeeded with her mother; and being sensible how nice my lord is in his opinion about women, it was paying her a great compliment, to select her from the rest of our acquaintance; and she expressed a modest acknowledgment for this preference, which still more and more recommended her to my lord -- Mr. Wilmot behaves with the utmost politeness to her, and even seems desirous of amusing her; but Kitty, I believe, sees nothing of the lover in him. -- As my lord chooses to be much with me alone, they also are frequently left by themselves, yet does she always return to us, with a seriousness and anxiety in her countenance, which induces me to fear, that she is distatisfied. -- Were I quite sure that Wilmot was the cause of her anxiety and seriousness, I would send her home. -- Time, absence, and another lover might cure her. -- I sometimes mention our leaving this place; but she never hears of our departure from hence, without weeping, because she knows that her mother will not invite Mr Wilmot to her house; nor would he go, I believe, if she did. -- Kitty, however,
+notwithstanding her partiality for Wilmot, behaved to him with a delicate reserve, which is extremely proper. -- He must, certainly, have a good opinion of her; and when a man esteems such a girl as her, he may be soon brought to love her. -- But then he has only a small fortune. -- How must we settle that with Mrs. Downton? How will he, indeed, who has she most generous and disinterested heart, be able to think of offering it to a lady, with nothing more considerable tacked to it, than his very moderate income? --
 
--- -- -- -- -- It was awkward to have no lady with me ^
-I could not think of any, as you were at such a distance, half fo agreeable to my lord.. was the • person to be first considered, ars Kitty-- -- dear girt' was exceedingly rejoiced, to find that I succeeded with her mother; and being sensible how nice my lord is in his opinion about women, it was paying her a great compliment, to fele6t her from the rest of our acquaintance; stnd stie exprested a modest acknowledgment for this preference, which still rxiore and
-more recommended her to my lord -- -- -- Mr. Wilmot
-behaves with the utmost politeness to her, and even seems desirous of amusing her; but Kitty, I believe, sees nothing of the lover in him. -- As my lord chooses to be much with me alone, they also are frequently left by themselves, yet does (he always return to us, with a seriousness and anxiety in her countenance, which induces me to fear, that stie is distatisfied. -- Were I quite sure that Wilmot was the cause of her anxiety and seriousness, I would send her home, ~ Time, absence, and another lover might cure her,
-'-- I femetimes mention our leaving this place; tut stie never hears of our departure from hence, without weeping, because stie knows that her mother will not invite Mr Wilmot to her house;; woiilsi
-he go, I believe, if stie did. -- -- -- Kitty, however,
-norwithstanding her partiality for Wilmot, behaveb ' to him with a delicate reserve, which is extremely ' proper-- -- must, certainly, have a good opinion ofher; arid when a man esteems such a girl as her,
-he may be loon brought to love her. -- -- -- But then"
-he ms only a fma!! fortune. -- How must we settle ' that with Mrs. dov/nton? Hbw will he, Indeed, who has she most generous and ciifinterested heart, be able to think of offering it to a lady, with nothing' more considerable tacked to it, than his very moderate income? --
+Lord Woburn, unknown to me, made a considerable addition to the jointure which had been before agreed upon between him and Mr. Elliot for me, with an additional five hundred a year to my pin money; which that gentleman thought unnecessary.
 
-Lord
-LORD WOBURN. 235
-Lord Woburn, unknown to me, made a considerable addition to the jointure which had been before agreed upon between him and Mr. Elliot for me, with an additional five hundred a year to my pill money; which that gentleiitan thought unnecessary.
-I asked my lord the other day, if he began to grow' tired of me?
-Why that question, niy dear Charlotte said he, a little surprised.
+I asked my lord the other day, if he began to grow tired of me?
 
-Because you seem, by your generosity, to lay a greater stress on money than love. -- Now, as I airr extremely happy in being’fo loved by you at present, 1 want the less to be enriched; a much smaller funi would be fully sufficient to enable me to appear with you; and while you are fo obliging as to give rne your company, I Shall not run about frorn place to place, merely to Show my clothes and my jewels.^’
-He laughed : called me an excellent creature i and Said, he had not made that Supplement to my income to bribe my sondness, but to Show that he placed the highest confidence in me being astured, that I had a heart not to be corrupted by money or the world.
-I thanked him for fo Striking a proos of his esteem, but told him, that as he had a larger Sortune than he knew what to do with, I thought I could put him in a way to enjoy it in a luxuiious man fier.
-"Speak, my life, " cried he, "whatever you propose must merit my approbation."
-I then ventured to hint, that if he could do anything for Wilmot, So as to make him acceptable to Mrs. Downton, her daughter would, I believed, be quite happy; adding, however, th at Kitty had not dropped a Syllable relative to her inclination for Wilmot, and that her prudent behaviour h ad very much increased my esteem fer her.'
-. "I do
-2^6 H I S T O R Y O r
-I
-I do not think, " replied he, Smiling significarlt ly at me, "that Harry can So readily change the object of his afsedtion; but I will talk to him."
-Poor Kitty looked at me this morning, with her eyes Sull of tears, and told me, that 1 was the happiest woman in the world,
-"I Sreely consess I am, my dear; I hope you don’t envy me."
-"No, indeed, " replied the blushing girl, "I think you deserve Such a charming man as my lord; but as you can have nobody else, now, it is a pity that any man who knows you Should be unhappy, because he cannot be in my lord’s place."
-"I am quite of your mind, " Said I Smiling, "but' I cannot suppose that any man Should be So, because he is not."
-"All the men I ever knew, " replied She, "' prefer you, in their hearts, to all other women."
-"How is this, Kitty !" Said my lord, who overheard her, while he was coming into the room, "if that’s the case, I must begin to be jealous j a rnong So many rivals, one. Surely, may Stand a' chance of Succeeding in my charlotte’s Savour."
-"Kitty, my lord, is, from the excess ofher friend sliip, too partial to me; She, therefore, hastily imagines, that all men See me with her eyes."
-They all See you with the eyes of admiration, moult certainly replied my lord, "have I not then an intolerable Slrare of vanity, to believe myself pre serred by you, my love, to all other men ?"
-I will not tell you what answer I made; it would make you think, perhaps, that lam too ■ Sond of him 5 and yet, certainly, I cannot posebly be too Sond of him, as he almost adores me. -- -- He can Scarce bear me out of his Sight a Single moment; he gratifies every wisli of my heart, and even watches to read'my very thoughts, that he may Sly to prevent my desires. ■ -«
+"Why that question, my dear Charlotte," said he, a little surprised.
 
-But
-jli A XX J 2 V v V_/ Jp vo In IN
-But I will not add anymore, lest I Slrould weary you. So as to niake you repent of your having en ..couraged a correspondence with
-Your asseftionate friend,
-Charlotte Wobukx.
+"Because you seem, by your generosity, to lay a greater stress on money than love. -- Now, as I am extremely happy in being so loved by you at present, I want the less to be enriched; a much smaller sum would be fully sufficient to enable me to appear with you; and while you are so obliging as to give me your company, I shall not run about from place to place, merely to show my clothes and my jewels."
+
+He laughed; called me an excellent creature; and said, he had not made that supplement to my income to bribe my fondness, but to show that he placed the highest confidence in me being assured, that I had a heart not to be corrupted by money or the world.
+
+I thanked him for so striking a proof of his esteem, but told him, that as he had a larger fortune than he knew what to do with, I thought I could put him in a way to enjoy it in a luxurious manner.
+
+"Speak, my life," cried he, "whatever you propose must merit my approbation."
+
+I then ventured to hint, that if he could do anything for Wilmot, so as to make him acceptable to Mrs. Downton, her daughter would, I believed, be quite happy; adding, however, that Kitty had not dropped a syllable relative to her inclination for Wilmot, and that her prudent behaviour had very much increased my esteem for her.
+
+"I do not think," replied he, smiling significantly at me, "that Harry can so readily change the object of his affection; but I will talk to him."
+
+Poor Kitty looked at me this morning, with her eyes full of tears, and told me, that I was the happiest woman in the world,
+
+"I freely confess I am, my dear; I hope you don’t envy me."
+
+"No, indeed," replied the blushing girl, "I think you deserve such a charming man as my lord; but as you can have nobody else, now, it is a pity that any man who knows you should be unhappy, because he cannot be in my lord’s place."
+
+"I am quite of your mind," said I smiling, "but I cannot suppose that any man should be so, because he is not."
+
+"All the men I ever knew, " replied she, "prefer you, in their hearts, to all other women."
+
+"How is this, Kitty!" said my lord, who overheard her, while he was coming into the room, "if that’s the case, I must begin to be jealous; among so many rivals, one surely, may stand a chance of succeeding in my Charlotte’s favour."
+
+"Kitty, my lord, is, from the excess of her friendship, too partial to me; she, therefore, hastily imagines, that all men see me with her eyes."
+
+"They all see you with the eyes of admiration, most certainly:" replied my lord, "have I not then an intolerable share of vanity, to believe myself preferred by you, my love, to all other men?"
+
+I will not tell you what answer I made; it would make you think, perhaps, that I am too fond of him; and yet, certainly, I cannot possibly be too fond of him, as he almost adores me. -- He can scarce bear me out of his sight a single moment; he gratifies every wish of my heart, and even watches to read my very thoughts, that he may fly to prevent my desires. --
+
+But I will not add anymore, lest I should weary you. So as to make you repent of your having encouraged a correspondence with
+
+> Your affectionate friend,
+
+>> Charlotte Woburn.
 
 ---
 
-## LETTER LXXXI.
+## LETTER LXXXI. (245)
 
-Lord Wo B U R N to Mr. W i l m o t.
+Lord Wobutn to Mr. Wilmot.
 
-My health, my Spirits, are in a great measure
-
-restored; -- -- my lovely Charlotte deserves to
+My health, my spirits, are in a great measure restored; -- my lovely Charlotte deserves to
 'be mentioned as the chies cause of my recovery.
 To her I am indebted for my present exis1: ence, and for every blesting I enjoy. I cannot Say half enough in her praise -- I never could have believed it possible for any woman to be So excellent' -- She not only ftu i diously endeavours, with the utmost Solicitude, to make me happy, but to confer ail the felicity in her power upon my friends. In consequence of this most laudable propensity of her’s, I have formed a Scheme ■ to Settle our dear Harry, I hope, to his Satisfaction, You will laugh, I am Sure to hear that I, after having So long eniertained a vile opinion of woman. Should turn matchmaker-- -- do not by any means like thc chatabler; but when I See two people whom .1 think capable of making each other happy, is they were but Set in the right way, I cannot help .wisliing to ailift them. -- With this design I have attacked your brother about Kitty. -- "She is a lovely girl, Harry, Said I -- but I Slrall not expatiate upon her person, her disposition is amiable, and Sire
 has
