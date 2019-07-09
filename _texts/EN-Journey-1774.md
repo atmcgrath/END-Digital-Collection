@@ -40,7 +40,7 @@ This text has been OCRed and hand-corrected from the [digital surrogate](http://
 
 <p class="centered small">Printed for F. and J. NOBLE, at their respective<br>
 Circulating LIbraries, near <i>Middle Row, Holburn</i><br>
-and <i>Saint Martin's Court,</i> near <i>Leicester Square.<i><br>
+and <i>Saint Martin's Court,</i> near <i>Leicester Square.</i><br>
 MDCCLXXIV.</p>
 
 ---
