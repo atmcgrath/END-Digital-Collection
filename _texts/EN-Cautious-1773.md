@@ -2410,44 +2410,45 @@ I bade him hope for everything from my Charlotte’s friendly offices joined to 
 
 He pressed my hand, and thanked me.
 
-Imagining that my wife had confined herself too much during Harry’s illness, because she was will ling to See him properly attended, and because she was unwilling to leave Kitty by herself, I made them "both get into the coach, as Soon as he grew better,
-to take the air. -- -- We went to ciiesden.
+Imagining that my wife had confined herself too much during Harry’s illness, because she was willing to see him properly attended, and because she was unwilling to leave Kitty by herself, I made them both get into the coach, as soon as he grew better, to take the air. -- We went to Cliefden.
 
-When we were within a mile of that beautisul Spot, we pasl a post-chaise which was overturned-- -- were two ladies in it who, by their out cries, were certainly frightened, and, perhaps, hurt.
+When we were within a mile of that beautiful spot, we past a post-chaise which was overturned. -- There were two ladies in it who, by their out cries, were certainly frightened, and, perhaps, hurt.
 
-My dear Charlotte, whose ears are even qpen to sounds of diftrels, (lopped the coach, and deiired
-that we might offer our affidance -- -- -- -- We both got
-out directly.
+My dear Charlotte, whose ears are even qpen to sounds of distress, stopped the coach, and desired that we might offer our assistance. -- We both got out directly.
 
-On my advancing to entreat the ladles, who were just disengaged from their carriage by their fervantsj to accept of places in mine, I immediately recognised one of them" -- and started back. -- "It is Mrs. Mead, " said I, in a whisper to my Charlotte, "(hall we return home, and only send the servants to take care of them ?"
+On my advancing to entreat the ladles, who were just disengaged from their carriage by their servants, to accept of places in mine, I immediately recognised one of them -- and started back. -- "It is Mrs. Mead," said I, in a whisper to my Charlotte, "shall we return home, and only send the servants to take care of them?"
 
-"By no means, replied (he, with a benevolent fniile which made her look mod angelically : "Were I in such a (ituation, my lordy (liould I not be pained to find Mrs. Mead' able, but unwilling to assist me ?"
-"Charming creature !" replied I, and then walked again to the ladies. -- My wife, in the mofl‘obliging manner, expressed her concermfor them, and deiired to know if (he could accommodate them at lead till they had recovered their fright.
-Mrs. Mead, more (liocked at the sight of us than at the overturning of the carriage, changed colour, and thanked lady Wobutn, but was going to decline our osier, when her companion inter^led, saying, that (he with pleasure recolle£led lady Woburn; having Spent several days with her at Eudon cadle, and that (he (hold be happy in having the honour of renewing her acquaintance with her.
-My Charlotte remembered her, as (he had seen her at the Cadle the Summer before we met in -- -- -- (hire. -- I had, therefore an opportunity, after having made room for the ladies, and after having, found them more frightened than hurt, to alk about Sir Francis and lady Eudon, from whom I had not heard since they mentioned their intended Bath journey. -- ■ "They are there now, " returned the lady, whom I had never seen till then j "I have this morning had a litter from lady Eudon. -- She is in the greated dif
-trefi
-tress at her Sister harriot’s being just married to a hais pay osficer, who has already had, it is imagined, two wives. -- ^ -- It is also Said that he was kept for Some time by lady spilsbury; but that, on his growing clamorous Sora larger allowance out ofher jointure, She threw him in the way osher intimate friend miss Facely, who was married to him yesterday morning at the Abbey, without informing her Samily of her design."
-You may imagine how we all looked at each other on this piece of intelligence j it amused us a little for a Sew hours, but as our intelligencer being rather of too communicative a disposition for my wise to desire an intimacy with her, we Set her down with Mrs. Mead, at the house of the latter, who lived, We found, in a very elegant little house about two miles from ciiesden. -- Mrs. Btitler gave us Several invitations to her dwelling near her friend’s, but Mrs. Mead modestly and prudently was Silent upon that head. -- I hope, theresore, She is changed for the better.
-At our return we Sound Harry walking about his chamber. -- Mrs. Downton was in the parlour, come to fetch her daughter, -- -- -- The remainder in my next.
+"By no means, replied she, with a benevolent smile which made her look most angelically: "Were I in such a situation, my lord, should I not be pained to find Mrs. Mead able, but unwilling to assist me?"
 
-I
-LED
+"Charming creature!" replied I, and then walked again to the ladies. -- My wife, in the most obliging manner, expressed her concern for them, and desired to know if she could accommodate them at lead till they had recovered their fright.
+
+Mrs. Mead, more shocked at the sight of us than at the overturning of the carriage, changed colour, and thanked lady Woburn, but was going to decline our offer, when her companion interposed, saying, that she with pleasure recollected lady Woburn; having spent several days with her at Euston-Castle, and that she should be happy in having the honour of renewing her acquaintance with her.
+
+My Charlotte remembered her, as she had seen her at the Castle the Summer before we met in -----hire. -- I had, therefore an opportunity, after having made room for the ladies, and after having, found them more frightened than hurt, to ask about Sir Francis and lady Euston, from whom I had not heard since they mentioned their intended Bath journey. -- "They are there now," returned the lady, whom I had never seen till then; "I have this morning had a letter from lady Euston. -- She is in the greatest distress at her sister Harriot’s being just married to a half-pay officer, who has already had, it is imagined, two wives. -- It is also said that he was kept for some time by lady Spilsbury; but that, on his growing clamorous for a larger allowance out of her jointure, she threw him in the way of her intimate friend miss Facely, who was married to him yesterday morning at the Abbey, without informing her family of her design."
+
+You may imagine how we all looked at each other on this piece of intelligence; it amused us a little for a few hours, but as our intelligencer being rather of too communicative a disposition for my wise to desire an intimacy with her, we set her down with Mrs. Mead, at the house of the latter, who lived, we found, in a very elegant little house about two miles from Cliefden. -- Mrs. Butler gave us several invitations to her dwelling near her friend’s, but Mrs. Mead modestly and prudently was silent upon that head. -- I hope, therefore, she is changed for the better.
+
+At our return we found Harry walking about his chamber. -- Mrs. Downton was in the parlour, come to fetch her daughter. -- The remainder in my next.
 
 ---
 
 ## LETTER LXXXIV.
 
-From the Same to the Same.
-AS Soon as I had vvelcomed Mrs. Downton, who is a very agreeable woman, I carried her up into your brother’s room with her daughter and my wife, telling her that we had been Wt too long absent from our patient.
-hlarry received her with great' respect-- -- trembled all over. -- Soon afterwards, on her mother’s addressing lady Woburn, and Saying She was come to fetch her daughter, as Sire expected Sir Charles Conyers in town the next day, Kitty fainted away, unable to Sustain So Severe a Shock.
-Harry, ' Sorgetting his own indisposition, Slew to aslist the lovely girl, and, railing her tenderly in his arms, recalled her to life by a thousand asreuionatc prestures to his Sond bosora,
-Kitty, opening her eyes, looked satissadfion at the excesiive kindness of his behaviour; but all at once, Shrinking from his arms, with a deep Sigh, turned to Mrs. Dowhton, who had been; very ibiich alarmed at her Sainting, 'and'exclaimed, "My iriother! -- I cannot bear to displease my dear mother, Mr. Wilmot, " -- -- '
-The discovery of this modesl tenderness for Harry, and her Still greater aftedtion for Mrs. Downton, who had been an excellent mother, touched lady Charlotte and me raost sensibly, and we both endeavoured to prevail ontvirs. Downton to receive your brother as her Son.. "
+From the same to the same.
 
-I cannot describe kitty’s joy. -- The Sly girl, in or ' der to conceal it, made a frivolous excuse to go into her own apartment; but Harry Sound means to make her promise to return in a Sew minutes-- -- thing will, I'hope, be Soon Settled to their and your satissaqion. -- -- -- Mrs. Downton has generouhy refused
-my charlotte’s present 4 but we are absolute.
-Thus you See my angel, as a mistress, friend, and wise, Slrines Superior to the greatest part osher Sex; and I can most Sincerely add, that Sire renders me
-the happiest of men. -- -- -- IS women, in general, would
-copy So exemplary a character, they would not find men So unwilling to, enter into the marriage ftate it is certainly very much in their power to make that State a State of wretchedness or felicity : • -- the exemplary wise, itheresore, is a character which cannot be fashcieatly admired j it is justly to be revered,
+As soon as I had welcomed Mrs. Downton, who is a very agreeable woman, I carried her up into your brother’s room with her daughter and my wife, telling her that we had been but too long absent from our patient.
+
+Harry received her with great respect -- trembled all over. -- Soon afterwards, on her mother’s addressing lady Woburn, and saying she was come to fetch her daughter, as she expected Sir Charles Conyers in town the next day, Kitty fainted away, unable to sustain so severe a shock.
+
+Harry, forgetting his own indisposition, flew to assist the lovely girl, and, raising her tenderly in his arms, recalled her to life by a thousand affectionate pressures to his fond bosom.
+
+Kitty, opening her eyes, looked satisfaction at the excessive kindness of his behaviour; but all at once, shrinking from his arms, with a deep sigh, turned to Mrs. Downton, who had been very much alarmed at her fainting, and exclaimed, "My mother! -- I cannot bear to displease my dear mother, Mr. Wilmot." --
+
+The discovery of this modest tenderness for Harry, and her still greater affection for Mrs. Downton, who had been an excellent mother, touched lady Charlotte and me most sensibly, and we both endeavoured to prevail on Mrs. Downton to receive your brother as her son.
+
+I cannot describe Kitty’s joy. -- The sly girl, in order to conceal it, made a frivolous excuse to go into her own apartment; but Harry found means to make her promise to return in a few minutes. -- Everything will, I hope, be soon settled to their and your satisfaction. -- Mrs. Downton has generously refused my Charlotte’s present; but we are absolute.
+
+Thus you see my angel, as a mistress, friend, and wise, shines superior to the greatest part of her Sex; and I can most sincerely add, that she renders me
+the happiest of men. -- If women, in general, would copy so exemplary a character, they would not find men so unwilling to, enter into the marriage state; -- it is certainly very much in their power to make that state a state of wretchedness or felicity: -- the exemplary wife, therefore, is a character which cannot be sufficiently admired; it is justly to be revered.
 
 FINIS.
