@@ -1,35 +1,56 @@
-RARE BOOK COLLECTION
-LIBRARY
-universityo/
-PEMNSYLVAMIA
+---
+layout: narrative
+title: "The Journey to London, or the History of Selby-Family."
+author: Anonymous
+editor: Ina Chen
+rights: Public Domain
+source: UPenn Digital Collection of British and American Fiction, 1660-1830
+publication-date: 2019
+toc:
+- Title Page
+-
+---
 
-y.
+---
 
-.
+## Digital editor's note
+This text has been OCRed and hand-corrected from the [digital surrogate](http://hdl.library.upenn.edu/1017/d/print/992006723503681) in Penn Libraries' Digital Collection of British and American Fiction. The original book is held by the Kislak Center for Special Collections (Penn Libraries, University of Pennsylvania).
 
-r=fc
+---
 
-THE
-'# • •
-| 0 U R N E Y T o L O N D O N;.
-V 0t B, E
-j
-'THE
-journeytolondon:
-*
-#
-O R, T H E ■
-<
-HISTORY
-OF THE
-SELBY F AM ILY.
-VOL. I.
-LON DB N :
-Printed for F. and J. N o b L e, at their reipe£hve circulating Libraries, near Middle Romot Holhornt and Saint martin’s Court, near Leicester Square
-M DCC LXXIV
-r
-•.. '
-• ^
+---
+
+<a id ="half-title-page"/>
+<p class="centered">THE</p>
+<p class="centered">JOURNEY TO LONDON.</p>
+<p class="centered">VOL. I.</p>
+
+---
+
+<a id ="title-page"/>
+<p class="centered">THE</p>
+<p class="centered">JOURNEY TO LONDON:</p>
+<p class="centered">OR, THE</p>
+<p class="centered large">HISTORY</p>
+<p class="centered">OF THE</p>
+<p class="centered large">SELBY-FAMILY.</p>
+<p class="centered">VOL. I.</p>
+
+<p class="centered small">LONDON:</p>
+
+<p class="centered small">Printed for F. and J. NOBLE, at their respective<br>
+Circulating LIbraries, near <i>Middle Row, Holburn</i><br>
+and <i>Saint Martin's Court,</i> near <i>Leicester Square.<i><br>
+MDCCLXXIV.</p>
+
+---
+
+<a id="body" />
+<p class="centered large">THE JOURNEY TO LONDON.</p>
+
+---
+
+
 mama! I have Some news S “0^ “to tell you : we are going to
 “have Some charming neigh“ “: Sir Thomas Lum“ “family is coming down to live ‘‘ at the great house in
 this lively manner miss Selby, one day, addressed her mother, running into the garden parlour, in which she fet at work.
