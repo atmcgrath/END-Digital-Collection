@@ -121,6 +121,7 @@ r—— h—— may be assured, that I shall not hastily subject myself to simil
 
 <p align="right">[5]</p>
 ## LETTER V.
+
 *Most incomparable woman!*
 
 Believe me when I say that the first mistake ought to be forgiven, and that the second must be so — Love will plead my excuse in the first instance, for it took away my faculties — and Duty is my second plea. At the instant I was preparing for the Theatre, I received orders which I could not disobey. My trusty —— was absent, so that I had not even an opportunity of acquainting you with the circumstance. To-night, at nine o’clock, whatever be the consequence, you shall see me at Mrs. ———’s, in ——— street; and I hope you will then ratify the pardon of
@@ -141,6 +142,7 @@ I own I am properly treated. Your ladyship had a right to be revenged. I acknowl
 ---
 
 ## LETTER VI.
+
 *My dear,*
 
 If you please we will agree on a suspension of hostilities. I am revenged, I am satisfied. The waiting-woman has well performed her part. Your r—— h—— will for the future be more cautious, and perhaps your future assignations may not be followed by any neglect on the part of
