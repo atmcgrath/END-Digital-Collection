@@ -101,56 +101,37 @@ house was very pleasantly situated; it had been built by Mr. Selby’s father: i
 [11]
 married to a carriage, had she not stood in her own light.
 
-Mr. Selby had also a good collection of books: he was not a man of the world, but he was a man of sense, and had received the best school learning the country could afford. In the younger part of his life he had been a great lover of reading, and had a taste for musick, Sufficient to enable him to a muse himself with playing a little upon the organ and violin, both, which instruments he retained in his house: though
-O ^
-after his children grew up, he Seldom meddled with, them, devoting his whole time and attention to the improvement of his Small fortune, for the Sake of his familyi However, as his Son and younger daughter had often importuned him to.'instru61: them in a Science which " B 6 pto
+Mr. Selby had also a good collection of books: he was not a man of the world, but he was a man of sense, and had received the best school learning the country could afford. In the younger part of his life he had been a great lover of reading, and had a taste for musick, sufficient to enable him to a muse himself with playing a little upon the organ and violin, both, which instruments he retained in his house: though after his children grew up, he seldom medled with, them, devoting his whole time and attention to the improvement of his small fortune, for the Sake of his family. However, as his son and younger daughter had often importuned him to instruct them in a science which
+[12]
+promised to afford them much pleasure, having both a particular passion for music, and melodious voices, he now and then gave them a lesson upon the organ; but he cautioned them, at the same time, not to apply closely to music, lest they might be prevented by it from paying their attention to things of more consequence. Fanny, notwithstanding her father’s precaution, would sometimes
+sing, though rudely, while her brother accompanied her upon the organ; and they sometimes joined in a duet. The two girls also drew well enough to save the expenses of patterns for Working aprons, rushes, &c. &c. these amusements, with visits to the few neighbours they had, kept them from growing melancholy in their retirernent. Their neighbours were most of them chearful, good-natured, people,
+[13]
+and such people, though not very highly polished, are a thousand times more valuable than those who, with the most refined accomplishments, have had their minds corrupted by an *imitation* of the *manners* of the fashionable world.
 
-12 
-promised to afford them much plcasure, having both a particular passion for music, and melodious voices, he now and then gave them a lesson upon the organ; but he cautioned them, at the Same time, not to apply closely. to music, lest they might be prevented by it from paying their attention to things of more consequence. Fanny, notwithstanding
-her father’s precaution, would Sometimes
-Sing, though rudely, while her brother accornpanied her upon the organ; and they Sometimes joined in a duet. The two girls also drew well enough to Save the expenses of patterns for Working aprons, rushes, cc. these amusements, with visits to the few neighbours they had, kept them from growing melancholy in their re tirernent. Their neighbours were most ' of them chearfulj good-natured, people,
-and
+With the young and lively part of their neighbours, the Miss Selbys sometimes schemed a dance, and sometimes planned other amusements, in order to fill up their vacant hours in a winter evening, innocently. Cards were absolutely banished from their little social meetings. Cards, indeed, were particularly discouraged by Mr. Selby himself: he never played, neither at home or abroad; and as he had many reasons to disapprove of their being introduced into *his* family, he always in inveighed warmly against them. He never
+[14]
+would let his children, play -- Cards promote a habit of sitting too long, which is very pernicious, and prejudicial to health and spirits, and occasion numberless disorders. They also give too great a spur to the passions, and excite many of the most destructive kind, especially avarice. There is sufficient reason to believe that the love of play opens the door to many low arts, and shabby proceedings disgraceful, to man, and detrimental to society.
 
-and Such people, though not very highly polished, are a thousand times more valuable than those who, with the most re' ' accomplishments, have had their minds corrupted by an imitation of the manners of the fashionable world.
-With the young and lively part of their neighbours, the miss Selbys Sometimes Schemed a dance, and Sometimes planned other amusements, in order to fill up their vacant hours in a winterevening, innocently. Cards were absolutely banished from their little Social meetings. Cards, indeed, were particularly discouraged by Mr. Selby himself: he never played, neither at home or abroad; and as he had many reasons to disapprove of their being introduced into his family, he always in
-I
-yeighed warmly against them. He never
-would
- 
-vrould let his children, play — Cards promote a habit of sitting too long, which is very pernicious, and prejudicial to health and Spirits, and occasion nun berless disorders. They also give too great a Spur to the passions, and excite many of the most destructive kind, espe eialiy avarice. There k Sufficient reason to believe that the love of play opens the door to many low arts, and shabby proceedings disgraceful, to man, and detrimental to Society.
-, In consequence of these capital ob jefbions to card playing, Mr. Selby took every possible method to prevent his children from contracting an inclination for it; and was, indeed, extremely Solicitous to cure them of every the llight cst folly to which they were naturally addicted, or which they had caught by
+In consequence of these capital objections to card playing, Mr. Selby took every possible method to prevent his children from contracting an inclination for it; and was, indeed, extremely Solicitous to cure them of every the llight cst folly to which they were naturally addicted, or which they had caught by
 asso
 associating with their acquaintance. However, though the young Selbys were thus discreetly brought up, though they were never checked by any un reasonable restraints, and though they shared in all the pleasures of the country, there were So many things which they had not Seen, which they had heard of, and of which' they warrted to hear more, that they were delighted at the coming down of a family from London; not in the least doubting but that theiy could give them all the wished for, information.
-Mrs. Selby was pkased, because she, fancied she should make herself of more. consequence, by her connexions with, people of fashion, and increashig her ac epiaintance "wnth persons in high life.. By Such connedtshns she expected to tri. «
-2: urnpli
-»
-\
-i
-I
-i
-\
-I 16 The Journey to Londoit.
-i
+Mrs. Selby was pkased, because she, fancied she should make herself of more. consequence, by her connexions with, people of fashion, and increashig her ac epiaintance "wnth persons in high life.. By Such connedtshns she expected to tri.
+
 umph over her rustic neighbours, with
 . «
 her knowledge concerning the way of living among, the great in London. Agreeably to this mode of thinking, she determined, before the Baronet and his ■
 family had been in the country long.
-»
+
 enough to know whether they had any neighbours or not, to pay them a visity with the thorough approbation of her daughters, who earnestly pressed her,.
-%
+
 indeed, to go and See themi They were quite eager to see Ladies jjlist arrived from London; and, accordingly,, began to make preparations for their visit the preceding evening. That they might appear in the best manner pos fible, their hair had been kept in paper all the day; they were, in short, So busied in making up their rushes and tipi
 
 pets, that they had not a single moment to Spare. Their father called upon them,
 bi
-%
-* ^ _
-. 17
+
 but they were not ready. In the evening, therefore, instead of walking in the grounds, or fields, as they used to do —, (in the middle of July —) on finding none of them visible, he went upstairs to his wife’s apartment There he Saw them all together consulting about C p.s.
 anti ribbons, gowns and petticoats.
-'<. / *■
-V
-*. ‘ I I
-'■ ' \ ' '
+
 On his desiring to know why they shut themselves up in Such fine weather, Mrs. Selby replied, We are very busy
 '' ■ I i
 ‘‘ in getting things ready to go to Sir Thomas lumley’s; arid I hope, my
@@ -159,13 +140,10 @@ dear, that you will' be of our party.’*
 Who I!" answered he; Why
 I «.,
 ‘‘ should I go to Sir Thomas Lum
-?’*
-I
-/
-\
+
 it .
 Why not as well as we ?"
-*
+
 Nay, if you come todhaf I can give no reason for four going : nor do I believe you can give any reason for it yourself." '
 9
 }
