@@ -112,50 +112,31 @@ With the young and lively part of their neighbours, the Miss Selbys sometimes sc
 [14]
 would let his children, play -- Cards promote a habit of sitting too long, which is very pernicious, and prejudicial to health and spirits, and occasion numberless disorders. They also give too great a spur to the passions, and excite many of the most destructive kind, especially avarice. There is sufficient reason to believe that the love of play opens the door to many low arts, and shabby proceedings disgraceful, to man, and detrimental to society.
 
-In consequence of these capital objections to card playing, Mr. Selby took every possible method to prevent his children from contracting an inclination for it; and was, indeed, extremely Solicitous to cure them of every the llight cst folly to which they were naturally addicted, or which they had caught by
-asso
-associating with their acquaintance. However, though the young Selbys were thus discreetly brought up, though they were never checked by any un reasonable restraints, and though they shared in all the pleasures of the country, there were So many things which they had not Seen, which they had heard of, and of which' they warrted to hear more, that they were delighted at the coming down of a family from London; not in the least doubting but that theiy could give them all the wished for, information.
-Mrs. Selby was pkased, because she, fancied she should make herself of more. consequence, by her connexions with, people of fashion, and increashig her ac epiaintance "wnth persons in high life.. By Such connedtshns she expected to tri.
+In consequence of these capital objections to card playing, Mr. Selby took every possible method to prevent his children from contracting an inclination for it; and was, indeed, extremely solicitous to cure them of every the llight cst folly to which they were naturally addicted, or which they had caught by
+[15]
+associating with their acquaintance. However, though the young Selbys were thus discreetly brought up, though they were never checked by any unreasonable restraints, and though they shared in all the pleasures of the country, there were so many things which they had not seen, which they had heard of, and of which they warrted to hear more, that they were delighted at the coming down of a family from London; not in the least doubting but that they could give them all the wished for, information.
 
-umph over her rustic neighbours, with
-. «
-her knowledge concerning the way of living among, the great in London. Agreeably to this mode of thinking, she determined, before the Baronet and his ■
-family had been in the country long.
+Mrs. Selby was pleased, because she, fancied she should make herself of more consequence, by her connexions with, people of fashion, and increasing her acquaintance with persons in high life. By Such connections she expected to
+[16]
+triumph over her rustic neighbours, with her knowledge concerning the way of living among, the great in London. Agreeably to this mode of thinking, she determined, before the Baronet and his family had been in the country long enough to know whether they had any neighbours or not, to pay them a visity with the thorough approbation of her daughters, who earnestly pressed her indeed, to go and see them. They were quite eager to see Ladies just arrived from London; and, accordingly, began to make preparations for their visit the preceding evening. That they might appear in the best manner possible, their hair had been kept in paper all the day; they were, in short, so busied in making up their rushes and tippets, that they had not a single moment to spare. Their father called upon them,
+[17]
+but they were not ready. In the evening, therefore, instead of walking in the grounds, or fields, as they used to do --, (in the middle of July--) on finding none of them visible, he went upstairs to his wife’s apartment. There he saw them all together consulting about caps and ribbons, gowns and petticoats.
 
-enough to know whether they had any neighbours or not, to pay them a visity with the thorough approbation of her daughters, who earnestly pressed her,.
+On his desiring to know why they shut themselves up in such fine weather, Mrs. Selby replied, "We are very busy in getting things ready to go to Sir Thomas Lumley’s; and I hope, my dear, that you will be of our party."
 
-indeed, to go and See themi They were quite eager to see Ladies jjlist arrived from London; and, accordingly,, began to make preparations for their visit the preceding evening. That they might appear in the best manner pos fible, their hair had been kept in paper all the day; they were, in short, So busied in making up their rushes and tipi
+"Who I!" answered he; "Why should *I* go to Sir Thomas Lumley's?"
 
-pets, that they had not a single moment to Spare. Their father called upon them,
-bi
+[18]
+"Why not as well as *we*?"
 
-but they were not ready. In the evening, therefore, instead of walking in the grounds, or fields, as they used to do —, (in the middle of July —) on finding none of them visible, he went upstairs to his wife’s apartment There he Saw them all together consulting about C p.s.
-anti ribbons, gowns and petticoats.
+"Nay, if you come to *that,* I can give no reason for *your* going: nor do I believe you can give any reason for it yourself."
 
-On his desiring to know why they shut themselves up in Such fine weather, Mrs. Selby replied, We are very busy
-'' ■ I i
-‘‘ in getting things ready to go to Sir Thomas lumley’s; arid I hope, my
-1 t
-dear, that you will' be of our party.’*
-Who I!" answered he; Why
-I «.,
-‘‘ should I go to Sir Thomas Lum
-
-it .
-Why not as well as we ?"
-
-Nay, if you come todhaf I can give no reason for four going : nor do I believe you can give any reason for it yourself." '
-9
-}
-4
-Yes, indeed, but I can, " replied she, rather warmly : Sir Thomas and his family are our neighbours; and all people visit their neighbours. Be they are So genteel an acquain tance, and So proper to give our girls a notion of high life, and to
+"Yes, indeed, but I can," replied she, rather warmly: "Sir Thomas and his family are our neighbours; and all people visit their neighbours. Be they are So genteel an acquain tance, and So proper to give our girls a notion of high life, and to
 teach them how to behave themselves if ever Such a life fnould be their lot;
 4
 ‘V (and who knows what may happen)
 that I think they will have a charm opportunity to improve them
-‘‘ Umph !"
-9
-. 19
+
 Umph!" cried Mr. Selby; then,
 after a short pausc, added — In what very different lights we See things now, my dear? — But to answer you circumstantially. — In the first place, r do not See the least neceshty there
 I
