@@ -131,87 +131,34 @@ On his desiring to know why they shut themselves up in such fine weather, Mrs. S
 
 "Nay, if you come to *that,* I can give no reason for *your* going: nor do I believe you can give any reason for it yourself."
 
-"Yes, indeed, but I can," replied she, rather warmly: "Sir Thomas and his family are our neighbours; and all people visit their neighbours. Be they are So genteel an acquain tance, and So proper to give our girls a notion of high life, and to
-teach them how to behave themselves if ever Such a life fnould be their lot;
-4
-‘V (and who knows what may happen)
-that I think they will have a charm opportunity to improve them
+"Yes, indeed, but I can," replied she, rather warmly: "Sir Thomas and his family are our neighbours; and all people visit their neighbours. Be they are so genteel an acquaintance, and so proper to give our girls a notion of high life, and to
+teach them how to behave themselves if ever such a life should be their lot; (and who knows what may happen) that I think they will have a charm opportunity to improve them."
 
-Umph!" cried Mr. Selby; then,
-after a short pausc, added — In what very different lights we See things now, my dear? — But to answer you circumstantially. — In the first place, r do not See the least neceshty there
-I
-is for our visiting Sir Thomas Lum
-/
-as a neighbour, as his rank and manner of life are So opposite to mine, that we cannot be at all Suitable to each other, probably, not agreeable. A neighbour, according'to my idea of ‘‘ that character, is a person who not only lives near me, but is of a So friendly disposition : a persori with whom I may be upon an inti mate footinc: :. Now as Sir Thomas
-o
-cannot possibly be Such a neighbour to me, I cannot think myself obliged to visit him : nor do I imagine that
-o
-any of my family can with propriety
-visit
-*
+[19]
+"Umph!" cried Mr. Selby; then, after a short pause, added -- "In what very different lights we see things now, my dear? -- But to answer you circumstantially. -- In the first place, I do not see the least necessity there
+is for our visiting Sir Thomas Lumley as a neighbour, as his rank and manner of life are So opposite to mine, that we cannot be at all Suitable to each other, probably, not agreeable. A neighbour, according to *my* idea of that character, is a person who not only lives near me, but is of a so friendly disposition  a person with whom I may be upon an intimate footing. Now as Sir Thomas cannot possibly be such a neighbour to *me*, I cannot think myself obliged to visit him: nor do I imagine that any of *my* family can with propriety
+[20]
+visit *his*. With regard to the genteelness of their acquaintance, I have particular objections to it. -- The abuse of the word *genteel*, which has rufined half the families in England. People in this refined age, instead of
+valuing themselves for the unaffected politeness of their behaviour, substitute a ceremonious mode of speaking and acting, without any meaning in it. Thirdly and lastly, my dear, with respect to my daughters, I really hope, that they will neither wish, nor make any attempts to be raised above the situation in which they were born and bred. I have educated them suitably to the little fortune I shall be able to give them; and I hope they will, when married to some plain honest men, know how to set a proper, value on the blessings of domestic
+[21]
+life: and as they cannot rationally expect to be placed in a more exalted station, they cannot want to learn how to conduct themselves in such a one: high notions are the worst no which can be infused into the heads of young people, especially gitls: a too great longing after what is called *High-life* most commonly reduces the *longers* to the *lowest life.* I desire, therefore, that *my* children may not be acquainted with anything at all of the matter: and so, Polly and Fanny, lay aside your work, and come and take a walk this fine evening in the garden."
 
-20 . visit hii. With ree ard to the s; enteel
-O. O,
-ness of their acq, ivaintance, I have particular objections to it— — ab
-of the word genteel, which has ru
-%
-half - the families in England:
-o
-People in Elis age, instead of
-** valuing themselves for the unaffcdlest.
-politeness of their behaviovir, Substitute a ceremonious mode of Speaking and acting, without any meaning in' ' Thirdly and lastly, ^ my dear, vrith re Sped): to my daughters, I re hope, that they will neither wishy nor make any. attempts to be raised.
-above the Situation in which they were
-• *
-born and bred. I have educated them Suitably to the little fortune I shall be able to give them; and I hope they will, when married to Some plain ho men, know how to Set a proper, value on the blessings of domestic
-life:
-\
-I
-■ V
-I
-1.
-/
-. 21
-life *, and as they cannot rationally expect to be placed in a more ejtalted
-I ' •
-station, they cannot want to learn how to eondikst themselves in Such a one: high notions are the worst no which can be insused into the heads of young people, especially .^irls : a too great longing after what is called high life most commonly re duces the longers to the lowesi life. I desire, therefore, that my children may not be acquainted with anything at all of the matter : and So, Polly and Fanny, lay aside your work, and come and take a walk this fine evens
+With these words he was going to take each of his daughters by the hand; when Mrs. Selby, interposing, with a head bridled up like that of an incensed
+[22]
+Turkey-cock, and a face inflamed with anger, cried, "Pray, Mr. Selby, let the girls alone: they may stay and finish what they are about; for if *you* do not like to go to Sir Thomas Lumley’s, there is no reason that I and my daughters should be rude to her Ladyship: if *you* choose to expose yourself, and show your strange breeding, I shall let them see that I have I had a very different education."
 
-ing in the garden."
-*
-f f
-With these words he was going to take each of his daughters by the hand; when Mrs. Selby, interposing, with a head bridled up like that of an incensed • Turkey
-4 N
-1
-22 .'
-turkey cock, and a face inflamed with anger, cried, Pray, Mr. Selby, let ‘‘ the girls alone : they may stay and finish what they are about; for Kyou do not like to go to Sir Thomas lumley’s, there is no reason that I and my daughters should be rude to her Ladyship : \iyou choose to expose yourself, and show your strange breed i ing, I shall let them See that I have
-I had a very different education."
-1. '
-I. * • *
-:
-;
-! I believe, indeed, " replied Selby,
-[ coolly, ' that you will expose yourself
-5 exceedingly, by acting sh entirely cut
-of cliarafter; but if you will be a fool, it is not, I am persuaded, in my
-\
-! power to hinder you. However,
-there is no occasion for you to take ' the girls to Spoil them; they may stay,
-and keep me company at home."
-'No,
-I
+"I believe, indeed," replied Selby, coolly, "that you will expose yourself
+exceedingly, by acting entirely out of character; but if you *will* be a fool, it is not, I am persuaded, in *my* power to hinder you. However, there is no occasion for you to take the girls to spoil *them*; *they* may stay,
+and keep *me* company at home."
 
-No, truly, " Said Mrs. Selby, stung to the quick at the appellation he had pointed at her;; 1 am to be reckoned a fool. Sir, as you have thought pro
+[23]
+"No, truly," said Mrs. Selby, stung to the quick at the appellation he had pointed at her; "I am to be reckoned a fool. Sir, as you have thought pro
 to call me, 1 shall choose to have Somebody to keep me in counte
 nance; and will, therefore, have the girls go with me."
 td XD
 Ay, " cried he, weary of coiitend ing, especially as he Saw her passion rising to a pretty considerable height, of the effects of which he had very frequently been fensible Since their marriage;; will have your own way, I See, whatever mischief comes of it: I have done my part, by telling you in what manner you are wrong; if ‘‘ you are determined not to listen to
 me, you must take the conlequencesd*
-\
-'With
-\ ♦
-I
-I
-4
-24 .
+
 With these words, delivered with an uncommon earnestiness, he went downstairs, leaving Mrs, Selby in no very
 I
 good listmour, though she had carried her point. She mattered a great many Severe things against her husband, be i fore she could compose her mind enough
@@ -226,13 +173,13 @@ D
 I
 /
 . 25.
-great world. ■ — Cheerfully, therefore, they did what their mother ordered them To do; and performed their appointed tashs with an avidity which would have done them great honour, had they been employed in a more laudable manner.
-When they came down to slipper, Mr. Selby, who was, in the stri(5lest sense of the words, a mild tem pered man, intended to have rallied thcin upon their having mis fpent So fine an evening; but he had been too long accustomed to Mrs. selby’s manner of behaving, not to perceive that she would be affronted by any kind of pleasantry upon the Subject in question: he, therefore, agreeably to Matt. prior’s priident advice, resolved to — eat his pudding, and hold his tongue."
+great world. ■ --Cheerfully, therefore, they did what their mother ordered them To do; and performed their appointed tashs with an avidity which would have done them great honour, had they been employed in a more laudable manner.
+When they came down to slipper, Mr. Selby, who was, in the stri(5lest sense of the words, a mild tem pered man, intended to have rallied thcin upon their having mis fpent So fine an evening; but he had been too long accustomed to Mrs. selby’s manner of behaving, not to perceive that she would be affronted by any kind of pleasantry upon the Subject in question: he, therefore, agreeably to Matt. prior’s priident advice, resolved to --eat his pudding, and hold his tongue."
 vol. I. C The
 %
 
 i ■ 4
-The next day — the day of action— — * was a long consultation held by The female part of the family : the de bate was, whether .it would be genteeler to Send any notice of their intended visitor ..to make it abruptly without giving any previous intelligence to the
+The next day --the day of action----* was a long consultation held by The female part of the family : the de bate was, whether .it would be genteeler to Send any notice of their intended visitor ..to make it abruptly without giving any previous intelligence to the
 I ’
 laimleys at all.
 I.
@@ -273,7 +220,7 @@ v •
 selby’s and the miss selby’s ‘‘ compliments to Lady Lumley and the young Ladies; if they are not engaged, vrill do themselves the ‘ pleasure of waiting upon them this
 afternoon."
 .
-miss Selby, who was the secretary upon this occasion, waiteci with the utmost impatience — her mother and lister were equally impatient— — an answer. They waited a considerable time before any answer came.
+miss Selby, who was the secretary upon this occasion, waiteci with the utmost impatience --her mother and lister were equally impatient----an answer. They waited a considerable time before any answer came.
 i
 0
 At last the boy appeared.
@@ -370,7 +317,7 @@ n: i
 L n
 ■lii!
 HI.
-III I « Oh! — there is slime new fashion
+III I « Oh! --there is slime new fashion
 III perhaps, " laid Mrs. Selby; but liv |i ing always shut up in this obscurevil
 ir i. ^
 l | how should I know anything
@@ -403,10 +350,10 @@ IV LI
 St •
 t *
 ,
-Mr. Selby, during the above dialogue, was looking over his men at work upon', his land. whcxt he came in to dinner, net Seeing his wife and daughters dreffed in any way as if they were going abroad,, he concluded they had,, on Second' thoughts,, prudently laid their Scheme. aside. After having sat Some time without hearing any mention of the intended visit,, Said, good naturedly,, to his wife — So, my 'dear, you do not purpose going to Sir thomas’s,, I fee."
+Mr. Selby, during the above dialogue, was looking over his men at work upon', his land. whcxt he came in to dinner, net Seeing his wife and daughters dreffed in any way as if they were going abroad,, he concluded they had,, on Second' thoughts,, prudently laid their Scheme. aside. After having sat Some time without hearing any mention of the intended visit,, Said, good naturedly,, to his wife --So, my 'dear, you do not purpose going to Sir thomas’s,, I fee."
 , 1
 ✓
-Yes indeed, I do, " replied she,, rather Serioufiy; then looking; down, as is thoroughly mortified at her disappointment, she added — but they are engaged today" "
+Yes indeed, I do, " replied she,, rather Serioufiy; then looking; down, as is thoroughly mortified at her disappointment, she added --but they are engaged today" "
 %
 * (
 4 « Oh!
@@ -423,7 +370,7 @@ It ■ I i I
 III ^2 The, jou rney; to; London.
 ■; LII
 ■list
-'ll st; Oh! thatst well— — very wellf’
+'ll st; Oh! thatst well----very wellf’
 ’ I '
 st cried he: they mean, by that hint,
 if ’
@@ -451,7 +398,7 @@ st company by anybody."
 III.. ■
 st Is my company refuled?" cried '
 i I j '. ■. ''f? ^
-I, ‘ she, in a passion — She was luckily, however,
+I, ‘ she, in a passion --She was luckily, however,
 hindered from going on, by tfiest [I:.. arrival
 ij;.. V ^ V ^ \ f
 jt ' VA '
@@ -502,7 +449,7 @@ house. It was indeed, at the Same time, 'highly debated at the baronet’s, whet
 When Mrs. selby’s card vas brought
 » '
 to Lady Lumley, she started, and cried,
-A card! from whom, John — Let
+A card! from whom, John --Let
 *
 me see it, " added she. Snatching it from him, not doubting but that it contained an invitation to Some rout, or,
 'f
@@ -524,10 +471,10 @@ iki
 *. « f. >
 ■ jl 36 The journev TO London.
 I 'j i
-!i I. Poh! — a farmer’s wife and
+!i I. Poh! --a farmer’s wife and
 rji' ‘S daughters I " replied my Lady —
 j!!, ■ '
-i Here, take away the card — I am en!
+i Here, take away the card --I am en!
 !
 it
 M
@@ -559,14 +506,14 @@ could make nothing of it, had stuck it up in a window, to prevent its being lost
 Taking the card down. Sir Thomas, read it.
 When my Lady appeared, he Said to her, Who are these Selbys? I do not remember to have Seen them here
 *
-— and you mvtx, mll See them here, " replied she — b am: not reduced ‘‘ quite So low as to receivie. wisits from farmers wives and daughters./’ >
+--and you mvtx, mll See them here, " replied she --b am: not reduced ‘‘ quite So low as to receivie. wisits from farmers wives and daughters./’ >
 ■. '' j
 It matters not much in the coun
 I ^
 try, " Said Sir Thomas; they may
 I '' I J "
 divert us; anything for variety.
-1 am not of that opinion, Sir Thp ^ mas : — I do not chuse to mix with
+1 am not of that opinion, Sir Thp ^ mas : --I do not chuse to mix with
 ’' ' J ')
 'low people anywhere."
 Burr
@@ -727,9 +674,9 @@ c
 I
 i
 }
-Still Lady lumley’t pride kept her from yielding to the inclinations of Sir Thomas, and her daughters,, with whom she Sat down to a joyless parti quarri. After having pouted and. fretted away the dullest of all dull evenings, at the j card table — though the weather was So
+Still Lady lumley’t pride kept her from yielding to the inclinations of Sir Thomas, and her daughters,, with whom she Sat down to a joyless parti quarri. After having pouted and. fretted away the dullest of all dull evenings, at the j card table --though the weather was So
 i very inviting,, either for riding or walking,
-that few. people, neither blind nor lame, could have resisted the desire of enjoying it abroad — she consented to let ' the creatures come : she could not, however,
+that few. people, neither blind nor lame, could have resisted the desire of enjoying it abroad --she consented to let ' the creatures come : she could not, however,
 be prevailed on to Suffer a card to be written to inform them of the honour ..." she
 I
 z'
@@ -742,7 +689,7 @@ t
 . 43-
 • %
 she intended them. She only Sent the Servant with a verbal message, next day, delivered in a manner extremely concise.
-Lady Lumley will be at home, " — unaccompanied with any apology, or compliment of any kind.
+Lady Lumley will be at home, " --unaccompanied with any apology, or compliment of any kind.
 . Ishis strange mode of proceeding, as it appeared to the Selbys, Somewhat: staggered them, at first: the message was by no means explicit: there was no mention made of the young people on either fide. The selby girls were difr concerted : yet, though they had been lulled into an almost perfect indifference about her ladyship’s acquaintance, in consequence of her delay, this .Summons roused them, and made them again eager to go. They were greatly at a loss, indeed,! about the propriety of going, but they wished to attend their, mother.
 st’h ' Fanny,
 - ' s
@@ -889,8 +836,8 @@ I fore, reddened, and drew up a little;
 her girls followed her example. The Lumleys Smiled at each other. Lady Lumley pushing her playfellow aside,
 : J condcicended to ask imrs. Selby if she
 I had lived a great while in that part of
-', the country — what families were near
-j them — whether there was any affem
+', the country --what families were near
+j them --whether there was any affem
 L; bly.
 I
 i
@@ -1084,7 +1031,7 @@ newest manner of dressing the hair and •putting on caps, which was fo totally 
 glasses at Lumley place. Their caps,
 compared with those worn by the miss
 /
-Lumleys, and very .becoming, appeared old-fashioned, and forlorn in their eyes: their stays, also, were ridiculously easy, and frightfully low both before and behind : their gowns were odioussy off their necks, with monstrous wide flounces, and little shallow ruffles — In short, they felt themselves extremely awkward, and. allsthe way home in the coach talked
+Lumleys, and very .becoming, appeared old-fashioned, and forlorn in their eyes: their stays, also, were ridiculously easy, and frightfully low both before and behind : their gowns were odioussy off their necks, with monstrous wide flounces, and little shallow ruffles --In short, they felt themselves extremely awkward, and. allsthe way home in the coach talked
 of
 .k •
 . 53^
@@ -1092,7 +1039,7 @@ of
 of nothing but the elegant style in which: the miss Lumleys wxre dressed; wishing very much, at the Same time, ta imitate them, not being able to endure
 their own caps, See. Scc Scc
 #
-to Mrs. Selby, she was by no means like her daughters, with regard to their wishes fo imitate their new acquaintance : she returned, indeed, with a strong aversion to everything she met with at home, and with a Superlative contempt for her husband;; she believed — for the Lumleys, while they won her money, were particularly civil to her — that she made as good a figure ' as Lady Lumley herself did, if not a better one: and with respedl to her dress and her house, she was determined to’' make them both as like the abovementioned lady’s as poshble. The miss
+to Mrs. Selby, she was by no means like her daughters, with regard to their wishes fo imitate their new acquaintance : she returned, indeed, with a strong aversion to everything she met with at home, and with a Superlative contempt for her husband;; she believed --for the Lumleys, while they won her money, were particularly civil to her --that she made as good a figure ' as Lady Lumley herself did, if not a better one: and with respedl to her dress and her house, she was determined to’' make them both as like the abovementioned lady’s as poshble. The miss
 D 3^ Selbys,,.
 A
 isth n - L
@@ -1125,10 +1072,10 @@ II had not an allowance Sufficient to enable
 id ^ '
 II them to purchase just what new orna
 I ments they pleased, and as they could
-I not, indeed — had they been sh enabled,
-il — procure them, the next town being
+I not, indeed --had they been sh enabled,
+il --procure them, the next town being
 LI Several miles from them, and not a fa
-|| one — they could only, in fb ob
+|| one --they could only, in fb ob
 sture a part of the country, give their
 1 ' ( - ■■
 things the true London air, by n§w make
@@ -1197,10 +1144,10 @@ iii' ';
 passed at Lumley place, contented himself With telling,. imrs. Selby and his daughters, that they were all. returned, very grave from their visit..
 Mrs. Selby took him up immediately,, and quite in a laconic manner.
 ft
-People of fashion, !* Said she, are not always laughing, and making a noise, whatever may think — For.
-my part' — I know better."
+People of fashion, !* Said she, are not always laughing, and making a noise, whatever may think --For.
+my part' --I know better."
 \
-Mr. Selby bore this reproof with wonderful patience; and then turning, to his eldest, daughter,, Said — Why,.
+Mr. Selby bore this reproof with wonderful patience; and then turning, to his eldest, daughter,, Said --Why,.
 child,, you look like a, Friezeland hen:, your hair is curled’ So much,, that it is quite unnatural; Polly." —
 laying.his finger on one of her curls..
 r
@@ -1256,7 +1203,7 @@ hi' ' ^
 il iii
 j
 I III Indeed !" replied the old gentle
-llip shan, looking earnestly at her — What
+llip shan, looking earnestly at her --What
 II. have
 i LI
 Ml
@@ -1293,7 +1240,7 @@ I i! if i
 llfl Then turning to his wife, he added.
 ni still: ir; t ^ T
 I i I j II j
-ilillil ’ You know I was always very much i|j|| against this visit, Mrs. Selby — (for I
+ilillil ’ You know I was always very much i|j|| against this visit, Mrs. Selby --(for I
 j [ij 11 '■
 stl shppole you cannot bear to be called
 l ti))
@@ -1312,9 +1259,9 @@ I but you have a low way of expressing
 ! yourself, you know."
 j V Z -- -- -- -- rd! Madam, " exclaimed Mr.
 I Selby (though he never Swore but when
-he was uncommonly provoked) Z — s!
+he was uncommonly provoked) Z --s!
 I Madam, I hate all people of fashion,
-especially people who talk Such con nonsense. D — n it! do you
+especially people who talk Such con nonsense. D --n it! do you
 III ' ■ think
 
 think I will not call the girl what I ‘ please? Let Sir Thomas call his what he likes, thacs no to me: I and my children are in a very different Situation of life,
@@ -1385,7 +1332,7 @@ Well!" Said Sir Thomas, turning to my Lady, before they were hardly out of heari
 %
 Yes, " replied her Ladyship, counting her winnings., I have piddled a , little: two guineas and a half is pretty well to begin with; but I shall
 , ft
-never endure the strange vulgarity of the creatures: the fulsome civility of the fat mother, and the awkward beha viour of the gaping girls — How they
+never endure the strange vulgarity of the creatures: the fulsome civility of the fat mother, and the awkward beha viour of the gaping girls --How they
 were dizened out! How strangely they affect to be well dressed, at the same time that everything about Them is out of taste! Never did 1 see Such a total ignorance of dress indeed: but I. believe
 IK Vo I
 f, Nft j J
@@ -1426,22 +1373,22 @@ II
 '-1 I; I - i
 III Handsome?" cried my Lady, rc
 I peating that word, with a Sarcastic kugh,
-ill while the Mils Lumleys sheered — Well!
+ill while the Mils Lumleys sheered --Well!
 • i
 ; j
 ill I should never have thought of their
 ii l’ ^
-III being handsome, of all things — two
+III being handsome, of all things --two
 I: : j
 ; | shch coarfo, overgrown, blowzy crea
 lljjfji : ^
-III tures — they look as if they were just
+III tures --they look as if they were just
 if: taken from their shther’s form, where
 ; !jb! ^
 1; they have shttened from their inshncy,
 I to this hour, with the pigs and poultry.
 , IL j i
-I — Heaven defend me from hearing
+I --Heaven defend me from hearing
 ill f^ shch
 
 «
@@ -1449,7 +1396,7 @@ Such vulgar wretches called handsome I No! there is nothing can. make peo, pie, 
 In the conclusion of this Speech, the two Mils Lumleys most cordially joined, and declared that they never Saw two girls who knew less of fife than the, miss Selbys.
 t
 'N.:.
-How they stared! ’* Said miss Lumley— — thought they would have dfe^
+How they stared! ’* Said miss Lumley----thought they would have dfe^
 voured me with their eager eyesr —
 When Sir Thomas or rhylady called me Miss, they started almost out of their chairs, as if they had never
 heard the word in their lives."
@@ -1466,7 +1413,7 @@ I ti I ^ ^
 I deed, be very odd if they should; for
 j I am Sure their appearance would not
 I gain it from anybody. I never Saw
-i i two more ordinary girls — handsome,
+i i two more ordinary girls --handsome,
 I indeed!"
 i; 1
 ! •
@@ -1598,8 +1545,8 @@ III I jl Sooner cast his eyes on his daughters
 iiiil'i'i :!, _
 1!| than he perceived the Sudden transform'
 jl ation in their appearance, and exclaimed,
-— heyday! What is the mattei ‘‘ now, girls? What? are you turned rope dancers; by sticking up your heads fo high, and dressing your feet So low?"
-Molly replied, with a toss of her |jj|| head, — La! Sir! how - you talk —
+--heyday! What is the mattei ‘‘ now, girls? What? are you turned rope dancers; by sticking up your heads fo high, and dressing your feet So low?"
+Molly replied, with a toss of her |jj|| head, --La! Sir! how - you talk —
 I i We have only put our things on in
 n I' the fashion." ’
 'I II f ^
@@ -1614,14 +1561,14 @@ _ \
 . 71
 %
 If that is the fashion, " answered he, it is a very unbecoming one, I
-am Sure. — Why, polys hair is too far above her forehead by a quarter of a yard; and fans cap looks like ‘‘ our old steeple yonder, only the wea there cock is inverted, and put under it, instead of being atop."
+am Sure. --Why, polys hair is too far above her forehead by a quarter of a yard; and fans cap looks like ‘‘ our old steeple yonder, only the wea there cock is inverted, and put under it, instead of being atop."
 By these jocular remarks she thought ^ to laugh them out of a mode of dress which he, with all V men of sense and judgement, could not but look upon as highly preposterous. The young Ladies, however, who were chagrined at
 his finding fault with what they believed
 ,,,.
 'to be both becoming and genteel, appeared mighty grave.
 V
 I
-miss Fanny Said, — I think. Sir, my Sister Molly never looked So well
+miss Fanny Said, --I think. Sir, my Sister Molly never looked So well
 f
 ia
 ipispii I
@@ -1681,7 +1628,7 @@ V
 . 73
 Softly to himself, that she was, indeed, old enough to be he got nothing
 by his muttered remark, as his wife and his daughters unanimoussy, in consequence of it. Sealed up their lips during the whole dinner.
-.Soon after the cloth was removed Mr. Selby left the room, muttering again — Women will have their own « way, "
+.Soon after the cloth was removed Mr. Selby left the room, muttering again --Women will have their own « way, "
 In less than a fortnight Mr. Selby found', in Spite of all his remonstrances, and petitions too (for he condescended to entreat his wife, when he remon
 a
 strated in vain) the economy of his fast
@@ -1770,7 +1717,7 @@ i*iii Iilii
 iii; with; but his assertionsi, delivered with
 { I a very conlequential air, rrvade a strong
 i impreshon upon Mrs. Selby, who now
-151 found her wants multiply sh fast — wants
+151 found her wants multiply sh fast --wants
 ■ststdl'' ■.
 y;;, numerous as those of her daughters —
 II vthat had she been postested of twenty
@@ -1893,7 +1840,7 @@ to feel her consequence, before the visit was half ended.
 .lift.
 This visit was finished pretty much, in the Same manner as the foregoing; one
 kiy (D
-■ — The Selbys retired losers— — they
+■ --The Selbys retired losers----they
 E 4 were
 * **
 s
@@ -1922,7 +1869,7 @@ something might certainly be made of such'
 '•
 acquaintance as these, if people had but fonfo to conduct themselves in a proper
 'T
-ili manner. — I never was fo lucky, "
+ili manner. --I never was fo lucky, "
 I i! j: continued she, as to be thrown into
 I - i;. LI ■ 4
 |; i istli; ‘, ' '
@@ -2074,7 +2021,7 @@ Th jou6.net to'lonbosh. 85
 I
 Mrs. Selby, overhearing this answer,
 - t
-bounced into the room, and Said, she did not know what he meant by comfortable; that he talked in a strange manner; that she had not the least idea of the word comfortable', that it was a very old-fashioned word, and that nobody thought of comfort. — Taste,
+bounced into the room, and Said, she did not know what he meant by comfortable; that he talked in a strange manner; that she had not the least idea of the word comfortable', that it was a very old-fashioned word, and that nobody thought of comfort. --Taste,
 elegance, and magnificence, " conti.
 .
 nued she, are the fashionable expres Sions: people who are in a style of
@@ -2147,8 +2094,8 @@ is ' !ih
 I; III
 ." 8y
 CO desirable terms. So Mrs. Selby conceived hopes of worrying her husband out of what she could not get out of him by persuasion. She knew that he was very Strongly attached to a country life; that there was nothing he detested more than the bustle of company, with
-the attending expenses; that he would have his own nasiy way— — she Called it — if he could; and that she could hope
-to carry her point but by one way of proceeding — by making his life uneasy, by oppostng him in everything, and by obliging him to part with his money to purchase the peace which he enjoyed, before his family had entertained notions So unsuitable to their situation in life : a Situation in which he was desirous of Seeing them remain, as he could not afford to place them dna more elevated Iphere; nor indeed did he believe
+the attending expenses; that he would have his own nasiy way----she Called it --if he could; and that she could hope
+to carry her point but by one way of proceeding --by making his life uneasy, by oppostng him in everything, and by obliging him to part with his money to purchase the peace which he enjoyed, before his family had entertained notions So unsuitable to their situation in life : a Situation in which he was desirous of Seeing them remain, as he could not afford to place them dna more elevated Iphere; nor indeed did he believe
 that
 ;.. jin*' I r J i; -11- *■,.
 Liliy^ i c|'i!r: r;.
@@ -2182,7 +2129,7 @@ II shperior to their birth and fortune.
 I ip
 If! I With these abshrd ideas floating II
 i I Ilj her head, Mrs. Selby Soon became in
-Ij I I fopportable to her husband— — wa
+Ij I I fopportable to her husband----wa
 lijll I continually asking him for money; tell
 ii ing him that she could hot do without
 ii I and that, by refusing her the shms which
@@ -2194,10 +2141,10 @@ y
 portunity, of fettling their daughters: to advantage : am opportunity which might never offer against
 was in vaim that Mr; Selby told his wife he had no desire to Settle his girls in any other way than that in which
 I
-they had been educated — And Sup.
+they had been educated --And Sup.
 ‘h posing, " continued he men In
 stations Should make advan tageous offers to. thein,. of which I not see the Smallest probability —
-I shall be one of the first to oppbfe their acceptance of them, as I very well know that neither birth nor wealth can ensure happiness — I had much rather call a mam in my own
+I shall be one of the first to oppbfe their acceptance of them, as I very well know that neither birth nor wealth can ensure happiness --I had much rather call a mam in my own
 of life fon, than, a. man who,
 thinking himself Superior to me in'
 «
@@ -2369,8 +2316,8 @@ more discreet than Ihe would otherwise have been.
 When Tom bade Fanny adieu, he took care that his parting words Should be uttered at her father’s house, and not at his. He expressed much concern at the Separation, and a kind of anxiety about
 finding her. as much affected by it.
 «
-She artfully enough replied — I have ho reason to suppose, Sir, that you will be affected by any change in. me
-When he warmly assured her shat a, change in her would give him considerable uneasmess, Ihe answered — ‘‘ Tender Speeches alone will not be convincing to me.. There is but onie way of con m of your Sincerity."
+She artfully enough replied --I have ho reason to suppose, Sir, that you will be affected by any change in. me
+When he warmly assured her shat a, change in her would give him considerable uneasmess, Ihe answered --‘‘ Tender Speeches alone will not be convincing to me.. There is but onie way of con m of your Sincerity."
 vol. I. F ^
 ife!;, ■.
 !: |:; r!|s; !j
@@ -2398,7 +2345,7 @@ i j she was forced to be content; and tolerably
 content she was with it, as her sister had not been half fo much encouraged to imagine herself beloved by
 I the Captain..
 I Molly was not near fo amiable as
-f^nyr — Many connoisseurs in beauty * reckoned
+f^nyr --Many connoisseurs in beauty * reckoned
 m * * ♦
 ft
 , gg reckoned .her the handfomell: of the two;
@@ -2577,7 +2524,7 @@ Where are you going?" said he and what makes you look sole rious ?"
 . After a little hesitation, he told him, on his repeating his questions, all that had passed between him and his daugh,
 I
 ter; concealing only the unusual pride with which he thought Ihe had treated him, but lamenting his inability to touch her heart.
-Why surely— — the fehlible Selby — V surely stie cannot have refused ! Such an offer, and such a man too! You have certainly mifunder^
+Why surely----the fehlible Selby --V surely stie cannot have refused ! Such an offer, and such a man too! You have certainly mifunder^
 F 6 stoosh
 —
 9
@@ -2595,7 +2542,7 @@ II I ll.bn Jl
 I III ral coynels of a girl upon the Erst
 |»||: ||; ji’l :
 iiijj proposal of such a nature, for a dei
-I! nial. — But never mind it, lewson :
+I! nial. --But never mind it, lewson :
 I I dare Say she will come to: I will
 I talk to her : it is impossible for a girl
 I to stand So m ich in her own light, as
@@ -2642,15 +2589,15 @@ Journey. TO London,
 II Iilii V sober and modell, and deserving
 one of the best wives in the world V
 I Fanny, both Siirpriled and vexed
-'being fo attacked by her father, colour ed up to the eyes, and replied — do not like him. Sir; and, they ‘‘ for, I thought it right sto refule him
-II.. Not like him !• — not like him
-answered mr. Selby : is that poflibh Why,. you are really a prodigio nice Gentlewoman — and pray wh can you find in lewson to dislike??
+'being fo attacked by her father, colour ed up to the eyes, and replied --do not like him. Sir; and, they ‘‘ for, I thought it right sto refule him
+II.. Not like him !• --not like him
+answered mr. Selby : is that poflibh Why,. you are really a prodigio nice Gentlewoman --and pray wh can you find in lewson to dislike??
 I I j V Everything, " replied Ihe —
 1 ill I neither like his person, manners, n
 j hi I situation inlife."
 !| h il I i Ij' ^
-II orar And why not ?" — laid Mr. Selb
-I eagerly — why not? his person
+II orar And why not ?" --laid Mr. Selb
+I eagerly --why not? his person
 j ' -, ' ham
 , im
 ‘‘ handsome,. his manners are, I am Sure, very agreeable; and as to his Situation, it is the most honourable and desirable of any in the kingdom. Who are fo beneficial to society, who are fo useful to their fellow-creatures, as those who Supply us by their dili gence and labour, with the neceffa*
@@ -2661,7 +2608,7 @@ It may be Jo, " answered She, pertly; but 1 do not choose to marry at farmer’s
 i
 * ft ‘
 A
-heyday— — pray what do you expedta Duke
+heyday----pray what do you expedta Duke
 .t •
 Sure, papa, " said she, bursting into tears, there is a great difference ‘‘ between Such a low man as Mr. Lew
 fon
@@ -2672,9 +2619,9 @@ I !ii. ', ^
 P fjlf j. ' ' -
 111#
 I II
-J jil I ■ You do ?'■ — Upon' 'my word Aotir
+J jil I ■ You do ?'■ --Upon' 'my word Aotir
 1 III! " • ■ '
-ill demand is a very modest one. — But,
+ill demand is a very modest one. --But,
 III I let me tell you, ’■fdnriy, 'you'wiir be
 Ijil mirch ' hstppieri with young Lew
 i i‘ 1 ^ ^
@@ -2735,7 +2682,7 @@ ill ‘V that we never halli and is the girls
 vjli'j 1*1^: jp; *
 are not downright fools, they will be 01 ny opinionv
 II. Aye! -- r you have quite spoilt
-— quite turned their heads they will never be good for anything again; but since it is foi have done; I give them up. I should have been glad to settle them decently in the world; shut I see it zv not to she done,, as they will never think of V marrying any men but those whom thty cannot get at; and y«?ho would make them miserable, could they be married.to, them. It is indeed more,, V likely that nobody will give himself
+--quite turned their heads they will never be good for anything again; but since it is foi have done; I give them up. I should have been glad to settle them decently in the world; shut I see it zv not to she done,, as they will never think of V marrying any men but those whom thty cannot get at; and y«?ho would make them miserable, could they be married.to, them. It is indeed more,, V likely that nobody will give himself
 I il any trouble about them in that way :
 il and So, Mrs. Selby, as this is your
 ill V own doing, you must even take it Sori
@@ -2958,7 +2905,7 @@ II j; made the wilhed fbr impreshon of S(
 I I ty over all other women he had hither
 11 beheld, and freely owned that he shou
 I I I reckon the man truly happy who
-jlj capable of gaining her affections— —
+jlj capable of gaining her affections--—
 I sisters laughed out at the serious ma
 I ner in which he spoke.. Fanny told hi
 I I she supposed, from what she h
@@ -2990,7 +2937,7 @@ I They may, " answered he, but, ‘‘ they would show more discretion by
 .4
 %
 'I;
-Nay — if you are fo very discreet il ‘‘‘ you will never, succeed with Miss..
+Nay --if you are fo very discreet il ‘‘‘ you will never, succeed with Miss..
 Lumley. I have heard her say a
 %
 thousand times that she hates your dtf creet people."
@@ -3035,13 +2982,13 @@ I
 1 4
 , izj »
 As to you, .Maria, I suppose he would not have yoti married at all,
-but keep you at home to look after the pigs and chickens. — But this brother of yours, my dear. — Why didn’t you bring him with you?
+but keep you at home to look after the pigs and chickens. --But this brother of yours, my dear. --Why didn’t you bring him with you?
 Here is no man, you know, in this place, and where there is a scarcity must: take up with what we can find."
 /
 r
 Indeed, Miss Lumley, " said Fanny, who was fond of Charles, I
 , I
-do not think my brother despicable— — •
+do not think my brother despicable----•
 he may not be quite fo polish as the men in London, yet I dare say there are many women who would
 love Charles exceedingly."
 /
@@ -3053,7 +3000,7 @@ Cil
 Itiji my, who now began to imagine that Mist
 III Lumley was as much pleased with her
 I brother, as he was with her;) May be
-i fo — Some women may like shabby Par
+i fo --Some women may like shabby Par
 who cannot get any other meh, i but people who have beauty and birth, "
 I continued she, shatching up her head
 still higher, may have plenty of admirers, lovers without number."
@@ -3088,7 +3035,7 @@ to Mrs. selby’s on purpose to put themr, selves in his way. The attentions whi
 I
 they paid to him were not disregarded. He very clearly perceived them, but he
 found himself only inclined to return i the attentions of Charlotte. He soon
-indeed contrived to let her see that he distinguished her from her lister. — Flis: preference was fushcient to make her de r firous of encouraging him, and she, in a. little time, by not forbidding him to
+indeed contrived to let her see that he distinguished her from her lister. --Flis: preference was fushcient to make her de r firous of encouraging him, and she, in a. little time, by not forbidding him to
 G 5 be
 I
 I
@@ -3107,16 +3054,16 @@ I I II; greeable to her. This encouragement of
 I, °
 course produced familiarities between || them. They trifled away a great deal
 I of their time together, and poor selby’s
-heart was at length irrecoverably loll, He'conficlered — but he considered when i it was too late — that he could not, with
+heart was at length irrecoverably loll, He'conficlered --but he considered when i it was too late --that he could not, with
 I put the, greatest absurdity, think of mis:
-! Lumley in any Ihape. — It is idle tt
+! Lumley in any Ihape. --It is idle tt
 I ^ suppose that Sir Thomas will evei
 I content to her marrying a young Sef
 I i low who has no fettled income; ant
 lllll I cannot, on any account, bring my
 I' 'U' ^
 I j self to take advantage of her conde
-!! scensions." — The little Sreedoms, how
+!! scensions." --The little Sreedoms, how
 II ever, with which Charlotte indulge
 ij her academical lover, relying on his rc
 I; fpeft, fbmetimes inflamed the passion
@@ -3325,7 +3272,7 @@ p
 t
 prelted, declared herself very much con.. at the .idea of a separation. He
 %
-told her there was but one way for her to prevent it. — Go to town with me,
+told her there was but one way for her to prevent it. --Go to town with me,
 Fanny, and put yourself under my protection."
 To this procedure, however,. Ihe made a strong objedhon : she even chid him for the mention of it, and blamed herself exceedingly for having, by her behaviour, given him reason to believe
 that it was postible for him to suppose:
@@ -3347,7 +3294,7 @@ j winter in London also."
 ^1 Fanny, though by no means in a plea
 Igjlj font humour, could not help stniling at
 in what she looked upon as the most impro
-I bable of all improbable schemes— —
+I bable of all improbable schemes--—
 Nothing upon earth, I am Sure, " Said
 j she, will make my father quit his
 I farm, and live in London."
@@ -3358,7 +3305,7 @@ I
 %
 ft
 . 141
-with a request of this kind— — is a pity to keep two, such fine girls, as you and your sister are, confined in fo retired a place, without letting you see a little of life, and giving you both an opportunity at least to make your fortunes."
+with a request of this kind----is a pity to keep two, such fine girls, as you and your sister are, confined in fo retired a place, without letting you see a little of life, and giving you both an opportunity at least to make your fortunes."
 The careless ease with which Lumley mentioned Fanny with her sister, upon
 ft
 this occasion, perfectly convinced her that he had not the least intention of marrying her. She figheel again; yet llie thought with him, that it w" as a pity stie and her sister Should lose the golden opportunity he mentioned.
@@ -3366,7 +3313,7 @@ The first time Fanny happened to be alone with her sister, she repeated what
 Lumley
 
 Lumley had said to her concerning them in a negligent manner.
-'Molly, not having had the smallest idea of the Lumleys leaving the country, was quite struck at the intelligence, and exclaimed — Good God! This place, will be absolutely a desert when thy
+'Molly, not having had the smallest idea of the Lumleys leaving the country, was quite struck at the intelligence, and exclaimed --Good God! This place, will be absolutely a desert when thy
 are gone. We must persuade our mother to go too."
 You may easily persuade my mo " said Fanny; but, I think, Ijil my father will never be prevailed
 Ijj upon."
@@ -3379,7 +3326,7 @@ ijl at least" "
 . 143
 As soon as the last word was out of her mouth, stie ran to Mrs. Selby, and informed her that they Should soon lose Sir Thomas and Lady Lumley.
 /
-Mrs, Selby, though She was much hurt by this information, was willing, like many other people, to push'off the evil day; and not chusing to believe what was So very disagreeable to her, repsied — It is impossible— — down on purpose to live retired, and to Save money; it is not at all likely, therefore, that they should return to London."
+Mrs, Selby, though She was much hurt by this information, was willing, like many other people, to push'off the evil day; and not chusing to believe what was So very disagreeable to her, repsied --It is impossible----down on purpose to live retired, and to Save money; it is not at all likely, therefore, that they should return to London."
 Molly answered, I am pretty Sure, ‘‘ that my intelligence is true, as my
 Sister received it from Mr. Lumley. —
 «
@@ -3411,22 +3358,22 @@ Lady Lumley, ever averse to any connexion with Mrs. Selby (whom she had only end
 i O
 to converse with in the whole place. and because it was imposhble for people to live always together, without speaking to Somebody) flared at this address, the freedom of which she thought pretty extraordinary. Looking full at the
 Speaker, with all the contempt she felt
-for her, she Said, — Surely, Mrs. Selby,
+for her, she Said, --Surely, Mrs. Selby,
 vol. I. H you
 »«■
 \
 4
 II .
 you do not know what yoii Ere ■ talking of’! You go to London!"
-^ Yes, Madam — Why not? Why
+^ Yes, Madam --Why not? Why
 should I not go to London with my • friends, as welf .as your Ladyship y with yours PT
-Why really, " said Lady Lumley, reddening at rlie bare fiippofition of being thought upon a footing with Such low creatures — Keally, Mrs. Selby, I do mot apprehend that you and I are alike in any one respedt: behdea, I should not have thought of your going to London at all."
+Why really, " said Lady Lumley, reddening at rlie bare fiippofition of being thought upon a footing with Such low creatures --Keally, Mrs. Selby, I do mot apprehend that you and I are alike in any one respedt: behdea, I should not have thought of your going to London at all."
 O O
 Yes, my Lady, I do .think of go ing. Why should I and my children be buried alive in this dismal part of the country, more than other peo
 dic ^
 
 pie? I intend to let my girls see the world as well as other folks."
-Oh! to be sure— — you can get
+Oh! to be sure----you can get
 I
 Mr. Selby up to london, " replied her Ladyship coolly, pleasures are to be met with there for all kinds of
 ft
@@ -3490,7 +3437,7 @@ t
 f
 Mr. Selby was very busy with his mowers when his eldest daughter came to’ bring him to her mother. He was exo
 
-tremely unwilling to obey the Summons, as he knew that his company was Seldom desired but when Something was to be got out of him He hung back, and and said— — well — FU come by and by, " '
+tremely unwilling to obey the Summons, as he knew that his company was Seldom desired but when Something was to be got out of him He hung back, and and said----well --FU come by and by, " '
 t «
 w. '
 My mother wants to speak with you direduy, " said Charlotte,
@@ -3517,10 +3464,10 @@ f
 jiii' 150 .
 iilii When Mrs.. Selby Saw her husband,
 ||tei at a distance, ' advancing, she exclaimed
-ilii eagerly — Come hither, Mr. Selby; Iftfll! come hither — I want to talk with
+ilii eagerly --Come hither, Mr. Selby; Iftfll! come hither --I want to talk with
 y 1!!
 nj S ^ * %
-you. — Sir Thonias and Lady Lumley
+you. --Sir Thonias and Lady Lumley
 iii are going to London with their family
 llilp for the winter, and I think we may
 'ili. f ^ J
@@ -3537,10 +3484,10 @@ Flere she ceased Ipeaking, and waited for his answer.
 LI attitude, at the concluiion of the above
 speech, is utterly imposhble. Fie liar
 
-I CD — he started back: he opened his mouth
+I CD --he started back: he opened his mouth
 I Several times to Speak, without being
 j able to articulate a Syllable. At lasc he"
-I made fhist to Say — To London, Mrs.
+I made fhist to Say --To London, Mrs.
 ** Selby? Have you quite lost your senses ***
 Lost my senses!" answered She
 ^.
@@ -3585,25 +3532,25 @@ py, truly, ’ because we must: do every.
 Mr. Selby, " said she, do ^
 not abuse Sir Thomas and Lady
 Lumley; - I'am: sure they are very genteel people."
-Aye — but Such genteel people, as.
+Aye --but Such genteel people, as.
 you call them, ruin Such plain people as we were, Mrs.. Selby, before these came among us."
 I
 t
-Well! — I know it is to no purpose
+Well! --I know it is to no purpose
 %
 talk to you about these things.
 You don’t understand them; you should, therefore,. let us alone, who. do."
-Yes — I may let you ruin, me, yonr ** self, and she girls into the bargain, I
+Yes --I may let you ruin, me, yonr ** self, and she girls into the bargain, I
 'H 5 supr
 %
 /
 (
 
 jl j but I shall not, I asture*
-r — IS I cannot keep my wife in or
+r --IS I cannot keep my wife in or
 li der, I will, at least, take care of my
 jl ‘‘ children." '
-j 1. — d! what harm can come tonnes
+j 1. --d! what harm can come tonnes
 I i in going to London, papa ?" Said'
 I Maria. Do not people come and go
 I j ' every year, without being at all the
@@ -3616,7 +3563,7 @@ il Fanny, it is for want of going among
 . 155
 *
 tfiofe who can inform us; and if we were to live in London one winter, we Should return much improved."
-Improved! Yes — improved in vice and folly, I dare say; fo you shall" " where you are."
+Improved! Yes --improved in vice and folly, I dare say; fo you shall" " where you are."
 Indeed but they Shall notv said Mrs. Selby : though you take no care ‘‘ of your children, and will not puc them in the way of making their for ; 1, who am their mother;;
 4
 know that it is my duty to introduce them into the world, and to make; them acquainted with polite life."
@@ -3643,11 +3590,11 @@ ja iheering laugh from Mrs. Selby
 il I now almost: provoked her naturally pa
 |||| husband to become absolutely in a
 Ijpf passion; he contented himself; howe
-11 ver, with only Saying, — , What do
+11 ver, with only Saying, --, What do
 you grin at f I do not recoiled: !: that
 i have Said anything in the least ridi
 111 ** culous."
-I I > ' No to be sure— — are always
+I I > ' No to be sure----are always
 I Ij in the right, " answered Mrs. Selby :
 Ilii ** your talking is to no purpose. I
 11 P know very well what I am about,
@@ -3664,13 +3611,13 @@ and I will have my own way : you, ■ will have me to thank by and by, |
 for the making of you and your fa
 ft
 • i b
-Z -- -- -- -- ds, Madam !" — Here his
+Z -- -- -- -- ds, Madam !" --Here his
 fi
-patience was quite exhausted - — |
-run on at this rate — You would make ‘‘ a paribn swear— — tell you, you will I
+patience was quite exhausted - --|
+run on at this rate --You would make ‘‘ a paribn swear----tell you, you will I
 11
 I A
-ruin us all. — We only want to be j
+ruin us all. --We only want to be j
 what we are; that is, I do not want #
 I
 to be otherwise;; would the girls,
@@ -3721,9 +3668,9 @@ mn
 1
 . 159 I
 I
-ner — Yet, though me was shocked at |
+ner --Yet, though me was shocked at |
 the thoughts of their being kept mi |
-she did not look upon such a provision for them in the atrocious light | it deserved — Having Suffered So much! herself, through her own folly, by be!!
+she did not look upon such a provision for them in the atrocious light | it deserved --Having Suffered So much! herself, through her own folly, by be!!
 the wife of a mam whom she ever • delpiled, she imagined that her daughters might be more happy as mistresses to men of rank and fortune, than as wives to farmers, even to gentlemen
 I
 farmers. She therefore continued to talk to her poor husband about the great designs she had for both her daughters, and the hopes fly had of procuring a very advantageous settlement for her fon; adding, that her girls would, she doubted not. Succeed in the world as, well as the Gunnings, and the Dutchels. of
@@ -3744,7 +3691,7 @@ m
 ; '
 LI 100 .
 II ff’ **
-ill always kept up in an obicure corner of ii the country. — In short, Mr. Selby, I
+ill always kept up in an obicure corner of ii the country. --In short, Mr. Selby, I
 lil will to London, whether you like -
 lil t f.y no "
 . It 01 no.
@@ -3775,7 +3722,7 @@ lodgings to her, j
 This freedom offended her Ladyship extremely.. Drawing up her head in a very lately manner, fly told her that she had applied to a very wrong personas all the people whom Jloe knew had large and fine houses of their own,
 o
 That may be, " ■ said Mrs. Selby, not in the least, disconcerted, So much had the thoughts of Ipending the winter
-in London raised her spirits— — I
+in London raised her spirits----I
 know that a great many*line people lodge in London; ay, and Members of Parliament, and Baronets too."
 Very likely, " replied her lady fiiip, but / am not acquainted with any Then turning from
 her,
@@ -3826,7 +3773,7 @@ II ungenteel. However, as Ihe found that
 j Mrs. Jefferson was not disposed to Serve
 ijll her in a better manner, Ihe determined
 I to make the best of the bargain made
-for her. — When I once come to lon ‘f don, I can change my lodging : let. ... nie
+for her. --When I once come to lon ‘f don, I can change my lodging : let. ... nie
 4
 e
 I
@@ -3834,11 +3781,11 @@ I
 . 165
 • 4
 me but get to fo charming a place,
-and all will go well — I shall then be able to look out for my self." She
+and all will go well --I shall then be able to look out for my self." She
 ft
 was chiefly puzzled how to procure from Mr. Selby a shm fushcient to defray the expenses of her journey, and to pay for her apartments. As to what would be requiflte for their subsistence, she imagined that it would not come to more in London than it did in
 t
-the country — We must eat, let us live where we will." — But fly never
+the country --We must eat, let us live where we will." --But fly never
 ft
 considered that a divided family mufl spend a great deal more than a united one. Everybody knows that half a dozen people can live cheaper together than separately
 \
@@ -3847,12 +3794,12 @@ She told him that it would be hut for
 1 ' " once',
 * N
  
-cnce -, and that, if he would trufi to her he would be amply, repaid. — I an ■ resolved hovrever, " added she, - n go, whether you like it or no: aru if I do not, the lodgings, as the; are taken, imifl; be paid for : we hat better, therefore, make the most o them, "
+cnce -, and that, if he would trufi to her he would be amply, repaid. --I an ■ resolved hovrever, " added she, - n go, whether you like it or no: aru if I do not, the lodgings, as the; are taken, imifl; be paid for : we hat better, therefore, make the most o them, "
 ': In this way, partly by scolding, anc partly by coaxing, Mrs. Selby carriet her point: but Mr. Selby could noi bring himself to consent to her Journey to London, without the greatest reluctance.
 While this important bullness was
-transadting at xt farm. Sir Thomas and his family — hurried as much by my lady — left Lumley place, and arrived II berkley sc]uare. — They only, took a fly
+transadting at xt farm. Sir Thomas and his family --hurried as much by my lady --left Lumley place, and arrived II berkley sc]uare. --They only, took a fly
  
-j ing leave of the Selbys, without getting ^ out of their coach. — Mr. i..umley indeed had a private interview with Fanny. Selby the night before, and Charles Seh bv also had an interview with Miss Lumley. Charles found a marvellous coolness in his companion: being on the point of returning to a place which swarmed 'With men, she became quite
+j ing leave of the Selbys, without getting ^ out of their coach. --Mr. i..umley indeed had a private interview with Fanny. Selby the night before, and Charles Seh bv also had an interview with Miss Lumley. Charles found a marvellous coolness in his companion: being on the point of returning to a place which swarmed 'With men, she became quite
 ft
 i indifferent about her young academical
 lover, who, 'by his father’s exprcss commands/was to go back to Cambridge, when he had seen his mother and filter
@@ -3890,7 +3837,7 @@ their lodgings. However, when they
 • \
 came to those lodgings, on the second floor, they were delighted with them:
 A » •
-they were transported to See So many people pass and repass: they wtre charmed with the noise and bustle in the street from morning tonight. — They were every moment amazed : yet they
+they were transported to See So many people pass and repass: they wtre charmed with the noise and bustle in the street from morning tonight. --They were every moment amazed : yet they
 were not fo deeply engaged by staring
 »
 as not to think of sending Charles to Sir Thomas To inquire how the family did, and to let them know that they
@@ -4025,7 +3972,7 @@ III '.
 m 4^/yf* \
 ‘ik. " -. • ' ^
 ^IH;!
-I Mrs. Selby and Maria — fbr fb Ihe determined
+I Mrs. Selby and Maria --fbr fb Ihe determined
 to call herself for the future —
 I now thought of nothing but how to pro i cuve some fashionable clothes, and to go
 to see everything that was to be Seem. Fanhyst thoughts were pretty much of
@@ -4073,7 +4020,7 @@ enough, but T fuppose they won’t make up in the present taste."
 1 4 Oh,
  
 II V ‘‘ Oh, dear Madam !" replied Mrs. i|j Jefferson in London only
-SI grow old by Ipeing seen— — is impos
+SI grow old by Ipeing seen----is impos
 II fible to keep any genteel conipany
 III here without a great change of
 I clothes: no genteel people' ever api
@@ -4183,13 +4130,13 @@ The. selby family had now been week in London; without finding t time lie heavy 
 %
 
 • %
-Just when all their things were come from the mantua makerst and miliinerst. Lady Lumley and the Miss Lumleys took it into their heads to call and see them, — fora little diversion
+Just when all their things were come from the mantua makerst and miliinerst. Lady Lumley and the Miss Lumleys took it into their heads to call and see them, --fora little diversion
 \
 
 ^. ft # •
 ‘ • 9 r
 . V '. - '.
-My Lady, reeolleding herself show ever, added — No — let sts stay till they have rigged themselves; w0 will ‘V then break in upon them fulhdrested,
+My Lady, reeolleding herself show ever, added --No --let sts stay till they have rigged themselves; w0 will ‘V then break in upon them fulhdrested,
 make them stistike everything they have bought, and put them to the expense and trouble of buying some like what they, see have on.
 ‘‘ For once, as I must make a few o visits in the City, I shall be in A iny fummer clothes, .which they have not seen, and which will lead them ‘‘ into a great mistake - serve to place them in a very ridiculous light :
 ‘‘ in such a light as they deserve to be
@@ -4243,7 +4190,7 @@ I
 corner of the room, all in her fear let and white satin, trimmed with the richest chenille that could be purchased, and curtefied in the most respedtful man ’ ner to her Ladyship, who hardly vouch lafed to honour her with a fingfe glance.
 f > • • ' *,
 As soon as she shad seated herself III the uppermost place; she cried, affecting to be quite out of breath, Really,
-Mrs, Selby, I am quite tired of climbing up fo many pair of stairs — I have never been used to such fa " *= she knew, however, at the same time, that she always step: upbn^ the Second story insherkley square, every
+Mrs, Selby, I am quite tired of climbing up fo many pair of stairs --I have never been used to such fa " *= she knew, however, at the same time, that she always step: upbn^ the Second story insherkley square, every
 night
 ii
 
@@ -4251,19 +4198,19 @@ ii
 r
 184 .
 #
-tiight of her life. — I cannot think
+tiight of her life. --I cannot think
 *
 how you came to chuse an apartment fb very high from the street."
 I
 'i
 I did not choose it myfeff, my Lady, "
 I • -
-'replied Mrs. Selby; but I was told — "
+'replied Mrs. Selby; but I was told --"
 I giving Mrs. Jefferlbn a reproachsul cast I of her eye, tltat there was no other.
 I ‘f to be got."
 i'
 wi
-, Oh!! — you are mightily mistaken, "
+, Oh!! --you are mightily mistaken, "
 I answered, her Ladyship: you have
 j vastly invpofed upon : nobody,
 ! ‘‘ of any kind of fashion, would think
@@ -4330,7 +4277,7 @@ I
 U air, who she was.
 *»
 • '* 1; ■ ' » ‘
-f Mrs. Selby answered— — Lady irt
+f Mrs. Selby answered----Lady irt
 the city."
 • r ✓ ■ ' •
 > # •*
@@ -4354,9 +4301,9 @@ ft i
 i.
 He is a very good sort of a man' Said Fanny Selby,, who wanted to fofceii'" matters. ^
 4
-, Ay — the man may be well enough
+, Ay --the man may be well enough
 f' '
-, his way — but I dare fey he follows’
+, his way --but I dare fey he follows’
 some low business
 \
 '( ' • - r ' ^ ' fy. '
@@ -4409,7 +4356,7 @@ N
 '... J
 with you.' I thought she was some exceeding low creature, by her ' idrsfs and manners.'"
 /
-— ' * * * ^
+--' * * * ^
 N
 To say the truth, my Lady, " replied Mrs. Selby, I am obliged to be civil to her. She hired these lodgings
 O O
@@ -4424,7 +4371,7 @@ most stinking part of the Strand.
 > »
 Faugh! .1 shdi be quite sick if I stay
 . .*
-. here, any longer. She herself has left a whiff of her hushand’s shop behind sher, fushcient to poison me. — You
+. here, any longer. She herself has left a whiff of her hushand’s shop behind sher, fushcient to poison me. --You
 «
 st must, therefore, exciife me, " continued she, rising; but, for heaven’s
 - « ^ sake,
@@ -4492,9 +4439,9 @@ i silks as Lady Ltimley and the Miss
 up, and worn once or twice, and then Serve the next summer in the country."
 This mariceuvre being fettled, Mr.
 ir
-Smith — fo the Gentleman who sat by
+Smith --fo the Gentleman who sat by
 m • *
-Maria at the play called himself— — sin; the second time since the commencement of his acquaintance.
+Maria at the play called himself----sin; the second time since the commencement of his acquaintance.
 To
 9
 ft
@@ -4505,12 +4452,12 @@ ft
 To him Maria took an opportunity to complain of the disagreeableness of their lodgings, and to let him know that she should go next day to look out for a better.
 I will accompany yon. Madam, if
 . »' ________________________________
-‘‘ you please, " replied he — Perhaps
+‘‘ you please, " replied he --Perhaps
 ft
 I may be able to ashst you."
 Accordingly he called upon the' Selby family. Mrs. Selby and Maria went with him: Fanny staid at home;
 Y.
-she was out of Spirits — fly had pined, indeed, ever Since her arrival in'tort don, because fly neither Saw Mr. lum lay, nor heard of him : she had expected him to fly to her, on his being' insormed of her comdng to town. The ' truth is, he was not in London when Are arrived, being gone a little way oiit of VOL. I. K town;
+she was out of Spirits --fly had pined, indeed, ever Since her arrival in'tort don, because fly neither Saw Mr. lum lay, nor heard of him : she had expected him to fly to her, on his being' insormed of her comdng to town. The ' truth is, he was not in London when Are arrived, being gone a little way oiit of VOL. I. K town;
 ft
 %
 /
@@ -4577,7 +4524,7 @@ I
 Fanny then gently touched upon the cool reception which her brother had met with in berldey fquare, and upon the pains his mother and filler had taken to put her family out of conceit with
 .m
 their lodging, with their acquaintance, with everything about them.
-He excused the reception her brother had met with, as well as he could, by saying that they kept fo much company in London, it was very difficult to find them ever disengaged; and that, in the world, people were obliged to pay an outward respeft to numbers whom they, in their hearts, defpised; adding, that cufiom, and indeed necessity, rendered such a conduct Sometimes unavoidable, though it was most commonly very disagreeable. — As to your apartment, my dear Fanny, " continued he, looks
+He excused the reception her brother had met with, as well as he could, by saying that they kept fo much company in London, it was very difficult to find them ever disengaged; and that, in the world, people were obliged to pay an outward respeft to numbers whom they, in their hearts, defpised; adding, that cufiom, and indeed necessity, rendered such a conduct Sometimes unavoidable, though it was most commonly very disagreeable. --As to your apartment, my dear Fanny, " continued he, looks
 3 ing
 /
 J
@@ -4594,7 +4541,7 @@ person of any fashion from: you."
 »
 *
 4
-What appearance would you have us make.?" replied she, with a melancholy air — • an appearance which we cannot shpport? My father, ' I
+What appearance would you have us make.?" replied she, with a melancholy air --• an appearance which we cannot shpport? My father, ' I
 »
 believe, can ill afford to do what he has already done, at my mother’s re ; and it would be vtry wrong in her, or my of us, to desire him to do more."
 »
@@ -4632,7 +4579,7 @@ V *' V *
 u
 g No, Mr. Lumley, " answered she
 * the tears trembled in her eyes;
-no, I say — I will not enter into fo hazardous an engagement. Sir Though may outlive and I do not wish to come into a family who will
+no, I say --I will not enter into fo hazardous an engagement. Sir Though may outlive and I do not wish to come into a family who will
 4
 despise me. I beg, therefore, that you will leave me : let us at once break off an acquaintance which, if continued, can only render me more unhappy."
 4
@@ -4664,7 +4611,7 @@ K 5 the
 t
 t
 202 .
-ithe thoughts of parting with him for ■ever: So uncommonly Soft, tender, and ‘engaging was he at the moment she was on the point of a final separation from him. Her heart was deeply affedbed by his fo moving behaviour; her pride also was not slightly wounded — From the commencement of her acquaintance with him, she had flattered herself with the hopes — though they were distant ones — of being one day Lady Lumley; shut now all her hopes were totally dei
+ithe thoughts of parting with him for ■ever: So uncommonly Soft, tender, and ‘engaging was he at the moment she was on the point of a final separation from him. Her heart was deeply affedbed by his fo moving behaviour; her pride also was not slightly wounded --From the commencement of her acquaintance with him, she had flattered herself with the hopes --though they were distant ones --of being one day Lady Lumley; shut now all her hopes were totally dei
 ■ ^.
 tnolifhed. She could not nov rationally indulge her brilliant expedlations. She was, therefore, very sensible that llie had nothing to do, but to put an entire end to an intimacy which could not but prove dangerous as well as dishonourable. Yet the pleasure she had, from the very first, taken in his company, was fo great, and had astefled her So
 sensibly,
@@ -4711,7 +4658,7 @@ ft
 #
 >
 2o6 .
-It WELL WORTHWHILE— — emphatically delivered..
+It WELL WORTHWHILE----emphatically delivered..
 Fanny, who imagined that such a sh Situation wouldbe more agreeable to ^ Lumley, and make him ■ less ashamed of visiting hen, with his family, jumped at the thoughts of it; though she knew that the enlargement of her mother’s plan would be an additional proof, of
 her indiscretion.
 «
@@ -4734,10 +4681,10 @@ V
 In that cafe, my dear Mrs. Selby, ",
 'Said Smith, laughing, I can put yom
 into a much cheaper way. Tou shall take a Small house,. and I will be your lodger."
-How! Mr.. Smith! " answered she, drawing up her head — I let lodg ings I Surely you do not know who I am. People who keep their car to take in boarders and lodgers!"
+How! Mr.. Smith! " answered she, drawing up her head --I let lodg ings I Surely you do not know who I am. People who keep their car to take in boarders and lodgers!"
 * * * #*
 ^, ■ C ■ ' i
-Aye, Madam — People who drive. with Sour horses, nay, with a Set,
+Aye, Madam --People who drive. with Sour horses, nay, with a Set,
 live in the Same house for conve nience, and eat, drink, and deep toi
 
 gether, for the Sake of Society. Peo pie of the first fashion do this in London; and in Scotland, it is the,
@@ -4814,7 +4761,7 @@ m
 2 12 ,
 In consequence of a grand consultation, in which the propriety or impro
 . •
-priety of inviting Mrs. jefferson was strongly agitated, Mrs. Selby gave her casting vote against her, Sayingj she was Sure that Lady Lumley would never sit down to cards in the Same room with her — adding, with a conlequential air — I shall not think of any rout, without having her Ladyship present."
+priety of inviting Mrs. jefferson was strongly agitated, Mrs. Selby gave her casting vote against her, Sayingj she was Sure that Lady Lumley would never sit down to cards in the Same room with her --adding, with a conlequential air --I shall not think of any rout, without having her Ladyship present."
 r f *•
 ft ^
 • ^
@@ -4843,11 +4790,11 @@ a
 engagement that night to the play,
 ft
 • _
-and to the Pantheon, to Mufeiim with one party, and to brejlaw*s exhibition with another, determined to look in upon Mrs. Selby, and to stay a little, if any advantage was likely to be made by betting, cc. — A: least" " her Ladyship, the unpolished wretches will furnish us with Something to laugh at, while we are driving from one place to another."
+and to the Pantheon, to Mufeiim with one party, and to brejlaw*s exhibition with another, determined to look in upon Mrs. Selby, and to stay a little, if any advantage was likely to be made by betting, cc. --A: least" " her Ladyship, the unpolished wretches will furnish us with Something to laugh at, while we are driving from one place to another."
 In consequence of this determination,
 i
 Lady Lumley returned a verbal message
-— She will endeavour to call on
+--She will endeavour to call on
 *
 Mrs. Selby sometime in the even ing, though she has a great number of engagements."
 . <0
@@ -4867,7 +4814,7 @@ J' •
 \
 Here, Madam, " Said he, I have
 9
-wrote to every agreeable .creature of my acquaintance: — Mrs. selby’s and Mr. smith’s compliments, cc. - — Here — run them over before John
+wrote to every agreeable .creature of my acquaintance: --Mrs. selby’s and Mr. smith’s compliments, cc. - --Here --run them over before John
 j
 carries them out." He then, put the, cards into her hands.
 When Mrs. Selby Saw alist of Baronets, Ladies, Colonels, Captains, cc. she felt herself elated at the prospedt of So brilliant and numerous an assembly, and was, indeed, almost out of her wits. —
@@ -4891,7 +4838,7 @@ I
 . 217
 ft
 her taking a house: nay, he objected strongly to her staying above a fortnight longer in London, and exprdled the greatest surprise at his fon’s not returning to him, as he had desired him to fet out to the farm directly.
-This letter was the most disconcerting one imaginable: but Mrs. Selby was, alone, distressed by it, as stie was fearful of his not remitting to her mioney sufficient for her very urgent demands: demands which would, probably, require more than he could spare. However, upon her mentioning her anxiety upon that account. Smith told her she might make herself perfectly easy— — Mr, Selby is known to be a man of fortune, Madarn, there are people enough who will readily furnish you with any sums you want."
+This letter was the most disconcerting one imaginable: but Mrs. Selby was, alone, distressed by it, as stie was fearful of his not remitting to her mioney sufficient for her very urgent demands: demands which would, probably, require more than he could spare. However, upon her mentioning her anxiety upon that account. Smith told her she might make herself perfectly easy----Mr, Selby is known to be a man of fortune, Madarn, there are people enough who will readily furnish you with any sums you want."
 * vol. I. L This
 #
 I
@@ -4983,7 +4930,7 @@ Lady Lumley and daughters exchanged, at the Same time. Sneers of triumph. Her La
 ■ 4. i
 those Sneers had been exchanged, catching hold of the rufflle of Mrs. Selby’s'
 . ♦
-facque, cried — - .Dlefs me, Mrs. Selby,.
+facque, cried --- .Dlefs me, Mrs. Selby,.
 '. ft
 hoy thinly you are clothed this^cold night! It makes one almost shiver to
 4
@@ -5013,7 +4960,7 @@ st
 ft
 Oh! dear!" replied her Ladyship,
 '. **4, ' ' i ‘ ' ' * *
-•* I can never be a pattern formrhbel « by — People in Such chferent’ ranks' In life should not think of imttd.tidnvai becomes them So very ill, and they
+•* I can never be a pattern formrhbel « by --People in Such chferent’ ranks' In life should not think of imttd.tidnvai becomes them So very ill, and they
 '*•' ' '.st S ■' C C. ■ •.. i '■ ■ \ \ ■ : > I. •
 always appear To 'Awkward, ‘ arid ex
 ^ ' * ' " ' ', " '
@@ -5028,7 +4975,7 @@ f
 I
 I
 one carmot help Smiling at them, tho’ they happen to be our dearest friends.
-— I really don’t know any people more foolish than those who, V ith Small, or no fortunes, are continually ** aping their: Superiors."
+--I really don’t know any people more foolish than those who, V ith Small, or no fortunes, are continually ** aping their: Superiors."
 Mrs. Selby could hardly contain her.
 . ‘ ' •
 self. Nothing but the fespeft with which
@@ -5054,12 +5001,12 @@ longer
 %
 I
 9
-— • 4 *
+--• 4 *
 t
 The Journey, TO London. 225
 longer than she first intended, : to the no
 \
-small dshght of .her fon, who, not choosing cards,, sat chatting with the girls — Tom with fanny,. George with Maria, and some of the other females whorn Shiith had introduced, and who -, strove to engage his. attention..
+small dshght of .her fon, who, not choosing cards,, sat chatting with the girls --Tom with fanny,. George with Maria, and some of the other females whorn Shiith had introduced, and who -, strove to engage his. attention..
 Ir *
 Lady Lumley,. on • her taking, leave, very obligingly told Mrs.. Selby, that she expected to see her and her: daughters in berkleyrsquare. The miss lum leys, finding their mother, in So civil .a Tuimour,, followed, her example : they meant, indeed,. as little, by what they said as she did;, but their, united civili -- ties, threw she selby farpily into very,
 fiigh spirits ■ -
@@ -5075,7 +5022,7 @@ that Lady' Lumley was her near neighbour in the country.. Sir thoihavs
 t
 estate joined to Mr. selby’s, and that they were vastly intimate when down in
 VN'
-— — shire together
+----shire together
 ** \
 ''•, * -
 'st ■.
@@ -5104,7 +5051,7 @@ The next morning,, when Mrs. Selby had just finished her breakfast, the servant
 opened the door[she had hiredi
 '\
 a maicl fervant, though Smith had lent
-her a footman to waif at her rout— —
+her a footman to waif at her rout--—
 #
 in bounced Mrs. jefferson.. ^ > ■<
 0
@@ -5133,7 +5080,7 @@ should you fo? some : people: are more nice than cwife.. 'But really I should ha
 * ■ -.. 4 ■.
 -?«. Perhaps,. Madam, i Lady Lumley
 •• *
-shay be more used to the company of w — es and sharpers, than i am, " said;
+shay be more used to the company of w --es and sharpers, than i am, " said;
 ; Jefferson.. cs '.
 '**
 i - . ■;
@@ -5145,11 +5092,11 @@ very genteelest of all her acquaintance,
 her
 /
 
-her dearest friends — as she; at that moment, called the Lumleys — fo abused : she, therefore, told Mrs. jefferson, that ■whatever company she had, they were vastly too good for her, besides, " continued' she, I am very sure that you do; not know anything at all about them : and So I desire you whl not offer to affront me, by mentiorr ‘‘ ing my friends in Such a Scandalous manner."
+her dearest friends --as she; at that moment, called the Lumleys --fo abused : she, therefore, told Mrs. jefferson, that ■whatever company she had, they were vastly too good for her, besides, " continued' she, I am very sure that you do; not know anything at all about them : and So I desire you whl not offer to affront me, by mentiorr ‘‘ ing my friends in Such a Scandalous manner."
 . r
 ‘ r ’ •. • X 4
-Your friends — answered Mrs. jefferson, repeating the word firongly r p You will not, I fancy, find them your friends, but the greatest enemies you have in the world. However,
-I have done my duty — I have told cyou of. your danger — If you will not see it, you must take the confe y quences. ^ I am Jure I have proved
+Your friends --answered Mrs. jefferson, repeating the word firongly r p You will not, I fancy, find them your friends, but the greatest enemies you have in the world. However,
+I have done my duty --I have told cyou of. your danger --If you will not see it, you must take the confe y quences. ^ I am Jure I have proved
 ‘‘ myself
 *
 i
@@ -5276,12 +5223,12 @@ y
 t
 / %
 '. 235'
-So ptiblickly insulced. To increase; their confusion, the Lady who accorn ^ panied Lady Lumley happened to have seen Mrs. Selby in a milliner’s shop, by accident'; and having also heard that ' Lady Lumley had been at her rout xkc night before, she Said to her — I thought your Ladyship knew Mrs. Selby."
+So ptiblickly insulced. To increase; their confusion, the Lady who accorn ^ panied Lady Lumley happened to have seen Mrs. Selby in a milliner’s shop, by accident'; and having also heard that ' Lady Lumley had been at her rout xkc night before, she Said to her --I thought your Ladyship knew Mrs. Selby."
 i
 V * ■
 ■ ^ ^. ■ ■ -
 *
-Oh — no, " — replied she : I never know such people anywhere but at home; " — and continued to negle<st; them during the rest of the evening.
+Oh --no, " --replied she : I never know such people anywhere but at home; " --and continued to negle<st; them during the rest of the evening.
 Lady lumley’s behaviour to Mrs. Selby occasioned a great dealof whispering among her companions, and she was herself additionally chagrined, as - well as her daughters, to see, upon their looking down into the pit, not knowing
 • in.avhat direction to throw their embarrassed
 
@@ -5301,7 +5248,7 @@ under them.
 I
 f.
 If ^
-Mrs. Jefferson, without' paying ariy regard to their superior situation, stared at them, with her broad, vulgar face, exposed full to view,. unshaded by hat or bonnet, and exclaimed — So, fo —
+Mrs. Jefferson, without' paying ariy regard to their superior situation, stared at them, with her broad, vulgar face, exposed full to view,. unshaded by hat or bonnet, and exclaimed --So, fo —
 I thought what you would alt .come ^ to: this is keeping cbmpahy" with demi reps: you see your fine quality won’t know you."
 I
 This free speech was accompanied with a loud laugh, in which she was
@@ -5324,10 +5271,10 @@ S E L B Y - F A M I L Y.
 *
 /
 #
-#1111 I ■ i. ■■ ■ *1^ ■■ ■■■ — ■ — I i ■■.. ■■ilmmimwt*
+#1111 I ■ i. ■■ ■ *1^ ■■ ■■■ --■ --I i ■■.. ■■ilmmimwt*
 VOL. IL
 .A
-#y..i !■ I ih ■■ mmi. — < ■ .iii .1,, „i, — ... ■ ■ I
+#y..i !■ I ih ■■ mmi. --< ■ .iii .1,, „i, --... ■ ■ I
 *
 '»-
 h d N D O N :
@@ -5352,7 +5299,7 @@ K
 
 mv
 to ?dlypao3
-rsfhp lvaji lo ountv 'gnruqx^s — srb nvd
+rsfhp lvaji lo ountv 'gnruqx^s --srb nvd
 
 ■ iter!
 sri ‘doistv’ bnijqw sfli eb
@@ -5584,9 +5531,9 @@ r life.".
 * A \ ■ -
 ’ II A
 . 4
-My excellent girl, " replied Selby, — believing every syllable she uttered — ^
+My excellent girl, " replied Selby, --believing every syllable she uttered --^
 ‘ 4. : ■ ■ ■ '
-make yourself easy — we niust wait;
+make yourself easy --we niust wait;
 I will endeavour to arm my self with patience.’*
 A 4
 »
@@ -5599,12 +5546,12 @@ s
 ■ /
 V ♦
 6 .
-Yes, " said she, rather in a peevish tone — but we cannot have patience for ever. The. greatest patience may
+Yes, " said she, rather in a peevish tone --but we cannot have patience for ever. The. greatest patience may
 4 •
 be worn out in time. For my part,
 ‘‘ I never had any patience in my life, "
 Nshile she was delivering the few last Words, she rose, and went to the farthest part of the room. There .she sat, jogging one foot over the other, with the strongest marks of difeontent: at the Same 0
-tirne, however, she carelessly contrived to let her leg — by no means an ugly one —
+tirne, however, she carelessly contrived to let her leg --by no means an ugly one —
 be seen almost as high as her garter; while her neck, which was very white, and had been more than half concealed by a handkerchief wrapped across her bosom, was entirely exposed to view by the removal of that handkerchief. to wipe her eyes. Thus was she at once rendered a striking ob^edt of temptation
 to
 *
@@ -5633,7 +5580,7 @@ B 4 Qood
 .A. ^ ■ A \ .ft '
 8 .
 ■ h
-— Good God! Mr. Selby, let me go let me go — I am undone. — How'' '' you to take such a liberty? How, indeed, dare I, thoughtless ! to trust myself wkh a man
+--Good God! Mr. Selby, let me go let me go --I am undone. --How'' '' you to take such a liberty? How, indeed, dare I, thoughtless ! to trust myself wkh a man
 LT, r I"' ' t ’ V D •* * ‘
 who pretends to love me, and yet
 . • ...,., L iriryr
@@ -5677,7 +5624,7 @@ hand, indeed you wrong me. I meant only to seize one tender kiss. Who could Supp
 s *
 _ ft
 '/
-Aye" — replied she— — on him — looking on him with a languishing
+Aye" --replied she----on him --looking on him with a languishing
 air; I thought how it would be; I know 1 shall never be Safe, if I do not put it out of your power to injure me."
 0
 B 5 « Well
@@ -5687,7 +5634,7 @@ B 5 « Well
 r
 4
 lo .
-Well then — I will, L will, my dear
+Well then --I will, L will, my dear
 »
 girl (kiffmg her eagerly) I will write to my father direduy, and ask his consent
 to your father, Mr. Selby?" exclaimed She, starting from his arms;
@@ -5695,12 +5642,12 @@ i, r..?
 am 1 to wait the uncertfinty of your
 father’s consent, and So be, most pro
 *
-‘‘ cast off at last? Is this your love for me Oh! why was I ever born continued She, bursting into tears, and wringing her hands — why
+‘‘ cast off at last? Is this your love for me Oh! why was I ever born continued She, bursting into tears, and wringing her hands --why
 did I fix my affections upon a man,
 *
 who either never loved me, or else
 loves me no longer I Oh! how have I been deceived !"
-Not at all, my Sally — I have northeast ver deceived you. I love you with an inexpressible fondness: but Surely you
+Not at all, my Sally --I have northeast ver deceived you. I love you with an inexpressible fondness: but Surely you
 , ’ .cannot
 *
 0
@@ -5708,14 +5655,14 @@ Not at all, my Sally — I have northeast ver deceived you. I love you with an i
 t
 %
 , II
-cannot be offended at my informing my father — A good fon,., Sally, is
+cannot be offended at my informing my father --A good fon,., Sally, is
 V most likely to make a good husband
-be fo, " answered she. Sullenly; but if your father refuses his con you will make no husband at all to me', and then what shall I get by your goodness } You will not be good to me — you will be the worst pf men
+be fo, " answered she. Sullenly; but if your father refuses his con you will make no husband at all to me', and then what shall I get by your goodness } You will not be good to me --you will be the worst pf men
 4
 if you leave me now, after having gained my heart, and made me be
 /
-** that you love me" — (fobbing.)
-I have told you nothing but what is flriduy true, " said he — I dote on you; but, in order to be worthy of the love I stgh for in return, I must be a dutiful fon to the best of fathers.
+** that you love me" --(fobbing.)
+I have told you nothing but what is flriduy true, " said he --I dote on you; but, in order to be worthy of the love I stgh for in return, I must be a dutiful fon to the best of fathers.
 I will write to him immediately; I will solicit his consent, and I doubt
 B 6 not
 •
@@ -5745,7 +5692,7 @@ Charles, when he left miss Cox, went horn and wrote solis father upon the Subjec
 "i, - ' X.., *
 the pen of ari mamorato he desctibr
 ■ ft ‘ J.. *. * ■ ^ ■
-her personal and intellectual charms, and did not forget to add, that she was iri a very eligible style of life \yith her. cousin, who, in a genteel house, kept a maid servaiit, and a footman, and Seemr. ed to be in roomy circumstances. — He
+her personal and intellectual charms, and did not forget to add, that she was iri a very eligible style of life \yith her. cousin, who, in a genteel house, kept a maid servaiit, and a footman, and Seemr. ed to be in roomy circumstances. --He
 closed
 
 closed his letter of solicitation with the flrongest: hints about Miss cox’s expefla tions,
@@ -5776,7 +5723,7 @@ I
 woman who consented to be mistress to the
 0
 4
-man she loved, was a much greater character than her who married a man merely because. he could place her in a Sphere to which she had no pretenstons. — Such a
+man she loved, was a much greater character than her who married a man merely because. he could place her in a Sphere to which she had no pretenstons. --Such a
 marriage, he affirmed, was downright
 \
 prosti
@@ -5815,7 +5762,7 @@ deed, that neither Lady Lumley nor her daughters, nor Sir Thomas and his fon
 ever spoke in praise of infamous women, nor did they openly give them the pre
 i I " ‘
 ference : but then they never, on their being mentioned, ever fppke slightingly
-of them, as people whose society was to be avoided, — When they heard any fcandalons anecdotes about them, they
+of them, as people whose society was to be avoided, --When they heard any fcandalons anecdotes about them, they
 smiled, or appeared with an air of indif
 \
 ference, as if their deviations from the straight line of rectitude were, of very Isttie consequence.
@@ -5826,7 +5773,7 @@ the best bred people in the world. Soon began tq consider them as examples; and,
 > i i t -
 free conversations, she believed the more
 ^ - ft' '..
-what Smith told her. — He made
+what Smith told her. --He made
 no
 . V
 \
@@ -5835,10 +5782,10 @@ no
 .., rf
 no direct overtures to her, indeed; ho wished to see her incapable of refusing him. She, on the other hand, imagining that he was' very much in love with her, and would Soon take an op portunity to offer her proposals, which she might accept of with honour, ' only laughed at hh effusions about women, af she found the chit-chat of almost: all ■with whbni she cohvcrfed was in a similar strain' ' ^
 . /.; !■ '
-*- ■ ■ ^ ' st; * ‘ ^ ■'V rff V ’ ■ — ^
+*- ■ ■ ^ ' st; * ‘ ^ ■'V rff V ’ ■ --^
 • r ^ - ■- ^ > ria ■ r j - SA A' y * A
 %
-'Fanhy Selby was pretty much in the Same Situation with Lumley, with this' difference; she was apparently less yola die than Smith; and, as she had been intimate 'with his whole family, she thought he would, on no account, presume to behave improperly to her. — Poor Fanny knew very little of the
+'Fanhy Selby was pretty much in the Same Situation with Lumley, with this' difference; she was apparently less yola die than Smith; and, as she had been intimate 'with his whole family, she thought he would, on no account, presume to behave improperly to her. --Poor Fanny knew very little of the
 world, though she had Seen more of it
 V * •
 m
@@ -5855,9 +5802,9 @@ m one week, firice her arrival in London, than she would have seen ih two years 
 y
 she was never pleased when he missed any opportunity of feeing her, of feeing her alone. In those interviews they botsh indulged. themselves in giving a loose to their tender sensations, Fanny, tod
 V
-much Softened by her lover’s impassioned behavioifr, grew unable, in a very short time, to refuse him — ‘what she conss*
+much Softened by her lover’s impassioned behavioifr, grew unable, in a very short time, to refuse him --‘what she conss*
 4
-dered as — an innocent return. When st womastgoes sofar, she will not find it an easy shatter to stop herself from going farther', from passing the bounds ff prudence; never to be passed with.
+dered as --an innocent return. When st womastgoes sofar, she will not find it an easy shatter to stop herself from going farther', from passing the bounds ff prudence; never to be passed with.
 Safety.
 '< s *. • ' ■ •«
 *1 ’ ..... «
@@ -5972,12 +5919,12 @@ f
 t
 imagined, make the most of it; he therefore employed every Soothing art he was master of, to calm her mind; and discovered, in his every look, in all his accents, the tenderest Solicitude on her account. By his tender endeavours he, at last. Softened her heart to Such a degree, that she Soon became more ready to renew her indiscretions,
 than to quarrel with him for obliging her to commit them. •
-When he had left her — when the mortifying resteftions which had been for sometime banished, returned, and with double violence — she again lamented
+When he had left her --when the mortifying resteftions which had been for sometime banished, returned, and with double violence --she again lamented
 tt :
 her fall, with the bitterest expressions: she felt herself totally deprived of all her tranquillity. She resolved, however, to conceal her feelings, and to affect a Serenity in her behaviour, at all events,
 ■ '. as
 .
-as she had not given up all hopes of being able, one day, to prevail on her lover to marry her, though he was then So averse to iriatrimony: and, indeed, his extreme fondness of her, after an incident which frequently cures a man of his affection for the woman Seduced by him, induced her strongly to imagine that she might, by a gentle, complying carriage, bring him to consent to make all the reparation in his power for the loss of her honour: Supposing that, by marrying him, she should be as good as ever. — Into this error many females are apt to Aide; and too easily console themselves for the loss of what they ought
+as she had not given up all hopes of being able, one day, to prevail on her lover to marry her, though he was then So averse to iriatrimony: and, indeed, his extreme fondness of her, after an incident which frequently cures a man of his affection for the woman Seduced by him, induced her strongly to imagine that she might, by a gentle, complying carriage, bring him to consent to make all the reparation in his power for the loss of her honour: Supposing that, by marrying him, she should be as good as ever. --Into this error many females are apt to Aide; and too easily console themselves for the loss of what they ought
 to think irreparable. The preservation
 \
 a character unsullied, not the patching if up, when a flaw has been made in it, should be every woman’s principal concern.
@@ -5998,7 +5945,7 @@ ing, by an officer, who played at the table to which she was sat down; and
 , i
 4
 she encouraged him not a little by giving herself flirting airs; airs hardly excusable
-in her daughters. It was not, however, her person alone that induced Captain Dermot to be particularly attentive to her : he had made an inquiry about her, and Smith had communicated to him the following information — that she had left her husband, to come ' to See London, and to live like other
+in her daughters. It was not, however, her person alone that induced Captain Dermot to be particularly attentive to her : he had made an inquiry about her, and Smith had communicated to him the following information --that she had left her husband, to come ' to See London, and to live like other
 ft ^
 2 folks;
 9
@@ -6045,18 +5992,18 @@ their memories.
 When they entered the diningroom -
 • ^ ' * ■* *
 in which they found Fanny, leaning her head upon her hand, and turning
-over the lass: new novel, as if ssie was reading it, though (he saw nothing but Thomas Lumley in every line, Mrs. Selby called out — - Has anybody been here
+over the lass: new novel, as if ssie was reading it, though (he saw nothing but Thomas Lumley in every line, Mrs. Selby called out --- Has anybody been here
 I
 4
 No; " answered Fanny, with a half fuppressed ssgh.
-The maid, not being acquainted' with her reasons for the answer she had given, added — No body but Mr. Lumley, ' Madam."
+The maid, not being acquainted' with her reasons for the answer she had given, added --No body but Mr. Lumley, ' Madam."
 C 3 Oht
 V
 tt
 9
 .
 30 .
-'Oh! he has not forgot us then — He is not quite So high as the rest of his insolent family : but let them go; it is no matter very pos fibly I may forget them hy and by,
+'Oh! he has not forgot us then --He is not quite So high as the rest of his insolent family : but let them go; it is no matter very pos fibly I may forget them hy and by,
 in my turn : though I shall always remember one piece of Service they ‘‘ have done me: had it not been for them, ' I do not believe I ever should ‘‘ have Seen this dear town."
 Fanny made no reply, but Secretly wished that she had never left the
 farm, but to be married to lewson.
@@ -6071,14 +6018,14 @@ S
 I
 ft,
 *
-, called. — She spent the greatest: part of
+, called. --She spent the greatest: part of
 f
 the night in tears.
 «
 The. first news she heard in the morning was, that the post man had brought
 «
 a letter from the farm, to Mrs. Selby.,
-Mrs. Selby, just casting her eyes care lessly on the superscription, tossfed it on her dreshng table. — It will keep cold" r — said she— — Maria, let us go to breakfast."
+Mrs. Selby, just casting her eyes care lessly on the superscription, tossfed it on her dreshng table. --It will keep cold" r --said she----Maria, let us go to breakfast."
 %
 0
 Scarce had they sat down with Charles,, when a card was delivered to Mrs.
@@ -6091,14 +6038,14 @@ C 4. ‘‘there'
 V «
 /
 32 .
-• There now, " cried stie, holding k out, with an exulting air, to Maria — there — you and 1 were quite mistaken: Lady Lumley, you see, is
+• There now, " cried stie, holding k out, with an exulting air, to Maria --there --you and 1 were quite mistaken: Lady Lumley, you see, is
 /
 as fond of us as ever. We will cer
 44 ■
-tainly wait Oh her Ladyship. — Why
-Fanny" — continued she — you do
+tainly wait Oh her Ladyship. --Why
+Fanny" --continued she --you do
 / • *
-not Seem transported— — the matter, child? "
+not Seem transported----the matter, child? "
 ^‘ Nothing, Madam, " answered she (blushing, at the recolledfion of what
 had passed; trembling with fear, lest she should betray herself by going to
 Sir thomas’s)but I thought you
@@ -6107,9 +6054,9 @@ Sir thomas’s)but I thought you
 y had a letter from my father."
 - it 1 have, " replied she~*‘ I
 «
-had quite forgot it — 1 have fo many
+had quite forgot it --1 have fo many
 things in my head, that I vronder L
-remember anything — But go, Fanny,
+remember anything --But go, Fanny,
 step
 A
 f
@@ -6124,11 +6071,11 @@ ft
 words. Smith, who was a regular and frequent visiter, entered the room, accompanied by Dermot, whom he intro'
 '\
 by telling her that the Captain would not let him rest tillshe had brought him to pay his compliments to her. —
-But what are you reading, my dear Mrs. Selby ?" added he — A letter from an admirer So early ?"
+But what are you reading, my dear Mrs. Selby ?" added he --A letter from an admirer So early ?"
 N
 » ■. m
 ** Lord! how you talk !" replied
-with an affected laugh — I affure you
+with an affected laugh --I affure you
 \
 it is only a letter from Mr. Selby;
 and not the most obliging one, be lieve me."
@@ -6157,7 +6104,7 @@ girl; do you read it; for there js
 more
 /
 . 35
-more about you than anybody elfe in it." — And she spoke the truth. Fanny, though she, like other young people, loved pleasure, had more sense.. more taste for rational amusements, than her mother or her filler: she had,, .also, more sensibility;; that account,, therefore, and because she had always taken more pains to please him. than.; Maria did, her father was really the fondest: of her; and, believing that she. would mind what he said more than her: stster or her mother, he had wrote to desire them to send her dovvn. to him, if
+more about you than anybody elfe in it." --And she spoke the truth. Fanny, though she, like other young people, loved pleasure, had more sense.. more taste for rational amusements, than her mother or her filler: she had,, .also, more sensibility;; that account,, therefore, and because she had always taken more pains to please him. than.; Maria did, her father was really the fondest: of her; and, believing that she. would mind what he said more than her: stster or her mother, he had wrote to desire them to send her dovvn. to him, if
 tt
 they would not come themselves; ■• being.
 assured, he Said,, that fie had not So far
@@ -6177,11 +6124,11 @@ N
 V '
 f
 one day, tired of London, be willing to reward his sincere passion for her.
-his part of her father’s letter affcist cd Fanny fo much— — as she was
+his part of her father’s letter affcist cd Fanny fo much----as she was
 ft
-of not deserving the mention made of her in it — that she burst into tears, and was going to hurry out of the room to ( hide them. '
+of not deserving the mention made of her in it --that she burst into tears, and was going to hurry out of the room to ( hide them. '
 At that moment .Dermot, who
-thought her very pretty as well as her mother, went to stop her, and to inquire into the cause of. her uneasiness j but she broke from him, and flew to her own apartment. — There she gave a loose to her sorrows.
+thought her very pretty as well as her mother, went to stop her, and to inquire into the cause of. her uneasiness j but she broke from him, and flew to her own apartment. --There she gave a loose to her sorrows.
 tt
 *
 . Mrs. Selby, nettled at having seen the Captain take So much notice of her daughter, when he had been just making
@@ -6194,7 +6141,7 @@ The Journey' to London. 37
 ing speeches to her, cried, Pray, Sir, let her alone : she is alwaysshefi; when She is by hersels."
 V
 4
-At this time Fanny — though her mother was ignorant of her situation— —
+At this time Fanny --though her mother was ignorant of her situation--—
 in consequence of her reflections, inexpressibly
 wretched: they were almost: insupportable. It was, indeed, owing
 to her too great fensibility that she had been conquered by Lumley. Shedoved him, and having, from her first acquaintance with him, romantically expedsed to be, one day. Lady Lumley, * had given herself up to the indulgence of a thousand freedoms which he looked upon as preludes to the lafl. Fanny, it hs true, firmly resolved not to grant the lafi favour, till her lovet was legally entitled to it: but let no woman, presuming upon her resolution, in a Similar
@@ -6211,9 +6158,9 @@ upon her tender compliances, and her -- self ruined by them.
 I
 Fanny, though She had. often heard of broken vows, could not bring herself
 /
-to think that Lumley would be a faith -- less man. She thought it imposhble — notwithfianding all she had heard of the inconstancy of the sex— — her lover to
+to think that Lumley would be a faith -- less man. She thought it imposhble --notwithfianding all she had heard of the inconstancy of the sex----her lover to
 0
-she less fond, less aftedlionate. — His in difference was quite out of the question. Strongly believing him to be inviolably attached to her, she, naturally, believed that he might, in consequence of the sincerity of his attachment, be prevailed upon to marry her. — As she was not married, however, and as., many things might happen to prevent her marriage,
+she less fond, less aftedlionate. --His in difference was quite out of the question. Strongly believing him to be inviolably attached to her, she, naturally, believed that he might, in consequence of the sincerity of his attachment, be prevailed upon to marry her. --As she was not married, however, and as., many things might happen to prevent her marriage,
 she
 tt
 . 39
@@ -6299,7 +6246,7 @@ I
 » * '**
 45 .
 wanton. A great difference, surely, ought to be made between the woman who, touched by a tender passion for the man who seduced her, determines to be faithsul to him, and her who, loose by nature, and licentious from example, is an unrestrained voluptuary with every man who. comes in her way.
-Fanny, when she saw the miss Lumleys — whon) she had always looked upon as objeds of imitation — behave in the manner abovementioned, began to think that she had not been quite fo much to blame in making her lover happy; but if their behaviour had fo bad an effect upon her, who had granted the last favour to Lumley, merely from her inability to see him miserable on her account, it had a much worse one upon
+Fanny, when she saw the miss Lumleys --whon) she had always looked upon as objeds of imitation --behave in the manner abovementioned, began to think that she had not been quite fo much to blame in making her lover happy; but if their behaviour had fo bad an effect upon her, who had granted the last favour to Lumley, merely from her inability to see him miserable on her account, it had a much worse one upon
 her filler, Maria had, indeed, for a
 1
 I great
@@ -6323,7 +6270,7 @@ I cannot, " said she one day to
 Smith, after having railed prodigiously
 ^ainfl her lodgings, I cannot think
 of taking any house which has not a /utfe of good rooms upon the first fioor for routs, and fit to receive people of
-the first Safhion — I must have all kinds of proper Surniture in the genteelest style."
+the first Safhion --I must have all kinds of proper Surniture in the genteelest style."
 Smith stared at her: he was asto ^lished, and wanted to know if She had
 received
 0
@@ -6341,7 +6288,7 @@ fhouid take the advice he had sometime before given her. I will not deny myself 
 tt
 Smith, pleased to see her So readily fall in with his plan, extolled her spirit,
 and advised her to keep it up by all means; telling her, that she knew not any woman So much improved, by con wersing with the best company, as Mrs. Selby; and that, as she was formed to
-relish every elegant pleasure, she ought to have the full enjoyment of it. — And vol, H, D you,
+relish every elegant pleasure, she ought to have the full enjoyment of it. --And vol, H, D you,
 /
 i /
 w
@@ -6354,8 +6301,8 @@ Bravo!" answered Smith, killing her, you are a girl after my own
 \
 heart; let us make an agreement to enjoy every pleasure as far as it will go."
 Hold, hold, " said she, drawing back her hand, I have no sort of ob jedhon to any kind of enjoyment;
-_ but I cannot poshbly think of con myself — There you must excuse
-me — No, no — I am very willing
+_ but I cannot poshbly think of con myself --There you must excuse
+me --No, no --I am very willing
 I to
 - ■ •
 / 1
@@ -6369,7 +6316,7 @@ t
 /
 ** to take you in my way. Smith, but I mufl have dear variety: one day with you, the next with another."
 s''
-Umph'" cried he to himself, Ihe comes on purely — rather too fast tho’. — However, I must seize the lucky minute."
+Umph'" cried he to himself, Ihe comes on purely --rather too fast tho’. --However, I must seize the lucky minute."
 tt'
 ■ Accordingly, he determined to avail himself of the first opportunity that offered: but the Ladies were now fo continually engaged, that he found it no easy matter to meet with them with
 ‘1
@@ -6402,7 +6349,7 @@ at the Same time, that he was a linen draper in the city, very advantageousty Xe
 I
 t
 A linen draper 1" exclaimed she,
-with a haughty toss of her head, and a contemptuous sheer — A linen draper!
+with a haughty toss of her head, and a contemptuous sheer --A linen draper!
 How
 t
 . 5j
@@ -6419,7 +6366,7 @@ m
 Are there ?" answered she, with still greater pride : ■ it may be fo; but I am not one of those. I shall never " lessen myself fo much as to becom’e
 ** mistress of a shop." ’
 *
-■ You may do worse" " the tradest man, provoked at her folly — you ** may become mistress to a man of quality, ' perhaps; and if you Should be in such a situation, you will be pro perly punished for your pride."
+■ You may do worse" " the tradest man, provoked at her folly --you ** may become mistress to a man of quality, ' perhaps; and if you Should be in such a situation, you will be pro perly punished for your pride."
 D 3 * Punished,
 \
 »
@@ -6428,10 +6375,10 @@ D 3 * Punished,
 54 .
 Punished, do you call it?" replied " she, reddening with anger; we shall never
 C
-think alike, I find — I had much rather
+think alike, I find --I had much rather
 be miftress to any man, than the wife of
 ^ « '
-a paltry shopkeeper. — Had I not first
+a paltry shopkeeper. --Had I not first
 '‘‘ been deceived by your appearance, "
 ;
 continued she, ' ‘M should have spit in
@@ -6465,7 +6412,7 @@ Mrs. Selby, by mixing with the friends whom Smith had recommended to her,
 •* i
 found fo mvich entertainment, and made
 ft •
-So many new acquaintance, that she became more than ever determined to take a house, believing a house to be now absolutely necessary— — hired one; but, as Soon as she had hired it, fly was di
+So many new acquaintance, that she became more than ever determined to take a house, believing a house to be now absolutely necessary----hired one; but, as Soon as she had hired it, fly was di
 f
 flrefsed about Surniture, Mr. Selby haying peremptorily refused to increase her allowance.
 *
@@ -6488,7 +6435,7 @@ told her, that the only step she could
 'I
 ill take, in her circumstances,, was to order goods, and promise to pay for them I as soon as she received a bill from Mr.
 t ^ ♦
-, Selby. — If no bill comes up, " added
+, Selby. --If no bill comes up, " added
 I he, ‘‘ they must take the goods again,
 ii all will do very well."
 h -.
@@ -6507,7 +6454,7 @@ H
 iji
 
 S''
-tnoft expensive things she saw, because she liked them best— — she was not to pay any money down, she never confi
+tnoft expensive things she saw, because she liked them best----she was not to pay any money down, she never confi
 'dered price., nor reckoned what the things which pleased her would, cofl. By this thoughtlcss way of proceeding. She filled her houle with all kinds of fur
 •ft
 nicure, quite in taste
@@ -6543,7 +6490,7 @@ hire him., She thought he fet too great a value upon his outside. She did not ca
 ite
 '■ 1 ■ t
 J •_
-The first wprds which Mrs. Selby heard, on her entering the room, were — •
+The first wprds which Mrs. Selby heard, on her entering the room, were --•
 ■ I never was ashed Shch wages; and
 ; !!; i ' ^
 il shall never think of giving them."
@@ -6623,7 +6570,7 @@ i of life."
 r ^ si
 PT
 'ij
-L No, indeed, " replied she — But
+L No, indeed, " replied she --But
 as we live in London, we ought to
 id ^
 r • tt
@@ -6634,9 +6581,9 @@ A
 I
 
 J
-K ** true — But as there is a great . difference between people with regard to their birth and fortune, there fhouid also be a difference in their manner of living and appearance; or elfe there is an end to all difiinfiion t ^ people of fashion, and people of no *■'’ fashion, without such a difference, will be confounded together: little people, when they strive to appear always make themselves ridir
+K ** true --But as there is a great . difference between people with regard to their birth and fortune, there fhouid also be a difference in their manner of living and appearance; or elfe there is an end to all difiinfiion t ^ people of fashion, and people of no *■'’ fashion, without such a difference, will be confounded together: little people, when they strive to appear always make themselves ridir
 euloiis, even - So contemptible, that ‘‘ they are not to be endured."
-Here Mrs. Selby coloured; and upon her ladyship’s railing her voice upon the animating Subject, felt herself rather offended — She took leave of her immediately; but her anger had not prevented her from making several obfer vadons on the furniture of the dressing
+Here Mrs. Selby coloured; and upon her ladyship’s railing her voice upon the animating Subject, felt herself rather offended --She took leave of her immediately; but her anger had not prevented her from making several obfer vadons on the furniture of the dressing
 room,
 X ^
 %
@@ -6660,7 +6607,7 @@ I nacks, to decorate her dreshng room,,
 ; rii
 i and to chule a piece of silk for a bruns
 •I wick, to wear in the morning, though;
-nothing could be more unbecoming to her. — As Ihe was a fat figure, a tisht
+nothing could be more unbecoming to her. --As Ihe was a fat figure, a tisht
 / CD
 I drels, of course, made her clumlinels
 more conspicuous: : dress in which
@@ -6829,7 +6776,7 @@ love for her,, sh much dissatisfied with
 V
 him, as to be ready for any other man
 "( '! I - '
-who fell in her way.. Very different was C she from. Fanny. — She, not being natu
+who fell in her way.. Very different was C she from. Fanny. --She, not being natu
 !i' ' of a licentious disposition, sincerely
 lamented every dayv her fall from vir
 III ^
@@ -6874,7 +6821,7 @@ a
 . Eg
 was with child. For a while she endeavoured to conceal her suspicions from herself, and wished to find herself deceived. When her alarming conjectures were confirmed, she was almost: frantic with remorse’and grief. Yet, as hope is ever at hand to flatter the miserable, fly. Sometimes, fancied that what she considered as an aggravating circumstance, might, in the end, prove rather a fortunate one, by making her lover more disposed to repair the injury he
 __ K
-had done her. But how to inform him of what she So much wissied him t6 know— — Was the perplexity! — Between her impatience and her delicacy the conflict was Severe. At last, the ardent desire fly felt to enjoy again the tranquillity of which she had been So long deprived, prompted her to acquaint Lumley with her situation, and
+had done her. But how to inform him of what she So much wissied him t6 know----Was the perplexity! --Between her impatience and her delicacy the conflict was Severe. At last, the ardent desire fly felt to enjoy again the tranquillity of which she had been So long deprived, prompted her to acquaint Lumley with her situation, and
 with
 0
 tt
@@ -6920,7 +6867,7 @@ M
 r F
 .
 7^
-whom she could impart her Sorrows.' Her Sorrows, for want of being communicated, becanie doubly oppressive : she could only Hope they would, of themselves, bring that life to an end, which she no longer wished tp preserve; as it was become an insupportable burden to her. The violent disturbance of her mind brought on a fever: she then prayed devoutly to die — or, at least, to miscarry : imagining she should be better able to conceal a miscarriage at that time, than when she was farther advanced in her pregnancy. — She was terrified at the thoughts of bringing active
+whom she could impart her Sorrows.' Her Sorrows, for want of being communicated, becanie doubly oppressive : she could only Hope they would, of themselves, bring that life to an end, which she no longer wished tp preserve; as it was become an insupportable burden to her. The violent disturbance of her mind brought on a fever: she then prayed devoutly to die --or, at least, to miscarry : imagining she should be better able to conceal a miscarriage at that time, than when she was farther advanced in her pregnancy. --She was terrified at the thoughts of bringing active
 child into the world; terrified to a de
 #
 , not to be described. ‘
@@ -6995,11 +6942,11 @@ I
 the distress which Jhe discovered, on his
 i
 being inclined to quit her, rather than I
-displease his father, absolutely overcame him; and he, at last, told her, that if. she would make herself easy, he would be hers. — Adding, that he would write to his father, let him know he was engaged to her beyond a poshbility of recalling his promise, implore his pardoij for acting without his approbation, on this one occasion, and asfure him that, upon every other, he would always endeavour to prove himself the most dutiful of Sons.
-This letter being dispatched— — hav
+displease his father, absolutely overcame him; and he, at last, told her, that if. she would make herself easy, he would be hers. --Adding, that he would write to his father, let him know he was engaged to her beyond a poshbility of recalling his promise, implore his pardoij for acting without his approbation, on this one occasion, and asfure him that, upon every other, he would always endeavour to prove himself the most dutiful of Sons.
+This letter being dispatched----hav
 >
 been written without his approbation, merely to quiet sally’s conscience, whom.
-he most Sincerely loved — he Sat dowii and began to consider what he had not
+he most Sincerely loved --he Sat dowii and began to consider what he had not
 once thought of while he was writing to vol. II E his
 «
 0
@@ -7016,7 +6963,7 @@ LI 1- : ■
 y'ax
 11his father, though it was a matter of
 t
-sis very great coniequence — lie began to
+sis very great coniequence --lie began to
 11 j' '' ' ‘ '
 IS consider how he and his Sally should
 ipi'! i live after they were married. The little
@@ -7096,7 +7043,7 @@ ij ■ ■
 I; ever, hurt Charles extremely, and he
 ijll ^ ^
 |1(|!
-I i^nlwered, rather shllenly — Tou may
+I i^nlwered, rather shllenly --Tou may
 I L «
 fi think fo; but I cannot. I have all
 lil!! ^
@@ -7121,10 +7068,10 @@ II
 /
 %. »
 The jourkev to London. 77
-** rsee — I See how it is, Mr. Selby, " replied she, bursting into tears; you are moved with everything but what relates to rm — You are quite insen fible to me — No — you never loved me — Your heart is harder than marble." -
+** rsee --I See how it is, Mr. Selby, " replied she, bursting into tears; you are moved with everything but what relates to rm --You are quite insen fible to me --No --you never loved me --Your heart is harder than marble." -
 .A
 9 ■ 9
-Here, falling into one of her fits, she frighted poor Selby to such a degree, that he was almost incapable of helping, her for Some time. She carried on the farce indeed So long, that he was nearly in as bad a state as ftoe appeared to be; with the concern he felt occasioned by thinking that he had by his violence -- *. as she called it — thrown her into that condition. When she recovered, therefore — a good while afterwards — he thought it necessary to Say everything in his power to pacify her. He consented, in short, to her preparing to ace
+Here, falling into one of her fits, she frighted poor Selby to such a degree, that he was almost incapable of helping, her for Some time. She carried on the farce indeed So long, that he was nearly in as bad a state as ftoe appeared to be; with the concern he felt occasioned by thinking that he had by his violence -- *. as she called it --thrown her into that condition. When she recovered, therefore --a good while afterwards --he thought it necessary to Say everything in his power to pacify her. He consented, in short, to her preparing to ace
 3 celerate
 • I
 i •
@@ -7135,7 +7082,7 @@ ilf
 V r
 I celerate their marriage: he was by no
 means, however, pleased with hurrying it up : he wished to acquaint his mother and Sisters with his design, and to invite them to his wedding. The latter part
-of his wish she would not hear of — She
+of his wish she would not hear of --She
 /
 insisted on his giving up the desired mi.
 
@@ -7151,7 +7098,7 @@ V •. - ' _
 I st ■ ■ ‘
 \
 \ r
-"Finding that everything was to be done in the most private way — legally— — left her, to make what preparations
+"Finding that everything was to be done in the most private way --legally----left her, to make what preparations
 - L '
 she deemed necessary on bis part, for the
 I
@@ -7166,15 +7113,15 @@ ill. She was choir delirious, anti, in the height of her fever, raved about Luml
 J
 'He ashed her why she loade herseff •uneasy about Lumley, who was nothing to her.
 $
-Yes, but he is, " Said isle, hastily Then, finking at once, into her form'^r dejection, added, — Oh! brother! yost
+Yes, but he is, " Said isle, hastily Then, finking at once, into her form'^r dejection, added, --Oh! brother! yost
 cannot think how he has used me."
 ••
 1
 My fears are confirmed then, " re
 9
-plied he — - poor, dear, unhappy girl!
-— But tell me, Fanny, what has he done— — me, you Shall never want a friend to. vindicate yoiir cause.
-Make yourself easy, my dearest sister— — ^
+plied he --- poor, dear, unhappy girl!
+--But tell me, Fanny, what has he done----me, you Shall never want a friend to. vindicate yoiir cause.
+Make yourself easy, my dearest sister----^
 will not only force Lumley to tell
 __ V
 E 4 me
@@ -7200,9 +7147,9 @@ with Lumley upon: fo. tender a fubje<st
 * ^ •*
 might be attended with, very dangerous ' consequences to them both, as She well
 knew that neither of them wanted spirit. She well knew that her brother Charles had very high notions of ho l| nour; she was distradled, therefore,. 1 Cst
-what she had inadvertently laid, fhouid prove fatal to hm, and to her cruel— —
+what she had inadvertently laid, fhouid prove fatal to hm, and to her cruel--—
 '■ i
-h but still beloved — seducer. She would'
+h but still beloved --seducer. She would'
 i i '
 I ‘ have given the world to recall her words,
 .. but
@@ -7224,11 +7171,11 @@ least, as it 'might entirely prevent the
 tt
 desired reparation. "
 '• '■’1 ’s
-Starting" up i in her bed, in order to speak to Charles, and not Seeing him in the room, she was quite frantic — she called — she screamed for "' the fervann "
+Starting" up i in her bed, in order to speak to Charles, and not Seeing him in the room, she was quite frantic --she called --she screamed for "' the fervann "
 '^ ■» 1' ' '‘V.
 V 7. •... ' *•
 V - r;
-When the maid' appeared — Where ■
+When the maid' appeared --Where ■
 is my brother said she, with «the ‘
 most eager accents; ^
 * .■ ^ ' !■
@@ -7237,9 +7184,9 @@ Gone, Madam.. '
 ft
 ^ ■
 -; V ’ •
-Gone! gone !" replied she, repeating the words in a hurry — Where is
+Gone! gone !" replied she, repeating the words in a hurry --Where is
 I
-•yiie gone — Run, run, good Sukey, -^
+•yiie gone --Run, run, good Sukey, -^
 E 5 and
 S
 9
@@ -7249,21 +7196,21 @@ y
 r
 82 .
 *
-^ and .try to overtake him — tell him 1 am worse — much worse, and entreat him to corn back to me directly."
+^ and .try to overtake him --tell him 1 am worse --much worse, and entreat him to corn back to me directly."
 0
 %
 \
 " Lord, miss !" answered Sukey, it is imposhble to think of overtaking him : he was gone above the length of a street before you called."
-Distraction!! — I am undone indeed — Where is Mr. Smith then?
+Distraction!! --I am undone indeed --Where is Mr. Smith then?
 )
 Call him to me."
 4
 I ^
 9
-Mr. Smith, Miss?? — Smith is not in the house— — has not been
+Mr. Smith, Miss?? --Smith is not in the house----has not been
 ¥
 here today
-« shall I do? — What shall I ‘‘ do Send for him — tell him I want
+« shall I do? --What shall I ‘‘ do Send for him --tell him I want
 to
 /
 \
@@ -7275,14 +7222,14 @@ tt
 n
 .
 I
-to speak with him immediately — bs send for Charles."
+to speak with him immediately --bs send for Charles."
 w
 Where can I Send to Mr. Selby?" cried the maid, except I knew where he was gone i
 *
-! that’s true — but yet Send for Mr. Smith — Send for both, " replied Ihe, in an agony of grief and terror —
+! that’s true --but yet Send for Mr. Smith --Send for both, " replied Ihe, in an agony of grief and terror —
 * W
-Send to Mr. smith’s lodgings, and to Sir Thomas Lumleyst — No, to Mr.
-Liimleyst in Pall Mall — for my bro — Good heaven! save theiti, or I am lost for ever !"
+Send to Mr. smith’s lodgings, and to Sir Thomas Lumleyst --No, to Mr.
+Liimleyst in Pall Mall --for my bro --Good heaven! save theiti, or I am lost for ever !"
 tt
 Who mufti send answered the maid; thinking she only rambled, and talked delirioufly. My mistress and
 E 6 Mist
@@ -7304,7 +7251,7 @@ st ' ' t
 ‘ tt,, ^
 go yourself, good Sukey, "
 it, ’. ^
-■ — laid Fanny — and go this moment,
+■ --laid Fanny --and go this moment,
 'i «
 or it will be too late." -.
 III
@@ -7381,7 +7328,7 @@ I his sister lb much worse, joined to the
 'disquiet he endured at the thoughts of
 jl his approaching marriage, had made
 I him really fo melancholy, that Sally
-I taxed him with indifference — with diff
+I taxed him with indifference --with diff
 I
 like. They passed a very disagreeable I evening together. However, as the rei.
 proaches with which she had loaded him
@@ -7389,7 +7336,7 @@ for
 »
 .
 f
-for his inattention, rendered him the more eager to convince her that she had wronged him by her unjust fuspicions he hastened to her early in the morning, accompanied her to church, and — married her, in the presenee of Mrs. Gibson her cousin, her maid Kitty, and a Gentleman who had never appeared before to him. This Gentleman, Sally told him, was a particular friend, and desired to give her away.
+for his inattention, rendered him the more eager to convince her that she had wronged him by her unjust fuspicions he hastened to her early in the morning, accompanied her to church, and --married her, in the presenee of Mrs. Gibson her cousin, her maid Kitty, and a Gentleman who had never appeared before to him. This Gentleman, Sally told him, was a particular friend, and desired to give her away.
 Charles, had he not been totally opprefsed by the train of untoward incidents abovementioned, which hindered him from looking up with his accustomed cheerfulness, might have seen a sheer upon the face of his wife’s friend; and had he perceived that sheer, it would have, probably, made him uneasy: but he escaped, at that time, by his want of
 discern
 9
@@ -7520,7 +7467,7 @@ tt
 I
 The Journey' to London, pj,
 %
-I « -- -- - — n! Can I live to be
+I « -- -- - --n! Can I live to be
 I *
 treated with such contempt ?"
 I
@@ -7596,7 +7543,7 @@ m
 *
 When he entered the room where his
 t
-bride Sat, expecting him, he Shook all over; he was as pale as death. The indifference with which he beheld her — being quite absorbed in thought — .alarmed her: ‘ she was not, however, ' alarmed entirely on his account. She was chiefly apprehensive that he had discovered Something which she had
+bride Sat, expecting him, he Shook all over; he was as pale as death. The indifference with which he beheld her --being quite absorbed in thought --.alarmed her: ‘ she was not, however, ' alarmed entirely on his account. She was chiefly apprehensive that he had discovered Something which she had
 * O
 imagined it very necessary to conceal from him : but she soon found, by his endeavouring to excuse his inattention to her, that Jhe had not occasioned his present uneasiness
 *, »
@@ -7632,11 +7579,11 @@ I i ■', f
 I with great eagerness, to exert herself,
 in and to make him sensible of the extreme
 ij; i
-II importance of her request — not to take
+II importance of her request --not to take
 I j any notice of what she had laid, not to
 rl..
 II ' take the least notice of her indeed in
-^ any shape." — Her cautions now came
+^ any shape." --Her cautions now came
 11
 I I too late; and as they placed before him
 ! I the consequences of what he had done
@@ -7644,7 +7591,7 @@ jj in the strongest light, he was ready to
 fink to the floor, at the bare idea of the
 III ■ ■ •. ‘ '
 I; business he should go upon in a few
-LI hours afterwards. — I am going to
+LI hours afterwards. --I am going to
 II throw mysels in the way of death:
 'i
 ! perhaps to kill a fellow-creature, a
@@ -7659,7 +7606,7 @@ I
 t
 9
 , gis
-'** promise him a long continuance in the world — I, too, myself, have no reason, according to the course of na ture, to expert a speedy dissfolution." Such were his refledlions, and the, thoughts of destroying Lumley, or of having his own being suddenly extin -- guished, made every nerve within him Shrink. He actually fetched fo deep a groan, that if Fanny had been capable of attending more closely to him, it
+'** promise him a long continuance in the world --I, too, myself, have no reason, according to the course of na ture, to expert a speedy dissfolution." Such were his refledlions, and the, thoughts of destroying Lumley, or of having his own being suddenly extin -- guished, made every nerve within him Shrink. He actually fetched fo deep a groan, that if Fanny had been capable of attending more closely to him, it
 could not have, escaped her. She only
 •. •' *
 said do not promise me, my Charles, to be Silent with regard to
@@ -7750,9 +7697,9 @@ cause or his sorrow from him. Wearied
 i with conjedbures^ and mot. much; pleased
 I with feeing himin a huniour fb different
 jiji „ te \ '
-I .from that in which she had reason — she
+I .from that in which she had reason --she
 ! ‘ij ' ‘ ■
-I thought — to expect: him, she Tefigned
+I thought --to expect: him, she Tefigned
 I Jierfelf to resh
 Fii
 •; i..
@@ -7782,12 +7729,12 @@ I
 1
 I
 . loi
-tieved strictly virtiions till seduced by Lumley, abandoned by him tcvall the misery which a mind like hers would, he knew, necessarily feel in fo difagreeable ar situation— — last: confmeration fpurredshim forward — He was not at all deficient in coiirage, yet a general tremor seized him at the sight of his antar gonish '
+tieved strictly virtiions till seduced by Lumley, abandoned by him tcvall the misery which a mind like hers would, he knew, necessarily feel in fo difagreeable ar situation----last: confmeration fpurredshim forward --He was not at all deficient in coiirage, yet a general tremor seized him at the sight of his antar gonish '
 ft
 Lumley, advancing to hihr with a pair of piftbls, pointed one at him,, and
 asked him if he was ready.
 ■»
-Charles replied — I have only two or three words to Say, "
+Charles replied --I have only two or three words to Say, "
 ** Be quick then, for I did not come ' here to talk.". - -
 F 3 I
 tt
@@ -7806,7 +7753,7 @@ g 102 The jcurnev TO London.
 I shppofe you did not, " ’ laid
 .' 'P ‘ >4*
 '^
-i Charles— — *• is there no poshbility of
+i Charles----*• is there no poshbility of
 ll deciding our difference in an arnica
 it; d;
 il,, ble manner? Would it not be more
@@ -7823,7 +7770,7 @@ I Kaftily. S' "■ ■
 , p • ^ .si. •.
 if ■ -
 
-I No?" answered ckiirl€s — >* Could’
+I No?" answered ckiirl€s -->* Could’
 Si'
 I you but bring yourself to marry I ‘‘"fanny, iail animomies^ bet ween' us I would immediately cease, *, ^ the
 I f ■ ■
@@ -7835,7 +7782,7 @@ g i *
 r: ^-, I it. 1^
 C ■»
 f 2
-i « Marry your stster! — Would you
+i « Marry your stster! --Would you
 I have fne marry a whore ?"
 ft
 4 *
@@ -7892,8 +7839,8 @@ iijil j ■
 I! raise him, by way of feeing whether he
 il; was really dead or not; neither did he
 h 1.. tr. «> '* ■' -* ■
-'ll think of making his. escape from the — -
-I supposed— — Ipot.
+'ll think of making his. escape from the ---
+I supposed----Ipot.
 ‘ •
 I
 't
@@ -7952,7 +7899,7 @@ F 5, Ti).
 9
 %
 ic .
-• To attempt to describe charles’s feelings oii his erttrance into this manrion of misery, is impostlble. — His mind was quite in a state of eonfufion;. his wife, his sister, his murdered adversary, by tiirns cr^groffed his thoughts, and equally contributed to the increase of his wretchednest. Sometimes he, terrified, saw yfixhfannfs eye, his unhappy father look at him with the feverest coun
+• To attempt to describe charles’s feelings oii his erttrance into this manrion of misery, is impostlble. --His mind was quite in a state of eonfufion;. his wife, his sister, his murdered adversary, by tiirns cr^groffed his thoughts, and equally contributed to the increase of his wretchednest. Sometimes he, terrified, saw yfixhfannfs eye, his unhappy father look at him with the feverest coun
 tt
 tenance: fometimesv a^ix.h/eanny*s f/iry he heard him correct his follies with the mildest accents, and’point out the fatal efifedfs of giving way to his pashon's, wic}i ill the lenity of a parent,
 tt
@@ -8032,7 +7979,7 @@ it: and they almost as soon heard that
 t ft
 ''Mr. Lumley was the man whom he shad killed.
 
-■ Maria, without thinking of consequences, hurried intosher fister’s cham.r ber, whose Senses had not been long returned; and, inconsiderately, exclaimed — Oh !• my God! what shocking news! Charles has killed Mr. Lum and Mr. Smith says he must Suf fer the law."
+■ Maria, without thinking of consequences, hurried intosher fister’s cham.r ber, whose Senses had not been long returned; and, inconsiderately, exclaimed --Oh !• my God! what shocking news! Charles has killed Mr. Lum and Mr. Smith says he must Suf fer the law."
 I
 There was rio occasion for her Saying any more. Poor Fanny Sunk down upon. her pillow (having just raised herself on her fister’s. hurrying into the rooni, surprised) and it was sometime before she could be restored tosher senses.
 ‘ ■ ■ !w ' • ' ‘
@@ -8070,7 +8017,7 @@ I he accepted of her feducer’s challenge.
 I When he had accepted of it, he did not
 t
 I imagine that he should be guilty of
-i murder— — the most atrocious sense of
+i murder----the most atrocious sense of
 I
 I; the
 I
@@ -8083,7 +8030,7 @@ tt
 9
 %
 , III
-the Word — by killing his infoknt antagonist.
+the Word --by killing his infoknt antagonist.
 \
 With these sentiments rolling in hb mind, Charles determined to write to his father, and to deferkl his conduct in the best manner he could; thinking he 'should, by a fair state of his case in every respest, contribute to the alleviation: of that grief which he must naturally have felt upon hearing what had happened • to shim. He therefore sat
 down, and, with all the ealmnefs in his power, gave shis father a clear and dte stindl account of everything that had
@@ -8145,7 +8092,7 @@ I !•.
 
 I
 . 113
-he was not much deceived — Fanny, had she not been seduced by the example of her mother and sister, and of the lum lay family, would never, it is probable, have wished to leave a parent whose indulgence she had ever experienced, and by whom she was always distinguished., Lewfon, as much prepossessed as he was in her behalf, found his affection for her rather increased by her father’s partiality : she was doubly dear to him by being hk favourite. He looked upon every mark of her father’s preference as an additional proof of her merit; and, when he saw there was no poshbility of gaining her heart, he transferred a great part of the. esteem and affection which he felt for to Mr., Selby. With these disposttions towards them, it is no
+he was not much deceived --Fanny, had she not been seduced by the example of her mother and sister, and of the lum lay family, would never, it is probable, have wished to leave a parent whose indulgence she had ever experienced, and by whom she was always distinguished., Lewfon, as much prepossessed as he was in her behalf, found his affection for her rather increased by her father’s partiality : she was doubly dear to him by being hk favourite. He looked upon every mark of her father’s preference as an additional proof of her merit; and, when he saw there was no poshbility of gaining her heart, he transferred a great part of the. esteem and affection which he felt for to Mr., Selby. With these disposttions towards them, it is no
 ■'■i.
 matter of wonder that he spent much
 of his time with Mr. Selby, especially' ' ■
@@ -8195,7 +8142,7 @@ tion; an action fo repugnant to religion j an action which revolted fo much agai
 In this situation was poor Mr. stel by; nor was his young neighbour ima much Ids agitated one. He also had read the unwelcome article in his news paper, and was exceedingly (hocked at it. So greatly indeed was he Shocked at it, that he did not know whether he Should go
 to Mr. selby’s or not; as he, could not
 » A *
-bear the thoughts, fuppostng him ignorant of the affe(5ling event, of being the first to make him acquainted with it. Besides, his own father at this, very time lay dead. — He had been dead a week, and was to be buried the next day. Con
+bear the thoughts, fuppostng him ignorant of the affe(5ling event, of being the first to make him acquainted with it. Besides, his own father at this, very time lay dead. --He had been dead a week, and was to be buried the next day. Con
 w
 eluding, therefore, that he Should then See Mr. Selby, as he had invited him to the funeral, Jie determined to keep close at
 hoitie i
@@ -8213,25 +8160,25 @@ Lewfon found Mr. Selby with the
 f
 melancholy paper in his hand, and, with a countenance which expressed more than words can describe''
 ''
-As Soon as Mr. Selby Saw lewson ad •vancing, he held the paper — Read here, my friend, " Said the amiable,. distressed man, looking earnestly at him. Then, clasping shis hands in an agony of gries, and with uplifted eyes, he added — Good God! Can there posti
+As Soon as Mr. Selby Saw lewson ad •vancing, he held the paper --Read here, my friend, " Said the amiable,. distressed man, looking earnestly at him. Then, clasping shis hands in an agony of gries, and with uplifted eyes, he added --Good God! Can there posti
 r bly
 r
 \
 %
 118 The Jou R N E Y to Lon don.
-bly be. fo rhuch difference between one man’is child and another? — And
+bly be. fo rhuch difference between one man’is child and another? --And
 3
-yet I once thought my boy as well y disposed— — "
+yet I once thought my boy as well y disposed----"
 %
 \
 he ceased speaking, to wipe away the tears, which rushed into his eyes, in
 ^ m ^
 Spite of all his efforts to stop them,
-lewson attempted to Speak comfort to him, but he replied — I thank you,
+lewson attempted to Speak comfort to him, but he replied --I thank you,
 \
 young man; but you know not what it is to have a Son a murderer i pray God you never may."
 lewson, Seeling the force of his friend’s Sorrow, Seeling also for his fan ny, who could not, he knew, but be extremely grieved to have her brother,
-of whom she was very Sond, in So un sortunate a Situation — Supposing her not
+of whom she was very Sond, in So un sortunate a Situation --Supposing her not
 to
 «
 I
@@ -8239,9 +8186,9 @@ I
 
 to be particularly interested in the event
 «
-which had occasioned it — (and he was quite ignorant of her being fo) immediately desired Mr. Selby to endeavour to make himself easy; adding, that he would, as soon asshis father was buried, fet out directly for London, and do everything in his power to serve his fon,
-Selby, grasping his hand, told him, that he was more his Tonne than ever Charles had been. i — I will go to Lon
-■ don with you, " continued he, and bring all my family home; but sher I cannot, must not ever enjoy the happiness of having my Charles with me again. Perhaps he must fuf fer an ignominious death — Unfortu nate young man 1"
+which had occasioned it --(and he was quite ignorant of her being fo) immediately desired Mr. Selby to endeavour to make himself easy; adding, that he would, as soon asshis father was buried, fet out directly for London, and do everything in his power to serve his fon,
+Selby, grasping his hand, told him, that he was more his Tonne than ever Charles had been. i --I will go to Lon
+■ don with you, " continued he, and bring all my family home; but sher I cannot, must not ever enjoy the happiness of having my Charles with me again. Perhaps he must fuf fer an ignominious death --Unfortu nate young man 1"
 '' ‘ ^ Lewfon
 ft
 t
@@ -8271,7 +8218,7 @@ discovery of his daughter’s Solly; doubly So, as it liad brought his Son into
 ■ • • •'-
 So dreadsul a condition : he grieved ex
 r
-ceedingly for them both. — Deeply concerned was he for his children, and Lewfon was not slightly concerned on vol. IJ. G fanny’s
+ceedingly for them both. --Deeply concerned was he for his children, and Lewfon was not slightly concerned on vol. IJ. G fanny’s
 «
 tt
 
@@ -8312,7 +8259,7 @@ II
 t;
 fi
 122 .
-fanny’s account: he was truly wretched about her — Notwithstanding that part of her brother’s letter which appeared strongly to her disadvantage, he pitied her, he loved her — Fie .therefore, repeat
+fanny’s account: he was truly wretched about her --Notwithstanding that part of her brother’s letter which appeared strongly to her disadvantage, he pitied her, he loved her --Fie .therefore, repeat
 4
 edly .told Mr. Selby, .that he was quite ready to attend him to London, and to give him and his family every kind of
 assistance within .the reach of his abilities.
@@ -8425,7 +8372,7 @@ i
 ‘ I • 4
 ; f' t '
 Turniitg briskly about, at last, Mrs.
-!i Selby exclaimed — Good God 1 Mr. S ** Selby; who. thought of feeing yo;
+!i Selby exclaimed --Good God 1 Mr. S ** Selby; who. thought of feeing yo;
 ; '
 III
 LI Why not?" replied he; but I
@@ -8453,7 +8400,7 @@ the man' who dares to call me cox shall repent of it; nor am I a monkey, neither
 I
 I
 " O Sir, " answered Mr. Selby, ** you may place which of the words you ■ like best to your own account, and leave the other for your companion."
-For me. Sir ?" Said Smith — Wshat:
+For me. Sir ?" Said Smith --Wshat:
 * 4
 do you mean by affronting me. Sir?
 or this Gentleman, Sir ^ I don’t bet
@@ -8496,7 +8443,7 @@ I,
 _ jw ^
 1 i
 . 0 - i
-« D -- -- -- -- n you — we are not jour
+« D -- -- -- -- n you --we are not jour
 icllows, " cried Smith.
 tt < ^ ‘ »
 . \ ^. tt. ^, 9 ‘ « I ♦
@@ -8510,19 +8457,19 @@ tt
 I
 I
 ., iq
-'No" — added. Dermot — . we - will
+'No" --added. Dermot --. we - will
 «
 Soon let him See that we have not our
 ft
 '♦
 %
 fellows in England, no, nor in Jre
-1 land neither, honey. — This Sword,
-Sir" — continued’he, looking fiercely at Mr. Selby, * and drawing it half out of the Scabbard — this Sword, Sir, shall ■ Soon malic you know, as it has many a better man,, that. I am not your itl low. Sir, in anything. D -- -- -- -- -- n me';
+1 land neither, honey. --This Sword,
+Sir" --continued’he, looking fiercely at Mr. Selby, * and drawing it half out of the Scabbard --this Sword, Sir, shall ■ Soon malic you know, as it has many a better man,, that. I am not your itl low. Sir, in anything. D -- -- -- -- -- n me';
 do you'know That I shave often dis patched a brace of impertinent pup in a morning with a brace of bul lets, and then sat down to my„te'a with as much composure assis L had but that moment stepped out; of bed ?"
 •«.
-j Aye" ' — replied mr.'shelby*rrtfeteh
-ing a deep Sigh,, on the recollection of charles’s unhappy affair — ‘‘ it is to the
+j Aye" ' --replied mr.'shelby*rrtfeteh
+ing a deep Sigh,, on the recollection of charles’s unhappy affair --‘‘ it is to the
 G 5 ready
 I
 «
@@ -8535,7 +8482,7 @@ I
 ‘I ready use of those cursed weapons
 M;
 ; : of destrudlion that 1 must impute the
-of my fen. — Tell me, " — conti!
+of my fen. --Tell me, " --conti!
 !
 he,, turning to his wife, have you seen my poor boy ?"
 \
@@ -8543,7 +8490,7 @@ I Lord! Mr. Selby !" Said she, what
 2:
 I a question? Can you shppofe I should
 I
-I, go to shch a place as Newgate to see ' him? No — since he has brought him
+I, go to shch a place as Newgate to see ' him? No --since he has brought him
 I ^
 i self there, he must be content to stay
 i ‘‘ till he can get out."
@@ -8559,8 +8506,8 @@ I
 I Weil, Madam; if you. a, re too fine a
 Lady to visit your own child in his assliftion, I shall go to him vv^ithout
 I
-you — but first kt me See my poor
-Fanny. — Go, Polly, " added he to
+you --but first kt me See my poor
+Fanny. --Go, Polly, " added he to
 Maria, and prepare your Sister for my •. •. com
 V
 /
@@ -8576,10 +8523,10 @@ J.. S S. ■ ^.4. J
 claimed her father.
 She has been out of them a long ‘‘ while, I think, " replied Mrs. Selby.'
 tt
-So you have all" — said he — Come — where is my child? where is my Fanny? Show me the way to her."
+So you have all" --said he --Come --where is my child? where is my Fanny? Show me the way to her."
 I
 L My sister talks sensibly, sometimes"
-I r — said Maria.
+I r --said Maria.
 I ^,
 '
 *
@@ -8621,11 +8568,11 @@ here. Hide me, Sukey, hide me —
 ■ ^ ^
 ger.
 '‘O < fi ‘ >
-I? I am not — I will not be angry with
+I? I am not --I will not be angry with
 ■ I 1
 i ‘‘ you, my poor girl, ". replied Mr.
 I iff j ' y ■ }
-II Selby, going up to her bedside— —
+II Selby, going up to her bedside--—
 !!ii' ' ^
 LI P. not alarm yourself about anything,
 I life ^ ^ ^ '
@@ -8640,9 +8587,9 @@ t. 133
 r
 my dear, " continued he, Sitting down by her.
 0.
-Oh! Sir, you are too goodan svvered stie — Then, after a pause, and a deep sigh ~ you do not know, "
-added she, looking at him in a manner moving beyond expreshon — that I have murdered my brother."
-Poor, dear, unfortunate child" — answered Mr. Selby — Sobbing aloud ^ he could not suppress his feelings upon the agitating occasion: : Maria stood an unconcerned fpedator; only saying, every now and then — Lord! how
+Oh! Sir, you are too goodan svvered stie --Then, after a pause, and a deep sigh ~ you do not know, "
+added she, looking at him in a manner moving beyond expreshon --that I have murdered my brother."
+Poor, dear, unfortunate child" --answered Mr. Selby --Sobbing aloud ^ he could not suppress his feelings upon the agitating occasion: : Maria stood an unconcerned fpedator; only saying, every now and then --Lord! how
 you ramble, Fanny!"
 ♦ •,
 $ 0 * •
@@ -8683,13 +8630,13 @@ T When her father beheld her in that
 • i .4, / ■ I
 V
 ■I: ‘V
-|| ' mst^’^choly state, he went into the par li lour, tq reproach his wife — who had dist
-ll mified her company — for not having in
+|| ' mst^’^choly state, he went into the par li lour, tq reproach his wife --who had dist
+ll mified her company --for not having in
 J formed him of her daughter’s ilinefs at
 • • *
 first, that ■ he might' have come up to S town before, and have seen that she wa.
 .;
-properly attended. — It was, indeed, hep i". appre
+properly attended. --It was, indeed, hep i". appre
 . d *
 
 I
@@ -8709,7 +8656,7 @@ N '
 I
 . 1^5
 %
-apprehensions with regard to his coming to town, which prevented Mrs. Selby from giving her husband the informa r tion he mentioned. — She did not choose to have her pleasures interrupted by Ms presence.
+apprehensions with regard to his coming to town, which prevented Mrs. Selby from giving her husband the informa r tion he mentioned. --She did not choose to have her pleasures interrupted by Ms presence.
 w
 Mr. Selby fet all night by the fide of his Fanny, and all night did she continue raving about her brother, about Lumley, and about her father.
 V
@@ -8771,10 +8718,10 @@ He 'stood rooted to the earth, with his
 ft
 i ■ ' ’
 11^8, ..
-eyes .cast: down : he could only articulate — My father!"
+eyes .cast: down : he could only articulate --My father!"
 r
 'My child! my fon!" replied, thfe
-I good old ' man, advancing to him, and' i Soiding his arms about him — if what
+I good old ' man, advancing to him, and' i Soiding his arms about him --if what
 II O ' ■
 ij you have wrote to me is the truth,
 I you have been more unfortunate than' **' as what you did was in dei
@@ -8790,10 +8737,10 @@ had' not come upon you : and if
 || ' I
 i
 . ' r^g
-ststance in his power — I will begin hist, " acldeci he, by bailing you."
+ststance in his power --I will begin hist, " acldeci he, by bailing you."
 'There is no bail to be admitted stoi* murder, " replied gha.nles, if inten -- tional r but that is not the case here :
 Mr. Lumley fairly challenged me to him; but as his challenge was only a verbal one, I cannot produce it in my justihcation : > I have no per
-‘ fon to be witness for me, and the fa are determined to ruin meif {iof fible,, merely for my fisterst prestiming;. to think of their fon. — But be com Sir, " continued he to his father, Lumley, I am told, is not yet dead if he can be sofar restored to
+‘ fon to be witness for me, and the fa are determined to ruin meif {iof fible,, merely for my fisterst prestiming;. to think of their fon. --But be com Sir, " continued he to his father, Lumley, I am told, is not yet dead if he can be sofar restored to
 his fenses, as to be capable of own that he was the aggressor, and can be prevailed on to do fo, you ‘‘ will, at least, have the fatisfastion to
 know
 \
@@ -8843,7 +8790,7 @@ his .father fetched a deep groan.
 ■ ■ .............. :.
 I -.
 tt
-When they were all three more composed, Lewfon said— — Mr. Lum ‘‘ lay is not astually dead, I am willing to believe that my friend maybe bailed : if So, I will answer for his appearance." ■
+When they were all three more composed, Lewfon said----Mr. Lum ‘‘ lay is not astually dead, I am willing to believe that my friend maybe bailed : if So, I will answer for his appearance." ■
 S
 * f
 * •
@@ -8868,7 +8815,7 @@ I'..
 I.
 o'. _
 !...
-lewson, grasping his hand by way of acknowledgment, answered — What
+lewson, grasping his hand by way of acknowledgment, answered --What
 1;
 I is pass: cannot be recalled; but I will
 I
@@ -8939,12 +8886,12 @@ The conclusion of his intelligence was received with the fmeereft fatlsfac tion,
 \
 9
 I , 145
-When Lcwifon had enjoyed the happiness which he had communicated a few moments, he begged that a coach might be called, to carry them from that dreadful place. — The fees are all paid, my dear friends, " continued he : you have nothing' to do, therefore, but to go home."
+When Lcwifon had enjoyed the happiness which he had communicated a few moments, he begged that a coach might be called, to carry them from that dreadful place. --The fees are all paid, my dear friends, " continued he : you have nothing' to do, therefore, but to go home."
 The elder Mr. Selby, clasping him in
 I •
 his arms, told him that he was his belt friend..
 0
-Charles added — I shall never, northeast ‘‘ ver be able to repay you."
+Charles added --I shall never, northeast ‘‘ ver be able to repay you."
 I
 • • •
 When the coach came, they stepped into it very cheerfully; that is, the Mr.
@@ -9003,7 +8950,7 @@ Pushing the diningroom door open, he Saw no body there. He then went
 direstly to the chamber, wondering that his Sally did not sty to meet him.. Seeing the bed curtains drawn, he began to Scar that she was stck: he undrew them
 S
 immediately, and discovered her asteep
-H 2 — sh
+H 2 --sh
 1
 ft
 i
@@ -9019,7 +8966,7 @@ I
 I ^48 .
 (
 i
-— in the arms of a young fellow to i: whole face he was a stranger; a man
+--in the arms of a young fellow to i: whole face he was a stranger; a man
 who, by his clothes. See. See. which lay by the bedside, appeared to be in the
 ■: /
 higher, walks of'life.;
@@ -9031,11 +8978,11 @@ At the first moment of this very un
 t *
 expested discovery,; Charles was almost
 I
-petrified — When he came a little to the
+petrified --When he came a little to the
 tt
 iise of his senses, he thought of demanding Satisfastion from the invader of his bed, the injurer of his honour; but when he ’confidered that he had himself
 r
-already murdered, perhaps, one of his felloiv creatures, his tongue was chained up. — His nresscstions on the scenes in which he had fo lately been engaged, checked the career of his resentment. Suddenly returning to the diningroom, he threw himself into a chair, and' appeared to be almost; bereaved of his in -- ■ tellests,
+already murdered, perhaps, one of his felloiv creatures, his tongue was chained up. --His nresscstions on the scenes in which he had fo lately been engaged, checked the career of his resentment. Suddenly returning to the diningroom, he threw himself into a chair, and' appeared to be almost; bereaved of his in -- ■ tellests,
 ft
 0
 t
@@ -9131,7 +9078,7 @@ n
 I J
 . 153 |
 *■ j
-This speech was far from operating in the manner desired. It had no other. effest upon Charles than to rouse all his indignation. He flung her from him with the utmost; contempt, and would not hear a syllable in her defence. Then, turning to his father, he said— — see, Sir, how my disobedient behaviour
+This speech was far from operating in the manner desired. It had no other. effest upon Charles than to rouse all his indignation. He flung her from him with the utmost; contempt, and would not hear a syllable in her defence. Then, turning to his father, he said----see, Sir, how my disobedient behaviour
 to the best of parents is punished:
 »
 may the severity of my punishment,
@@ -9193,13 +9140,13 @@ Mr.. Selby was, at that moment, in .formed shy Maria, that, two or three people 
 As soon as he appeared, several: tradesmen who had, in vain, requefbed the payment of thdr bills from Mrs. Selby,, put copies of them into his hands, and insisted upon their being immediately - discharged. He told them very calmly,
 'that he was unable to comply with their demands; he told them also, that most
 I
-cf the articles in their bills had been ordered equally without his knowledge and approbation. — That was nothing
-** to them — they Said— — things.
+cf the articles in their bills had been ordered equally without his knowledge and approbation. --That was nothing
+** to them --they Said----things.
 ^ had
 #
 \
 had been sent home to Mrs. Selby, and
-he muss: pay for them." — He replied,
+he muss: pay for them." --He replied,
 #
 that he coulel not poffibiy pay for them, as the film amounted to much more than his estate would produce in two or three - years : adding, that as he had neither ordered their goods, nor known of their
 being ordered, he would on no account
@@ -9234,15 +9181,15 @@ what they had occasion for, and what ' was absolutely necessary for all genteel
 i
 people.
 O
-Genteel people!" cried he, lifting up his hands and eyes — - Genteel people! Never let me hear the word again; a word which has, been' A fo fatal to my peace : a word which,, tristing as it may seem, has ocasioned.
+Genteel people!" cried he, lifting up his hands and eyes --- Genteel people! Never let me hear the word again; a word which has, been' A fo fatal to my peace : a word which,, tristing as it may seem, has ocasioned.
 ; the ruin of my family. Byyour^^«
 Gonnestions,. Mrs. Selby, " conti nued be, - you have brought one of my daughters almost to the grave,. my fon,. within an ace of a halter, and.
-me very near a gaol; while you and. the ot.dr girl, there" — darting a contemptuous
+me very near a gaol; while you and. the ot.dr girl, there" --darting a contemptuous
 t
 . I
 V
 • , lyg
-tuous look at Maria — have caught the fashionable indifference which ■ renders you both insensible of the misfortunes .you have created, and ' incapable of extricating yourself from
+tuous look at Maria --have caught the fashionable indifference which ■ renders you both insensible of the misfortunes .you have created, and ' incapable of extricating yourself from
 I
 them : nay, you do not feerri desirous of getting out of them." ^
 •w
@@ -9309,7 +9256,7 @@ ri
 In this frame of mind she went to her filler : she found in an agony of grief
 at hearing that her father was hurried away in fo ignominious a manner; and it made her more than ever repent of
 her indiscretion.
-All the Selbys now were in Some de gree punished for their imprudence — ' Mrs, Selby was not, however, yet convinced of the impropriety of her con dust, and' of the neceshty there was for a reformation of it. There was a necessity, indeed, of letting her correstionrs continue for her life.
+All the Selbys now were in Some de gree punished for their imprudence --' Mrs, Selby was not, however, yet convinced of the impropriety of her con dust, and' of the neceshty there was for a reformation of it. There was a necessity, indeed, of letting her correstionrs continue for her life.
 As to the rest: of the family, their measure of Sorrow was almost full.
 lewson
 I
@@ -9354,7 +9301,7 @@ V
 While this business was tranfasting, Charles heard that Lumley was quite out of danger of dying from the wound he had received.
 Thank God! thank God!" Said
 *.. A
-Mr. Selby, lifting up his eyes and hands. with a grateful fervency — I shall not then have the misery of feeing my fon brought to a shameful end."
+Mr. Selby, lifting up his eyes and hands. with a grateful fervency --I shall not then have the misery of feeing my fon brought to a shameful end."
 .j
 /
 
@@ -9387,7 +9334,7 @@ live, but be willing.to do me justice."
 I, > ... », »
 father having listened to her with the
 ! ' ^. ‘V
-kindest concern, replied, — ‘‘ And can
+kindest concern, replied, --‘‘ And can
 »
 you, my dear Fanny, have ressesteci ferioussy on what you have, just ut Is it possible for you, fup postng Mr. Lumley ever 'fo ready to do you what you call justice; is it possible for you to bring yourself to
 accept him? Could yon, my child,
@@ -9431,7 +9378,7 @@ i ^
 , place her in the same rank with wo
 i • .n
 1 men who have preserved their cha
-rasters unsullied. You cannot there my dear girl, be ever happy with Lumley, should he offer to make yoii his wife. — You will meet only with disappointment and disgust:, re proaches or neglest. However, that you may not think I have Set this matter in a false light, I can affure you that Lumley will not, on any account, entertain thoughts of mar you. Men who are capable of Sedustion, and of defending what they have done afterwards, at the ha
+rasters unsullied. You cannot there my dear girl, be ever happy with Lumley, should he offer to make yoii his wife. --You will meet only with disappointment and disgust:, re proaches or neglest. However, that you may not think I have Set this matter in a false light, I can affure you that Lumley will not, on any account, entertain thoughts of mar you. Men who are capable of Sedustion, and of defending what they have done afterwards, at the ha
 tt ^
 zard of their lives, will never be
 brought to repair their condust. Men
@@ -9440,7 +9387,7 @@ sex; but how much more are
 women to be condemned for Suffer
 them to gain improper advan
 tages
-. i6g tages over them. — But do not let thd
+. i6g tages over them. --But do not let thd
 ft
 truths which I have delivered,. and which, painful as the utterance may have been to you, I could not, as a
 friend, as a parent, conceal -- -- do not
@@ -9460,7 +9407,7 @@ hopes, to ind ulge, Chimaeras me ver t0
 st she reali&sh" ' a,
 f .> i : : ■" ‘ ■ ■ ■-■■■.'-.! -, V -, r.. I ■
 , V ^ t( A ^■. 1 -? ' it.; :? i,; ' \
-- r Poor Farjny, sturing the wfiole time otf' sherifasherst tfpe^ing to her, : wa dro, \vh •«di.ih tear, she vqqujd ^bnly reply to, what lie Said with Sighs and Sobs, whiciximadc him fear that she felt but too sensibly the truths he had advanced : .yet, L as he ■thought it jhisidu ty 'fo Ttell iher what .she shad reason to. expest; in order to pr© went sher’ meeting wkh any fiature disappointments, he proceeded, as Soon as she Saw her: grow a fittle 'calm,; toinsorm her of all ithat lewson bad done sew them; adding, however, that it was by sho sheairs his intention to permit him to injure shimself. on his account, and that she Would Sell part of shis estate, to pay the debts which his, wife had oontrasted. — « I will then, " .continued. he, ‘‘ rake
+- r Poor Farjny, sturing the wfiole time otf' sherifasherst tfpe^ing to her, : wa dro, \vh •«di.ih tear, she vqqujd ^bnly reply to, what lie Said with Sighs and Sobs, whiciximadc him fear that she felt but too sensibly the truths he had advanced : .yet, L as he ■thought it jhisidu ty 'fo Ttell iher what .she shad reason to. expest; in order to pr© went sher’ meeting wkh any fiature disappointments, he proceeded, as Soon as she Saw her: grow a fittle 'calm,; toinsorm her of all ithat lewson bad done sew them; adding, however, that it was by sho sheairs his intention to permit him to injure shimself. on his account, and that she Would Sell part of shis estate, to pay the debts which his, wife had oontrasted. --« I will then, " .continued. he, ‘‘ rake
 ber
 /
 I
@@ -9477,7 +9424,7 @@ ft
 9 '
 Fanny, in whose heart every rising hope was, by this time, crushed, every fond
 ft
-expestatioh destroyed, answered, with a deep Sigh; while she strove to wipe away the starting tears — I shall be gfed. Sir,
+expestatioh destroyed, answered, with a deep Sigh; while she strove to wipe away the starting tears --I shall be gfed. Sir,
 I I
 to be reihoved; from a place which
 seems to put mein mind of what i ** wish never to reniember; or to re member it in such a manner, as to be
@@ -9508,7 +9455,7 @@ t ■ ' X ' • *
 father replied, Whatever rnif
 fortunes we labour under, however
 • -■ #*
-disagreeable ouf existence may be, we are not to wish with anxiety for put removal from a world of trouble — By endeavouring to regulate our pashons,
+disagreeable ouf existence may be, we are not to wish with anxiety for put removal from a world of trouble --By endeavouring to regulate our pashons,
 and to Submit patiently .to the dispensations of Providence, we have a st claim to the; divine Savour; and we may be assured that patience and re ^ sst Signation will bring us. Sooner or later, the relief we sigh for: they, will make us equally ready to live,, st nd toidie, contented." y
 •%.
 A A ^ y
@@ -9637,7 +9584,7 @@ You wrong me more than you cast ** conceive by talking in this manner ** my dear
 1 to make you unhappy: nor will she,
 I am persuaded, do you fo great an injury. Gould yott, • by any other I means, become my Son, I should glory
 j in Such a relationship: you will, I trust,
-I however, continue my friend — Lean
+I however, continue my friend --Lean
 j not Suffer you to be imposed upon."
 tewson Sighed, grasped Mr, selby’s '
 (hand, and Said, I will be ever your
@@ -9664,7 +9611,7 @@ i I. ^ ^ I
 > t
 No, " said Mr. Selby, that will not. j
 do, Charles : she will then, make an addition to her vices, by asting just the same part your mother has done,
-by running you deeply in debt. no tt as you cannot be divorced from het for want of witnesses— — neither st Lewfon nor I saw her in the arms
+by running you deeply in debt. no tt as you cannot be divorced from het for want of witnesses----neither st Lewfon nor I saw her in the arms
 I ^ ♦ of
 s
 f
@@ -9703,11 +9650,11 @@ Mrs.
 %
 
 V
-* Mrs. Selby, at first:, stew into a violent passion, and Said, that she did not feaow what he meant — She descended, however, afterwards, from her altitudes, and shed some hypocritical tears ~then rising again, she assured him, in a pretty loud key, that she had not had a Single thing' but what..eyery woman of fashion thought
+* Mrs. Selby, at first:, stew into a violent passion, and Said, that she did not feaow what he meant --She descended, however, afterwards, from her altitudes, and shed some hypocritical tears ~then rising again, she assured him, in a pretty loud key, that she had not had a Single thing' but what..eyery woman of fashion thought
 quite proper: adshng, that people might as well be out of the world as want everything in it.
-To the conclusion of this^fpeecjh Mr. Selby replied — ‘‘ For once in your life your are in the right, and as I am quite of your way of thinking, I ‘‘ am determined that you shall, for the
+To the conclusion of this^fpeecjh Mr. Selby replied --‘‘ For once in your life your are in the right, and as I am quite of your way of thinking, I ‘‘ am determined that you shall, for the
 live quite out of the wqrld^
-I will carry you down with the rest of the family to — shire ist a few days." '*
+I will carry you down with the rest of the family to --shire ist a few days." '*
 , 16,, Here
 N.
 \
@@ -9730,13 +9677,13 @@ L. '.
 to be excepted,, as she hated nothing fd much as the country.
 : - _. ' ■ ■ ■ • ■ S
 » ' And pray how are yqu to fubfist,
-'Child ?" Said her father. — I shall not
+'Child ?" Said her father. --I shall not
 pay for your board in London."
 \ 4
 i ■ •
 r
-I : She pertly replied — I donst Siip* i pofe.you will:. but I shall run the
-I st risque of providing for linyself; — I
+I : She pertly replied --I donst Siip* i pofe.you will:. but I shall run the
+I st risque of providing for linyself; --I
 >
 I had much rather starve in London,
 than live III the greatest plenty ia'the
@@ -9759,13 +9706,13 @@ ft •
 i. ■ ' ' ^
 t
 Just when Jhe and her mother were flouncing out of the room, Mrs. Jeffers
-Son entered it. — ' '
+Son entered it. --' '
 ... •
 ''' ^
 ■ So, Mrs. Selby, " cried she, flumping down in the first chair she came to,
 I ^
-which happened to she at Mr. selby’s back — You have made a fine
-^ do London— — have brought your
+which happened to she at Mr. selby’s back --You have made a fine
+^ do London----have brought your
 ♦ ^ %
 9
 hogs to a fine market, as people say,
@@ -9795,20 +9742,20 @@ j
 * ‘
 st friendihip to you and your ehildrenv
 If
-st — Indeed, to be shre, as Mr. Jefferson
+st --Indeed, to be shre, as Mr. Jefferson
 I
 I ■ says, ’tis no manner of business of
 I '■
 I, mine; but only as I have always had I st a regard tor your facher r poor man!
 he is dead and gone. Siei little thinks
 I *
-as hcxw his granci daughters are *• W' — res, and his gra^dfbn going to
+as hcxw his granci daughters are *• W' --res, and his gra^dfbn going to
 [;
 i be hanged. Lord have mercy upon us I IS he could but; look out of his
 I!
 #
 i st: grave, and See what you are all come
-st to! — and, indeed, though I could st not divine all this, I thought as how st ino good would come of your being st So great with my Lady Lumley, and st shch tag rag of quality, while you st' tolled up your nose at the city; yet I st would have you to know, Mrs. sel by, that, let them say what they will,
+st to! --and, indeed, though I could st not divine all this, I thought as how st ino good would come of your being st So great with my Lady Lumley, and st shch tag rag of quality, while you st' tolled up your nose at the city; yet I st would have you to know, Mrs. sel by, that, let them say what they will,
 st we have got all the money, and can
 st afford
 ♦
@@ -9816,13 +9763,13 @@ st afford
 t
 thi: Journey" TO London, i&j
 P
-st ’afford to spend ten shillings, aye, twert i st ty, to their one : this comes of youf st holding up your head higher than st your neighbours. — People who have st but a little, Mrs. Selby, should live st within their rn^ieans, and not copy st high ffowni gentry, who never knew st what they would be at themfelves4 st and therefore I donst know how you st should, who, though you did all you st could tofimitate them, were no more st like them than a raven is like a fwani
+st ’afford to spend ten shillings, aye, twert i st ty, to their one : this comes of youf st holding up your head higher than st your neighbours. --People who have st but a little, Mrs. Selby, should live st within their rn^ieans, and not copy st high ffowni gentry, who never knew st what they would be at themfelves4 st and therefore I donst know how you st should, who, though you did all you st could tofimitate them, were no more st like them than a raven is like a fwani
 f
 st And yet it was nothing but My Lady and Your Ladyship, from morning
 4
-st tonight— — Lady Lumley does this, ’*
+st tonight----Lady Lumley does this, ’*
 i
-st and st Lady Lumley does that" * — God st forgive me! Mrs. Selby, but I look st upon myself as good as my Lady st Lumley every day I rise, and, per st haps, have as much to spend; and yet, heaven be praised I. I have nei
+st and st Lady Lumley does that" * --God st forgive me! Mrs. Selby, but I look st upon myself as good as my Lady st Lumley every day I rise, and, per st haps, have as much to spend; and yet, heaven be praised I. I have nei
 st there
 /
 1
@@ -9830,8 +9777,8 @@ st there
 I
 [
 -‘ there whore nor rogue in wy family,
-I V nor in Mr. jefferson’s neither— —
-^ st, fo says he, my dear — for it was hest
+I V nor in Mr. jefferson’s neither--—
+^ st, fo says he, my dear --for it was hest
 told no as how your fon was in new st gate for debauching miss Lumley,
 'st while young lumley had got youf'
 st daughter with child; that) Smith, that st notorious villain, had done The Same I st by Mist Polly; and io the two young
@@ -9848,11 +9795,11 @@ Z.. je.r VI
 i ■ C 'i ■. L; .1
 I
 I ' * Here Mr. selby’s patience was quite
-exhausted — Coming forward,, he cried'
+exhausted --Coming forward,, he cried'
 *
 f -
 ! out in a very sharp tone, looking sternly
-at her — st You have been telling a pack ■ .st of lies. Madam: .and, whoever you
+at her --st You have been telling a pack ■ .st of lies. Madam: .and, whoever you
 I
 , 'st are, you have acted a very unfriendly,
 .st a cruel., part, : by, coming tp dist
@@ -9869,7 +9816,7 @@ st turb the peace of ray farailyi As'
 ‘‘ the father of my children, whom' st you have' wantonly afpersed, 1 insist
 st upon your leaving my house direcstly 5 ‘ st Linfist too; on your unfayirig all that st you have Said j I insist also uponr st your contradi<sting, upon your owst st knowledge, every fcandalons report st of this kind that you have heard, and st shall hereafter hear i or elfe I shall bd st' empowered to bring an adirion against st Mr, Jefferson for defamation *
 
-The first opening of Mr. selby’s fpeech made Mrs. Jefferson stare; when he finistied it with a threat which she well' understood, she rose togo : but, before she left the room, she stopped shorty and Said— — Lord; Mr. Selby, who' would have thought that what I have' st .mentioned is not true I Indeed it wad • y told
+The first opening of Mr. selby’s fpeech made Mrs. Jefferson stare; when he finistied it with a threat which she well' understood, she rose togo : but, before she left the room, she stopped shorty and Said----Lord; Mr. Selby, who' would have thought that what I have' st .mentioned is not true I Indeed it wad • y told
 r
 /
 Ji
@@ -9883,7 +9830,7 @@ The Journey,
 'cf
 ■ st believing anything one hears now a --
 ». * - *•
-! days. — If one were to believe what
+! days. --If one were to believe what
 tt
 I st people feys; all the world is no
 t
@@ -9900,9 +9847,9 @@ st So much the better, " Said Mrs.
 <
 't ■
 Selby; who, feeing her ready to make Subrmffions, - was resolved to have her ‘ sharrc in humbling her, and to bring hef.
-1 down to a level with herfels — sho
+1 down to a level with herfels --sho
 *
-; st much the better, 1 Say — There ought
+; st much the better, 1 Say --There ought
 to be a stop put to Such Scandalous
 st language.
 4
@@ -9924,19 +9871,19 @@ st Come, come, " replied Mr; selby* interpofing, st there has been ehougfi st Sa
 answered Mrs. Selby; for 1 would; st have you to know,. Mr. Selby, that st I can defend my cause Mith. words, as st well as you can.with; and st, I will not be Scolded in my own jioufo
 V by any woman in England."
 r ' '
-■_ st Your own house !’* Said Mrs jef jerson — I wonder how you came by K y house i — But indeed T believe you nest ver had one; for you shave not paid st a single farthing of rent for it yet.; st and therefore you have no more right st to be here than I have, and 1 will stay
-st for awyou, Yes — I am not afraid of Sir •st Thomas, nor her ladyship neither — • st My husband is as sood as them at
-st any time. — I hate to hear of shesh st shabby genteel people mentioned, .st when his well known that they are
+■_ st Your own house !’* Said Mrs jef jerson --I wonder how you came by K y house i --But indeed T believe you nest ver had one; for you shave not paid st a single farthing of rent for it yet.; st and therefore you have no more right st to be here than I have, and 1 will stay
+st for awyou, Yes --I am not afraid of Sir •st Thomas, nor her ladyship neither --• st My husband is as sood as them at
+st any time. --I hate to hear of shesh st shabby genteel people mentioned, .st when his well known that they are
 st over
 The jotjrney: to London. 1
 • st over head and ears in debt; and my st husband never owed a farthing in st his life."
 . ■ '' ■ '. ' t ' ' d
 -. ft
-st And stis that which makes you sh st fancy, I suppose" " Mrs. Selby — ^ st ’tis time, therefore, you were taken st down; and Lady Lumley and I tossed gether shall make you pay for your st prating. If mr.'jefferson has more st money than he knows what to do st with, we shall find a way to make st him part with it; and then you may st become as shabby genteel as other st people."
+st And stis that which makes you sh st fancy, I suppose" " Mrs. Selby --^ st ’tis time, therefore, you were taken st down; and Lady Lumley and I tossed gether shall make you pay for your st prating. If mr.'jefferson has more st money than he knows what to do st with, we shall find a way to make st him part with it; and then you may st become as shabby genteel as other st people."
 f; ' t
 «
 'st No, " replied Bvirs. jefferson, who
-was now worked up to a pretty high pitch — st No, Mrs. Selby — Mr. Jeffer, st Son and I shall never be reduced fd low as you and Lady Lumley : we
+was now worked up to a pretty high pitch --st No, Mrs. Selby --Mr. Jeffer, st Son and I shall never be reduced fd low as you and Lady Lumley : we
 st shall
 ^ *
 /
@@ -9950,11 +9897,11 @@ shall never lose more at cards than wt
 0
 can afford to pay; never be obliged to pawn my person for my purse; nor my clothes to pay for my going to the playhouse.. B shall never have Such a half starved, ' ragged, tatter de mal st lion family; my. daughters women the town, and my fons jlip gibhetsp
 • *■ •
-Here Mr, Selby could hold nq longer. — Just as his enrageei wife was going to
+Here Mr, Selby could hold nq longer. --Just as his enrageei wife was going to
 V * ■>
 retort wkh a whole torrent of abuse, lie
 J
-caught Mrs, jefferson by the arm with «.nc'handr — (laying the other across his
+caught Mrs, jefferson by the arm with «.nc'handr --(laying the other across his
 I
 wife’s mouth) and desired her to walk downstairs; telling her, in a whisper, while he led her out, that if he heard any more of her from any quarter whatever, he should come upon Mr. Jefferson direly: : desiring her, at the same time, as she valued her own and
 her
@@ -10012,13 +9959,13 @@ ceptable to her.
 The wishes in this speech, warmly, and with the most apparent sincerity, with a modest diffidence, at the same time, delivered, awakened every soft
 fcnsation in her heart; and her strong
 * ^
-emotions were visible in every feature of her face. She now regretted, truly regretted her having refused Such a man,, and still more forcibly felt her folly, as. she had suffered fo severely, in consequence of her refusal. Tears for a while choked her utterance — As soon as she could Speak, she made her generous lover the most gratesul acknpw --
+emotions were visible in every feature of her face. She now regretted, truly regretted her having refused Such a man,, and still more forcibly felt her folly, as. she had suffered fo severely, in consequence of her refusal. Tears for a while choked her utterance --As soon as she could Speak, she made her generous lover the most gratesul acknpw --
 vol. II K ledgements
 .TI
 f
 \
 194
-ledgements for his esteem and affedliofl for her, and discovered So much contrition, that it’excited the tenderest transports in his breast. Snatching her hand, nnd pressing it with ardour to his bosom, he exclaimed — st I shall yet be
+ledgements for his esteem and affedliofl for her, and discovered So much contrition, that it’excited the tenderest transports in his breast. Snatching her hand, nnd pressing it with ardour to his bosom, he exclaimed --st I shall yet be
 
 happy then
 I wanted nothing in the
@@ -10028,17 +9975,17 @@ How I Mr. lewson, " replied the wretched girl, drawing her hand from
 his, and looking earnestly
 on him
 st Would you marry a prostitute And could I, who owe So much for your generous par
-to me, could I permit you to be imposed upon No, Sir — It is impossible;
+to me, could I permit you to be imposed upon No, Sir --It is impossible;
 
 A
 /
 ft
 . 195
-st A prostitute!" cried he — Then, pausing awhile, and recovering himsels — * If there was a possibility of your st deserving that name, miss Selby, you st was not a willing one, you was drawn st in by a man who pretended to love st you, and who deceived you. Let st him, therefore, who really loves you, st and who will never deceive you, re
+st A prostitute!" cried he --Then, pausing awhile, and recovering himsels --* If there was a possibility of your st deserving that name, miss Selby, you st was not a willing one, you was drawn st in by a man who pretended to love st you, and who deceived you. Let st him, therefore, who really loves you, st and who will never deceive you, re
 9
 st pair the injury you have received."
 i
-st Never, Sir, " answered stie — st I can st never repay Such distnterested love So meanly — No, Mr. lewson, I thank st you again for all the friendship you have shown me and mine X let it be const tinued to my father and my brother, st who will want it all. As for me, I shall soon cease to exist; but though st I cannot want your assistance here, let st me entreat you to offer up your serve
+st Never, Sir, " answered stie --st I can st never repay Such distnterested love So meanly --No, Mr. lewson, I thank st you again for all the friendship you have shown me and mine X let it be const tinued to my father and my brother, st who will want it all. As for me, I shall soon cease to exist; but though st I cannot want your assistance here, let st me entreat you to offer up your serve
 K 2 vent
 • ♦
 ft
@@ -10051,11 +9998,11 @@ was affeifled beyond expression
 * * ^ ^ *
 at her situation, and fevereiy pained at fo total a destrudtion of His fond hopes ^ He promised, however, as Soon as he could articulate,. to comply faithsuliy with her every request; urging her, at the Same time, in the most persuassve manner, not to give herself up to despair, but to hope for better days.
 . ti
-She made no answer— — was almost
+She made no answer----was almost
 I
 Spent indeed with her encreassng disorder, and with the extreme anxiety of her
 4
-mind, — She was glad indeed he left
+mind, --She was glad indeed he left
 her; for knowing it was not in her
 \ ' *
 power to reward his love, his assiduities
@@ -10063,13 +10010,13 @@ about
 t
 I
 
-about her only embarrassed her, and doubled her other distresstes — She had a very bad night after her interview with Lewlbn.
+about her only embarrassed her, and doubled her other distresstes --She had a very bad night after her interview with Lewlbn.
 L
-The next morning, desiring to speak with her sister, she told her, that her jndifcreet attachment to Lumley had not only been the cause of her own disquiet anef ruin, but had nearly brought her brother to an ignominious death — I have brought shame upon my family, and distresses upon them; I cannot Survive them — Let my unhappy fate ' be a warning to you. If you ever have been — if you are — in the situa
+The next morning, desiring to speak with her sister, she told her, that her jndifcreet attachment to Lumley had not only been the cause of her own disquiet anef ruin, but had nearly brought her brother to an ignominious death --I have brought shame upon my family, and distresses upon them; I cannot Survive them --Let my unhappy fate ' be a warning to you. If you ever have been --if you are --in the situa
 in which I was with Lumley,
 00
 ft
-st get out of it, for the love of heaven, st as fast as you can, before it brings st you into the deplorable state in which st you now behold me. — I tremble to st find myself on the brink of another
+st get out of it, for the love of heaven, st as fast as you can, before it brings st you into the deplorable state in which st you now behold me. --I tremble to st find myself on the brink of another
 K 3 st world
 tt
 B
@@ -10077,7 +10024,7 @@ SI *
 H
 1.98 .
 ■ '
-r world — May my example save you
+r world --May my example save you
 from the pangs I at this moment en st dure!"
 I
 Here Fanny stopped. She was too. weak, and too much affetsted by what I she had spoken, to proceed. But what
@@ -10099,7 +10046,7 @@ however, obliged Maria to leave what
 I; /
 I she was about. Turning towards the
 i bed, she beheld her in the agonies of
-I death. — Instead of going to offer her '
+I death. --Instead of going to offer her '
 the smallest assistance, she ran into the
 \
 1 parlour,
@@ -10116,12 +10063,12 @@ t
 % »
 , igg
 /
-parlour, and exclaimed — Lord bless st me! I wonder you will not come — I st believe Fanny is dead."
+parlour, and exclaimed --Lord bless st me! I wonder you will not come --I st believe Fanny is dead."
 ft
 st Heaven forbid, " replied Mr. Selby, hurrying towards the door.
 • I
-Charles stopped him. — st This will ■st be too much for you, Sir; let me st to her alone: I am now accustomed -- st to horror." He then stew to the fa -- tal chamber,.
-Poor Fanny could only say — st My st brother, be a comfort to our good
+Charles stopped him. --st This will ■st be too much for you, Sir; let me st to her alone: I am now accustomed -- st to horror." He then stew to the fa -- tal chamber,.
+Poor Fanny could only say --st My st brother, be a comfort to our good
 father, and" " -- -- -- With word she'
 icxpired in his arms
 9
@@ -10185,9 +10132,9 @@ stress; but he was told, that though she was quite a new object in town, her man
 So little sense of shame, that every man
 would
 . 20^
-would believe her — (merely for want of the modest appearance which renders even women of pleasure more alluring) to be an old Jiager, and not worth the purchase. That sort of assurance, however, though disgusting to many, is not So to all. There are Some who are pleased with it.
+would believe her --(merely for want of the modest appearance which renders even women of pleasure more alluring) to be an old Jiager, and not worth the purchase. That sort of assurance, however, though disgusting to many, is not So to all. There are Some who are pleased with it.
 /
-Maria, in her flight from home, met George Lumley coming out of a bagnio. She accosted him with all the impudence of a common prostitute, and asked him to give her a glass of wine, as her Spirits were low. Upon this Salutation, looking in her face, by tl^ light of the lamp close to him, he recolledted her, though he had been drinking champagne till he could hardly See — st Whew! — what? — Maria st Selby cried he — st No, no — • ■ / st child
+Maria, in her flight from home, met George Lumley coming out of a bagnio. She accosted him with all the impudence of a common prostitute, and asked him to give her a glass of wine, as her Spirits were low. Upon this Salutation, looking in her face, by tl^ light of the lamp close to him, he recolledted her, though he had been drinking champagne till he could hardly See --st Whew! --what? --Maria st Selby cried he --st No, no --• ■ / st child
 I
 s
 204 ,
@@ -10201,7 +10148,7 @@ st will sooner perish like a woman of st spirit, than be moped to death at the
 st farm, under his management."
 * # 4
 0 ‘
-st Bravely resolved, girl, " cried a young man of fashion, who was following Lumley; I take you at your word — Then, pushing her into the bagnio before him, he kept her there all the time her father and brother were in search of her; and being soon heartily tired of her, left her to find out a new keeper.
+st Bravely resolved, girl, " cried a young man of fashion, who was following Lumley; I take you at your word --Then, pushing her into the bagnio before him, he kept her there all the time her father and brother were in search of her; and being soon heartily tired of her, left her to find out a new keeper.
 m
 0
 Maria,
@@ -10230,11 +10177,11 @@ might, possibly, appear the most pleasant one to her, She would but too Soon fin
 I
 wretched as the life of a prostitute.
 f
-She answered— — may fancy fo; but if there was not something agreeablcp in it, fo many' wo and some of them in very high life, would not fo eagerly. prefer it —
+She answered----may fancy fo; but if there was not something agreeablcp in it, fo many' wo and some of them in very high life, would not fo eagerly. prefer it —
 And this 1 am Sure of, it is impofii ble for me to live like a woman of fashion at home; and as I like no other style of life, I vv'ill rather enjoy that, tho’ for ever fo short a time, than mope away years of me
 : and if I am carried down
 ft
-c to — — shire, I will certainly leave
+c to ----shire, I will certainly leave
 the. place as soon as I can, and
 \
 come to London."
@@ -10252,7 +10199,7 @@ I
 . 207
 Mr. Selby was extremely shocked to hear his daughter talk in this way: he forced her, however, into a coach, carried her home, and locked her up, till he went down to the farm.
 When fanny’s funeral was over,
-Mr. Selby put Maria into a coach with her mother, (who received not a single hint of consolation from Captain Dermot before she Set out). When he got down to his farm, he disposed of a great part of his estate, paid all his wife’s debts, and fettled what i*emained on his Son, that he might be able to pay Sally Cox — for So he ever called it — her allowance. By proceeding in this manner, Mr. Selby made Such a reduction of his income, that Mrs. Selby was obliged to be content with the bare necessaries of life, instead of
+Mr. Selby put Maria into a coach with her mother, (who received not a single hint of consolation from Captain Dermot before she Set out). When he got down to his farm, he disposed of a great part of his estate, paid all his wife’s debts, and fettled what i*emained on his Son, that he might be able to pay Sally Cox --for So he ever called it --her allowance. By proceeding in this manner, Mr. Selby made Such a reduction of his income, that Mrs. Selby was obliged to be content with the bare necessaries of life, instead of
 2 the
 9
 f
@@ -10265,7 +10212,7 @@ _ t
 the many comforts she enjoyed before she became desirous of imitating Lady Lumley.
 ^)
 As to, Lady Lumley, she and her family were far from being happy. Sir Thomas, by his return to London that winter, which had proved fo unfortunate to the Selbys, had spent all, and more than he had saved in his fummer retreat. He was, therefore, driven to a
-small estate he had near the land’s End. • — There he and his family were necesh tated, urged by ceconomicai motives, to spend the remainder of their days. In tloat retirement the miss Lumleys became old women without being wives, having neither fortunes nor characters to recommend them. The eldest fon, the seducer of poor Fanny Selby, had it no longer in his power to boast of any ' conquests
+small estate he had near the land’s End. • --There he and his family were necesh tated, urged by ceconomicai motives, to spend the remainder of their days. In tloat retirement the miss Lumleys became old women without being wives, having neither fortunes nor characters to recommend them. The eldest fon, the seducer of poor Fanny Selby, had it no longer in his power to boast of any ' conquests
 • •
 a
 /
@@ -10375,7 +10322,7 @@ Point of Honour 5 or, the History of Mr. Wcdderburn 2 vol. 6s« reclaim’d Libe
 Summer house 5 or, the History of Miss Bamsted, z vol 6sm
 self deceivm; or. History of Lord Byron, 2 vol. 6s.
 'Twas Wrong to marry him 5 or, Flist, of Lady Durfley, a vol. of ’twas Right to marry him; or,, Hist. of Miss Petworth, 2 vol. 6s. True Merit True Happiness, 2 vol s
-Test of Friendship, or, Flistory of Lord George B — 2 vol.. 6s. True Delicacy or. Hist, of Lady Frances Tilney, See, Z'voh 6s • Voyages and 'Travels of Captain John holmesby, '
+Test of Friendship, or, Flistory of Lord George B --2 vol.. 6s. True Delicacy or. Hist, of Lady Frances Tilney, See, Z'voh 6s • Voyages and 'Travels of Captain John holmesby, '
 Virtuous Criminal; or, the History of Lord Stanley, 2 vol. 6, s, Undutifiil Daughter sh or, the History of Miss Goodwin, 3 vol’., s Unequal Alliance 5 or. History of Lord ashford, 2 vol. 6^,
 Ways to kill Care, d Collection of comic Songs, few’d* is, 6d
 Way to Lose him 5 or, History of Miss Wyndham, 2 vpl,. '63# Way to Please him 5 of, History of Lady fedley, 2 vol, l&s*
