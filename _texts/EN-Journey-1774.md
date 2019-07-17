@@ -152,28 +152,17 @@ exceedingly, by acting entirely out of character; but if you *will* be a fool, i
 and keep *me* company at home."
 
 [23]
-"No, truly," said Mrs. Selby, stung to the quick at the appellation he had pointed at her; "I am to be reckoned a fool. Sir, as you have thought pro
-to call me, 1 shall choose to have Somebody to keep me in counte
-nance; and will, therefore, have the girls go with me."
-td XD
-Ay, " cried he, weary of coiitend ing, especially as he Saw her passion rising to a pretty considerable height, of the effects of which he had very frequently been fensible Since their marriage;; will have your own way, I See, whatever mischief comes of it: I have done my part, by telling you in what manner you are wrong; if ‘‘ you are determined not to listen to
-me, you must take the conlequencesd*
+"No, truly," said Mrs. Selby, stung to the quick at the appellation he had pointed at her; "I am to be reckoned a fool. Sir, as you have thought proper to call me, I shall choose to have somebody to keep me in countenance; and will, therefore, have the girls go with me."
 
-With these words, delivered with an uncommon earnestiness, he went downstairs, leaving Mrs, Selby in no very
-I
-good listmour, though she had carried her point. She mattered a great many Severe things against her husband, be i fore she could compose her mind enough
-to pirrsue the employment of choosing her clothes, which Mr. Selby interrupted,
-ft.
-As to the miss Selbys, they loved! their father exceedingly, as he had always
-been kind and indulgent to them; but, like too many other young people, th also wished to See life, from a mere longing after something new: they were not only desirous of a change, they ardently
-wished to sty from the tranquil Scenes in which they had lived from their earliest days, and to figure in the
-great
-D
-•.
-I
-/
-. 25.
-great world. ■ --Cheerfully, therefore, they did what their mother ordered them To do; and performed their appointed tashs with an avidity which would have done them great honour, had they been employed in a more laudable manner.
+"Ay," cried he, weary of continuing, especially as he saw her passion rising to a pretty considerable height, of the effects of which he had very frequently been fensible since their marriage; "You *will* have your own way, I see, whatever mischief comes of it: I have done *my* part, by telling you in what manner you are wrong; if you are determined not to listen to me, you must take the consequences."
+
+[24]
+With these words, delivered with an uncommon earnestiness, he went downstairs, leaving Mrs. Selby in no very good humour, though she had carried her point. She muttered a great many severe things against her husband, before she could compose her mind enough to pursue the employment of choosing her clothes, which Mr. Selby interrupted.
+
+As to the miss Selbys, *they* loved their father exceedingly, as he had always
+been kind and indulgent to them; but, like too many other young people, *they* also wished to see *life*, from a mere longing after *something new*: they were not only desirous of a change, they ardently wished to fly from the tranquil scenes in which they had lived from their earliest days, and to figure in the
+[25]
+great world. -- Cheerfully, therefore, they did what their mother ordered them To do; and performed their appointed tasks with an avidity which would have done them great honour, had they been employed in a more laudable manner.
 When they came down to slipper, Mr. Selby, who was, in the stri(5lest sense of the words, a mild tem pered man, intended to have rallied thcin upon their having mis fpent So fine an evening; but he had been too long accustomed to Mrs. selby’s manner of behaving, not to perceive that she would be affronted by any kind of pleasantry upon the Subject in question: he, therefore, agreeably to Matt. prior’s priident advice, resolved to --eat his pudding, and hold his tongue."
 vol. I. C The
 %
