@@ -167,7 +167,7 @@ When they came down to slipper, Mr. Selby, who was, in the strictest sense of th
 [26]
 The next day -- the day of action -- was a long consultation held by The female part of the family: the debate was, whether it would be *genteeler* to send any notice of their intended visitor, or to make it abruptly without giving any previous intelligence to the Lumleys at all.
 
-After much *proing* and *conning*, they all came to an agreement, that it was much better to send compliments, as they might, possibly, if taken unprepared, either be *affronted*, or *denied*. Wishing very much to get a sight of this genteel family, they could not bear the thoughts of being turned from the door: the lad, therefore, who rode the horse when they went anywhere in the post coach, and who, occasionally, whetted the knives, cleaned the .shoes, or worke
+After much *proing* and *conning*, they all came to an agreement, that it was much better to send compliments, as they might, possibly, if taken unprepared, either be *affronted*, or *denied*. Wishing very much to get a sight of this genteel family, they could not bear the thoughts of being turned from the door: the lad, therefore, who rode the horse when they went anywhere in the post coach, and who, occasionally, whetted the knives, cleaned the shoes, or worked
 [27]
 in the garden, for they did not keep that idle, insolent animal a footman, was dispatched with a card, containing these lines:
   
