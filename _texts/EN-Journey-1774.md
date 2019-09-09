@@ -73,8 +73,7 @@ In this lively manner Miss Selby, one day, addressed her mother, running into th
 [4]
 "I don’t know that," replied he: "the longer we live by ourselves, the better we shall be: there is very little good to be got by mixing with other people."
 
-"That is not clear to *me*," said Miss Selby: "I should like to see and know
-a little more of the world."
+"That is not clear to *me*," said Miss Selby: "I should like to see and know a little more of the world."
 
 "Polly, Polly, " replied he, hastily, "you would not get much by that the less you know of the world, child, the better: it is by no means a place for the improvement of young people: you live here quite out of the way of temptation, and therefore may be both good and happy, if you will: but were you to go into the world, you would find it very difficult to preserve that integrity of
 [5]
@@ -159,187 +158,64 @@ and keep *me* company at home."
 [24]
 With these words, delivered with an uncommon earnestiness, he went downstairs, leaving Mrs. Selby in no very good humour, though she had carried her point. She muttered a great many severe things against her husband, before she could compose her mind enough to pursue the employment of choosing her clothes, which Mr. Selby interrupted.
 
-As to the miss Selbys, *they* loved their father exceedingly, as he had always
-been kind and indulgent to them; but, like too many other young people, *they* also wished to see *life*, from a mere longing after *something new*: they were not only desirous of a change, they ardently wished to fly from the tranquil scenes in which they had lived from their earliest days, and to figure in the
+As to the miss Selbys, *they* loved their father exceedingly, as he had always been kind and indulgent to them; but, like too many other young people, *they* also wished to see *life*, from a mere longing after *something new*: they were not only desirous of a change, they ardently wished to fly from the tranquil scenes in which they had lived from their earliest days, and to figure in the
 [25]
-great world. -- Cheerfully, therefore, they did what their mother ordered them To do; and performed their appointed tasks with an avidity which would have done them great honour, had they been employed in a more laudable manner.
-When they came down to slipper, Mr. Selby, who was, in the stri(5lest sense of the words, a mild tem pered man, intended to have rallied thcin upon their having mis fpent So fine an evening; but he had been too long accustomed to Mrs. selby’s manner of behaving, not to perceive that she would be affronted by any kind of pleasantry upon the Subject in question: he, therefore, agreeably to Matt. prior’s priident advice, resolved to --eat his pudding, and hold his tongue."
-vol. I. C The
-%
+great world. -- Cheerfully, therefore, they did what their mother ordered them to do; and performed their appointed tasks with an avidity which would have done them great honour, had they been employed in a more laudable manner.
 
-i ■ 4
-The next day --the day of action----* was a long consultation held by The female part of the family : the de bate was, whether .it would be genteeler to Send any notice of their intended visitor ..to make it abruptly without giving any previous intelligence to the
-I ’
-laimleys at all.
-I.
-• I.
-I
-; i. After much proing and conning, they
-II all came to an agreement, that it was
-1
-f.
-|| much better to send compliments, as
-!' they might, poshbly, if taken unpre
-II pared, either be ■ affronted, or 'denied.
-LI Wishing very much to get a sight of this
-L genteel family, they could not bear the
-thoughts of being turned from the door: the lad, therefore, who rode the horse
-i 4
-when they went anywhere in the post coach, and who, occasionally, whetted
-V *.
-■the knives,, cleaned the .shoes, or worked
-I
-!| -2 .in
-I
-■
-X
-1
-t '
-i
-! ^
-I
-The Jovrnev to London, 2^
-« I
-in the garden, for they did not keep
-#
-that idle, insolent animal a footman, was dispatched with a card, containing these
-f
-lines:
-v •
-selby’s and the miss selby’s ‘‘ compliments to Lady Lumley and the young Ladies; if they are not engaged, vrill do themselves the ‘ pleasure of waiting upon them this
-afternoon."
-.
-miss Selby, who was the secretary upon this occasion, waiteci with the utmost impatience --her mother and lister were equally impatient----an answer. They waited a considerable time before any answer came.
-i
-0
+When they came down to slipper, Mr. Selby, who was, in the strictest sense of the words, a mild tempered man, intended to have rallied them upon their having mis-spent so fine an evening; but he had been too long accustomed to Mrs. Selby’s manner of behaving, not to perceive that she would be affronted by any kind of pleasantry upon the subject in question: he, therefore, agreeably to Matt. Prior’s prudent advice, resolved to -- "eat his pudding, and hold his tongue."
+
+[26]
+The next day -- the day of action -- was a long consultation held by The female part of the family: the debate was, whether it would be *genteeler* to send any notice of their intended visitor, or to make it abruptly without giving any previous intelligence to the Lumleys at all.
+
+After much *proing* and *conning*, they all came to an agreement, that it was much better to send compliments, as they might, possibly, if taken unprepared, either be *affronted*, or *denied*. Wishing very much to get a sight of this genteel family, they could not bear the thoughts of being turned from the door: the lad, therefore, who rode the horse when they went anywhere in the post coach, and who, occasionally, whetted the knives, cleaned the .shoes, or worke
+[27]
+in the garden, for they did not keep that idle, insolent animal a footman, was dispatched with a card, containing these lines:
+  
+> "Mrs. Selby’s and the Miss Selby's
+> compliments to Lady Lumley and
+> the young Ladies; if they are not
+> engaged, will do themselves the
+> pleasure of waiting upon them this
+> afternoon."
+
+Miss Selby, who was the secretary upon this occasion, waited with the utmost impatience -- her mother and sister were equally impatient -- for an answer. They waited a considerable time before any answer came.
+
 At last the boy appeared.
-f
-C 2 Before
 
-lir Before he could deliver his message,
-; [ Mrs. Selby began to chide him very
-b loudly for staying Ib long.
-( ■.. ■, ‘ •
-{^ '
-I:
-!^| The eldest young Lady, quite unable
-11 to restrain her impatience; : cried, Dear
-- i
-11 mama, kt us have the message first.
-i give me the card, " continued
-ijl she, tiirning to the boy, and stretching
-!* t r..
-t ‘ .i - #.. ^ -.
-j! out her hand eagerly for it.
-i 0 * i f;
-i - r * *•, -* • :. t,.,
-1
-*
-. I
-i
-Lhave card, " replied he.
-Ipl • How! no card? " replied Mrs.
-i Selby; what? have you lost it then
-'
-j vvonder how you dare to be So
-II careless."
-'i |. at, ’ ■ ^ ‘,
-S ‘
-H' '
+[28]
+Before he could deliver his message, Mrs. Selby began to chide him very loudly for staying so long.
 
-i i
-t f
-Why, .they gave none, " Said the
-; I ^
-'boy. Scratching his head : and I could
-I ‘ - V ' id
-: not lose what I had not."
-: ' don’t
-I : ^
-I
-t
-(i
-(I
-M
-\ *
-; i
-I ■
-0
-f
-f
-t
-\
-, ig
-r *
-don’t be Saucy, Sirrah, " Said the Lady.
-♦
-Nay, dear Mama, " cried miss Selby, interrupting her, let us hear what he has to. Say."
-/
-‘‘ It vrill Soon be Said, " answered the
-f
-boy, provoked at being So Severely chid when he was not in fault; Madam Said she was engaged; that’s all."
-What! and Sent no com^plishents ?" replied Mrs. Selby.
-I heard of none, " answered he; turning to go away, lest he should be Snubbed again.
-Stay, Dick, " Said miss Selby : ‘mid not they Say they should be glad to See us? " -
-N C 3 No; "
-I * *.
-bi '
-I(! I V
-‘il - ■.
-11 ' ■
-Mi
-i
-?5j I ' ^ f
-‘|i 30 .
-i { '
-1. - r
-* ^ I
-^ * h ‘ ■ ■
-!j; No, " replied he; they Said noil
-i thing about you, Mist."
-ui i,
-ip • ‘
-1 ■ ‘
-n: i
-*' f #
-0 Weil! stis vastly odd, " cried she..
-L n
-■lii!
-HI.
-III I « Oh! --there is slime new fashion
-III perhaps, " laid Mrs. Selby; but liv |i ing always shut up in this obscurevil
-ir i. ^
-l | how should I know anything
-V i
-jjil of the matter? They will, I doubt
-I! not, send tomorrow: : likely
-t ■ _ I
-1 ihtrt was a message; but this blun*.
-'U
-ill dering boy cannot remember it., I
-Ip shppofe, and folie stands it out that
-I .*'* there was none. ’tis a Sad thing to
-hf I O
-[ j j
-S ^ have always shch awkward people
-* I
-IS about me : but your father never
-II • would take a clever Servant in his
-; 'j life: he is afraid, I believe, that
-I •
-j|i they should know more than hi, in’
-1!!^ feist"
-i;
-t’ ‘ - • Miv
-ft.;
-{111 '.
-II
-1st
-IV LI
-St •
-t *
-,
-Mr. Selby, during the above dialogue, was looking over his men at work upon', his land. whcxt he came in to dinner, net Seeing his wife and daughters dreffed in any way as if they were going abroad,, he concluded they had,, on Second' thoughts,, prudently laid their Scheme. aside. After having sat Some time without hearing any mention of the intended visit,, Said, good naturedly,, to his wife --So, my 'dear, you do not purpose going to Sir thomas’s,, I fee."
+The eldest young Lady, quite unable to restrain her impatience; cried, "Dear mama, let us have the message first.
+Come, give me the card," continued she, turning to the boy, and stretching out her hand eagerly for it.
+
+"I have *no* card," replied he.
+
+"How! no card?" replied Mrs. Selby; "what? have you lost it then? I wonder how you dare to be so careless."
+
+"Why, they gave none, " said the boy, dcratching his head: "and I could not lose what I had not."
+
+[29]
+"Don’t be saucy, sirrah," said the Lady.
+
+"Nay, dear Mama," cried miss Selby, interrupting her, "let us hear what he has to say."
+
+"It will soon be said," answered the boy, provoked at being so severely chid when he was not in fault; "Madam said she was engaged; that’s all."
+
+"What! and sent no compliments?" replied Mrs. Selby.
+
+"I heard of none " answered he; turning to go away, lest he should be snubbed again.
+
+"Stay, Dick," Said Miss Selby: "did not they say they should be glad to see us?"
+
+[30]
+"No," replied he; "they said nothing about you, Miss."
+
+"Wesl! 'tis vastly odd," cried she.
+
+"Oh! -- there is some new fashion, perhaps," said Mrs. Selby; "but living always shut up in this obscure village, how should I know anything of the matter? They will, I doubt not, send tomorrow: most likely there *was* a message; but this blundering boy cannot remember it, I suppose, and so he stands it out that here was none. ’Tis a sad thing to have always shch awkward people about me: but your father never would take a clever servant in his life: he is afraid, I believe, that they should know more than himself."
+
+[31]
+Mr. Selby, during the above dialogue, was looking over his men at work upon his land. When he came in to dinner, net Seeing his wife and daughters dreffed in any way as if they were going abroad,, he concluded they had,, on Second' thoughts,, prudently laid their Scheme. aside. After having sat Some time without hearing any mention of the intended visit,, Said, good naturedly,, to his wife --So, my 'dear, you do not purpose going to Sir thomas’s,, I fee."
 , 1
 ✓
 Yes indeed, I do, " replied she,, rather Serioufiy; then looking; down, as is thoroughly mortified at her disappointment, she added --but they are engaged today" "
