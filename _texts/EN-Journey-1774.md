@@ -215,306 +215,87 @@ Come, give me the card," continued she, turning to the boy, and stretching out h
 "Oh! -- there is some new fashion, perhaps," said Mrs. Selby; "but living always shut up in this obscure village, how should I know anything of the matter? They will, I doubt not, send tomorrow: most likely there *was* a message; but this blundering boy cannot remember it, I suppose, and so he stands it out that here was none. ’Tis a sad thing to have always shch awkward people about me: but your father never would take a clever servant in his life: he is afraid, I believe, that they should know more than himself."
 
 [31]
-Mr. Selby, during the above dialogue, was looking over his men at work upon his land. When he came in to dinner, net Seeing his wife and daughters dreffed in any way as if they were going abroad,, he concluded they had,, on Second' thoughts,, prudently laid their Scheme. aside. After having sat Some time without hearing any mention of the intended visit,, Said, good naturedly,, to his wife --So, my 'dear, you do not purpose going to Sir thomas’s,, I fee."
-, 1
-✓
-Yes indeed, I do, " replied she,, rather Serioufiy; then looking; down, as is thoroughly mortified at her disappointment, she added --but they are engaged today" "
-%
-* (
-4 « Oh!
-^ >■ i
-1st
-• • f.
-■ ■ : I
-• * I «
-Nl
-■: ■
-[ T ■
-rfi
-It ■ I i I
-III ^2 The, jou rney; to; London.
-■; LII
-■list
-'ll st; Oh! thatst well----very wellf’
-’ I '
-st cried he: they mean, by that hint,
-if ’
-j.|i Molly, that they do not desire com
-ll!. pany." _ ‘
-Ijl '
-I How you talk, Mr, Selby !" re
-i’ ■ p.. * *
-■j: plied she'; why, people may be en
-i j one day, and not another. You
-.1 ♦ _ ■ • •. •• • ».
-I kriow mighty little of visiting in
-I deedd*...........
-II i, ' • ■
-ils
-\ \ ‘ ^ ^ f i n
-i desire to know less" " he,
-jj '.i - '■ ■■
-I of Such formal visiting as you mean,.
-I ^ ' • ’ * ' - sta ' ^ •
-I I like to see my neighbours in a
-I j friendly way, but I never would ex
-j L, ppfe myself to the refusal of my
-st company by anybody."
-III.. ■
-st Is my company refuled?" cried '
-i I j '. ■. ''f? ^
-I, ‘ she, in a passion --She was luckily, however,
-hindered from going on, by tfiest [I:.. arrival
-ij;.. V ^ V ^ \ f
-jt ' VA '
-I'
-II i II i
-J
-t I
-■| _. V
-r
-I
-_ '%
-The journey' to London. 33 arrival of a hair dreffer, whosti sh had
-I '
-Sent for from the next town. She did not indeed go to Sir thomas’s that day; but as stie fully expected to make her visit the next day, and as he had come above five miles, she determined
-.. i
-not to let the opportunity slip of making. herself look as handsome as possible, > whether she went out or staid at home., 3
-After having Spoken to the friseur,
-«
-^ I
-and pelt her youngest daughter under his hands, she hurried down her dinner as fast as she could, that she might not ' make him wait. By this proceeding of hers, Mr. Selby escaped another alter cation scene. He was by no means pleased to see his wife and daughters make what he called a very ridiculous appearance; an appearance which they had never before attempted; yet he was
-C 5 • greatly
+Mr. Selby, during the above dialogue, was looking over his men at work upon his land. When he came in to dinner, not seeing his wife and daughters dressed in any way as if they were going abroad,, he concluded they had,, on second thoughts, prudently laid their scheme aside. After having sat some time without hearing any mention of the intended visit, said, good- naturedly, to his wife -- "So, my dear, you do not purpose going to Sir Thomas’s, I see."
 
-1st ^ greatly diverted by the peevish beha st viour and mortified looks of them all
-’!}j '
-Jjj. on the three shccessive days, on their
-Mil * *
-II receiving no message from Lady Lum
-ijit' ^
-ist lay. That behaviour, and thole looks,
-I ‘ te
-III would have drawn the keenest raillery
-lijjj, from him, had he not been afraid of B..
-i(j having it returned by Mrs. Selby in a
-I j ■ manner not the most agreeable : he conii
-rented himself therefore with tyre indul
-j' gence of a few Smiles at their expense,
-%
-: p ■ ^
-j and even ventured So far as to give
-I a hint now' and then to his daughters;
-^ that they had taken no Small trouble
-P ' •
-I for nothing, and that they would never
-I Set their feet in Sir Thomas Lumleyst
-house. It was indeed, at the Same time, 'highly debated at the baronet’s, whether they Should ever be admitted, or not. -
+"Yes indeed, I do," replied she, rather seriously; then looking down, as is thoroughly mortified at her disappointment, she added -- "but they are engaged to-day."
 
-. 35
-When Mrs. selby’s card vas brought
-» '
-to Lady Lumley, she started, and cried,
-A card! from whom, John --Let
-*
-me see it, " added she. Snatching it from him, not doubting but that it contained an invitation to Some rout, or,
-'f
-at leash to a private party; but as Soon as she Saw that there was nothing more intended than a formal visit to herself
-f
-and her daughters, and from people whom no body knew, she called John back, and Said, Who are these Sel ? I never heard of them before
-\
-’squire Selby, my Lady, " 'answered John, is a kind of a gentle as they call him, who lives about half a mile off, and has a pretty little kind of an estate
-\
-. here.’’
-c6 Poh!
-\
-II
-P'
-fhj fi
-Mi II
-r t? t I ’
-iki
-*. « f. >
-■ jl 36 The journev TO London.
-I 'j i
-!i I. Poh! --a farmer’s wife and
-rji' ‘S daughters I " replied my Lady —
-j!!, ■ '
-i Here, take away the card --I am en!
-!
-it
-M
-I -
-i
-U'l In about a week afterwards, when
-Jl *
-I Sir Thomas, not knowing how to a.
-II. •. ^
-n! * muse himfeff, bavins: no relish for the
-I \ TO
-r ■
-y plealurea of the country, nor indeed,
-II for any other pleasures to be met with
-I in retirement. Such as reading, music,
-drawing, or the chit-chat of his family, was looking through the window, and j j counting the, trees which grew before
-f • Y
-Ij the house, to fill up the vacant half
-1 Sliour before dinner,, the selby card at
-tteftcd his attentioh. It had been care lesaly left ist the room by John, and
-one of the maids,, believing it contained
-I ■, X ' ' "AM.
-'something of importance bccause she
-^; f •; T \ i i i ^ i ^ * *
-t ^ Y t ‘■'i * tv ■
+[32]
+"Oh! that's well -- very well," cried he: "they mean, by that hint,Molly, that they do not desire company."
 
-, sfs
+"How you talk, Mr. Selby!" replied she; "why, people may be engaged one day, and not another. You know mighty little of visiting indeed."
+
+"And desire to know less," said he, "of such formal visiting as you mean. I like to see my neighbours in a friendly way, but I never would expose myself to the refusal of my company by anybody."
+
+"Is *my* company refused?" cried she, in a passion -- She was luckily, however, hindered from going on, by the arrival
+[33]
+of a hair-dresser, whom she had sent for from the next town. She did not indeed go to Sir Thomas’s that day; but as she fully expected to make her visit the next day, and as he had come above five miles, she determined not to let the opportunity slip of making herself look as handsome as possible, whether she went out or staid at home.
+
+After having spoken to the friseur, and put her youngest daughter under his hands, she hurried down her dinner as fast as she could, that she might not make him wait. By this proceeding of hers, Mr. Selby escaped another altercation- scene. He was by no means pleased to see his wife and daughters make what he called a very ridiculous appearance; an appearance which they had never before attempted; yet he was
+[34]
+greatly diverted by the peevish behaviour and mortified looks of them all, on the three successive days, on their receiving no message from Lady Lumlay. That behaviour, and those looks,
+would have drawn the keenest raillery from him, had he not been afraid of having it returned by Mrs. Selby in a manner not the most agreeable: he consented himself therefore with the indulgence of a few smiles at their expense, and even ventured So far as to give a hint now and then to his daughters; that they had taken no small trouble for nothing, and that they would never set their feet in Sir Thomas Lumley's house. It was indeed, at the Same time, highly debated at the Baronet’s, whether they should ever be admitted, or not.
+
+[35]
+When Mrs. Selby’s card was brought to Lady Lumley, she started, and cried, "A card! from whom, John? -- Let me see it," added she, snatching it from him, not doubting but that it contained an invitation to some rout, or, at leash, to a private party; but as soon as she saw that there was nothing more intended than a formal visit to herself and her daughters, and from people whom no body knew, she called John back, and said, "Who are these Selbys? I never heard of them before."
+
+"Why, 'Squire Selby, my Lady," answered John, "is a kind of a gentle as they call him, who lives about half a mile off, and has a pretty little kind of an estate here."
+
+[36]
+Poh! -- a farmer’s wife and daughters," replied my Lady -- "Here, take away the card -- I am engaged."
+
+In about a week afterwards, when Sir Thomas, not knowing how to amuse himself, having no relish for the plealures of the country, nor indeed, for any other pleasures to be met with
+in retirement. Such as reading, music, drawing, or the chit-chat of his family, was looking through the window, and  counting the trees which grew before the house, to fill up the vacant half hours before dinner, the Selby-card attracted his attention. It had been carelessly left in the room by John, and one of the maids, believing it contained something of importance because she
+[37]
 could make nothing of it, had stuck it up in a window, to prevent its being lost.
-Taking the card down. Sir Thomas, read it.
-When my Lady appeared, he Said to her, Who are these Selbys? I do not remember to have Seen them here
-*
---and you mvtx, mll See them here, " replied she --b am: not reduced ‘‘ quite So low as to receivie. wisits from farmers wives and daughters./’ >
-■. '' j
-It matters not much in the coun
-I ^
-try, " Said Sir Thomas; they may
-I '' I J "
-divert us; anything for variety.
-1 am not of that opinion, Sir Thp ^ mas : --I do not chuse to mix with
-’' ' J ')
-'low people anywhere."
-Burr
 
-. But we cannot tell whether they are low or not, till we have leen II them."
-'> I
-I '
-,
-i ‘
-i • S
-^!,
-, \
-Farmers wives and daughters, as
-I ' *
-I told you before, are not Suitable j; ' acquaintance for me. Sir Thomas."
-■ i :
-t’i /
-I, Is Selby a farmer, then ?"
-tit
-If
-J, -
-• I; *
-1
-I '
-111;
-How should I know what he is?
-ri, A
-I John told me So. 1 never heard of
-•I'
-h people in my life before. I canst
+Taking the card down, Sir Thomas, read it.
 
-ji: | not imagine how they could have the i assurance to lend to mev
-v' ' '
-'_
-They thought it civil, I fuppose, st child, to make you a visit upon your
-coming to settle in the country."
-! ‘
-• * •.
-,,,. >' ■ Sellle,
-~ r * 4
-ft
-^ - r 4
-i.
-I
-i -
-i :
-\
-t
-. «
-/
-. 39
-Settle, indeed 1 What an idea ’ it gives one, " Said Lady Lumley, with a Sigh of discontent: but whenever I am obliged to exisl here, for I cannot
-‘‘ call it living., I am Sure Such people can never be fit company for mep
-« ' i
-I thinlc, now, " answered Sir Though
-J
-mas, they might aimise a little: they might Serve to change the Scene, It least."
-Well, Sir Thonias, if you like Such low bred creatures, you may amuse with them : for my part, I
-have never been used to keep Such
-•' \
-company : I really should not know ‘‘ how to behave to them." ■
-f
-- »*
-Nay, child, I do not want to have anything to shy to them : I only
-thought
-<
-Mi
-is
-j
-'i
-i t
-lli
-I
-, 1;
-*
-i
-fl; 40 .
-i' '
-;
-j'lj thought they might divert us slime
-LI ‘‘ times : I am shre I have heard you
-SI /
-I Say that there is nothing more agree ■
-‘‘ to you than to laugh at people : and
-■tj
-j I imagine the Selbys would furnish
-I ‘‘ matter enough for ridicule."
-■H w O
-H ^
-''
-II
-'1 ► ■
-; | I dare lay they would, " cried Mils
-f
-[j Lumley : I wish my Lady would con ’ I lent; to receive them, once at least,
-!| ‘‘ that we might see what shrt of figures '
-I
-If they are, " -
-f'
-j I should be vastly glad to see them,
-II Said miss Harriot; as there are no
-i. • ^ ^ ^ '
-i other families near us, they will be
-1 ’ * ' ■ *
-ij better than no body."
-4 Sf it.,
-1 ■
-b
-C I don’t think sh, " replied her Lady
-I ship; I think bad company much
-worse than none at all."
-II ' N
-I. But
-i
-I :
-I :
-f
-. : /
-I
-I.
-I
-I ■
-!:
-\
-t
-. 41
-But we do not know whether they they will be bad company or not, till
+When my Lady appeared, he said to her, "Who are these Selbys? I do not remember to have seen them here."
+
+"No -- and you *will* see them here," replied she -- "I am not reduced quite so low as to receive visits from farmers wives and daughters."
+
+"It matters not much in the country," said Sir Thomas; they may divert us; anything for variety."
+
+"I am not of that opinion, Sir Thomas: -- I do not chuse to mix with low people anywhere."
+
+[38]
+"But we cannot tell whether they are low or not, till we have seen them."
+
+"Farmers wives and daughters, as I told you before, are not suitable acquaintance for me. Sir Thomas."
+
+"Is Selby a farmer, then?"
+
+"How should *I* know what he is? John told me so. I never heard of the people in my life before. I cannot imagine how they could have the assurance to send to *me*."
+
+"They thought it civil, I suppose, child, to make you a visit upon your coming to settle in the country."
+
+[39]
+"*Settle*, indeed! What an idea it gives one," said Lady Lumley, with a sigh of discontent: "but whenever I am obliged to *exist* here, for I cannot call it *living*, I am sure such people can never be fit company for *me*."
+
+"I think, now," answered Sir Thomas, "they might amuse a little: they might serve to change the scene, at least."
+
+"Well, Sir Thomas, if *you* like such low bred creatures, you may *amuse* with them: for *my* part, I have never been used to keep such company: I really should not know how to behave to them."
+
+"Nay, child, I do not want to have anything to shy to them: I only
+[40]
+thought they might divert us sometimes: I am sure I have heard you say that there is nothing more agree to you than to laugh at people: and I imagine the Selbys would furnish matter enough for ridicule."
+
+"I dare lay they would," cried Miss Lumley: "I wish my Lady would consent to receive them, once at least, that we might see what sort of figures they are."
+
+"I should be vastly glad to see them, said miss Harriot; "as there are no other families near us, they will be better than no body."
+
+"I don’t think so," replied her Ladyship; I think bad company much worse than none at all."
+
+[41]
+"But we do not know whether they they will be bad company or not, till
 we try Said Sir Thomas. At the
-#
 worst, 1 suppose, they can play at cards; - every little shopkeeper’s wise now has her private party and pool
 ‘‘ at (i^iadrille; and if we do not strike
 «
 out Some variety here, I cannot See what we are to do with ourselves :
-Sor my own part, I assure you, ' I feel my time hang very heavy upon niy hands already." -.
-/
-‘V And So you want to employ it in conversing with the low bred wives and daughters of your clownish neigh,,
+Sor my own part, I assure you, ' I feel my time hang very heavy upon niy hands already."
+
+"And So you want to employ it in conversing with the low bred wives and daughters of your clownish neigh,,
 I have never been used to
 I
 V
