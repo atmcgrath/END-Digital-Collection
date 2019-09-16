@@ -287,422 +287,73 @@ thought they might divert us sometimes: I am sure I have heard you say that ther
 "I don’t think so," replied her Ladyship; I think bad company much worse than none at all."
 
 [41]
-"But we do not know whether they they will be bad company or not, till
-we try Said Sir Thomas. At the
-worst, 1 suppose, they can play at cards; - every little shopkeeper’s wise now has her private party and pool
-‘‘ at (i^iadrille; and if we do not strike
-«
-out Some variety here, I cannot See what we are to do with ourselves :
-Sor my own part, I assure you, ' I feel my time hang very heavy upon niy hands already."
+"But we do not know whether they they will be bad company or not, till we try;" said Sir Thomas. "At the worst, I suppose, they can play at cards; every little shopkeeper’s wife now has her private party and pool at Quadrille; and if we do not strike out some variety here, I cannot see what we are to do with ourselves : for my own part, I assure you, I feel my time hang very heavy upon my hands already."
 
-"And So you want to employ it in conversing with the low bred wives and daughters of your clownish neigh,,
-I have never been used to
-I
-V
-have any neighbours : I hate neigh
-\
-0
-* ^ ^ ^ I
-AKA ^ Xu
-I %
-*
-i - •.
-%
-ft
-i
-42
-shay be So, " replied the Bare
-•»
-; • and you may hate theirr as much as you please, though you let them
-. in to divert you. We are very Sel fond of people whom we laugh
-c
-^ # V
-I
-i
-}
-Still Lady lumley’t pride kept her from yielding to the inclinations of Sir Thomas, and her daughters,, with whom she Sat down to a joyless parti quarri. After having pouted and. fretted away the dullest of all dull evenings, at the j card table --though the weather was So
-i very inviting,, either for riding or walking,
-that few. people, neither blind nor lame, could have resisted the desire of enjoying it abroad --she consented to let ' the creatures come : she could not, however,
-be prevailed on to Suffer a card to be written to inform them of the honour ..." she
-I
-z'
-; •
-\
-i
-\
-I
-t
-. 43-
-• %
-she intended them. She only Sent the Servant with a verbal message, next day, delivered in a manner extremely concise.
-Lady Lumley will be at home, " --unaccompanied with any apology, or compliment of any kind.
-. Ishis strange mode of proceeding, as it appeared to the Selbys, Somewhat: staggered them, at first: the message was by no means explicit: there was no mention made of the young people on either fide. The selby girls were difr concerted : yet, though they had been lulled into an almost perfect indifference about her ladyship’s acquaintance, in consequence of her delay, this .Summons roused them, and made them again eager to go. They were greatly at a loss, indeed,! about the propriety of going, but they wished to attend their, mother.
-st’h ' Fanny,
-- ' s
-iliu
-!: lii lill ^
-!;
-fs 44 .
-lih
-j Fanny, who was far the least ankioiis
-if of the two sisters, was willing to give up
-If the visite
-i
-Ij Molly, who most resembled Mrs.
-I l *
-!|! in her pershn and manners, laid
-SI that she thought, as the Mils Lumleys
-] were not mentioned.. might con
-< * • •
-;
-i elude themselves expetsted,
-I ■■.. ■ ^ -
-L
-II This Speech was decisive in favour
-|! j *
-I of their going to the baronet’s. They
-11 then began to prepare to drels as fast as
-III ’ poshble.
-; f: * ■' *
-i Mr. Selby, who had, for slime days,
-ilfj entertained hopes of this foolish affaid.t
-i: i being dropped, and who, pluming him
-Ii ‘ I
-!i I shlf upon his penetration, had strongly
-|ij flattered himself that it never would
-II I. ‘
-II have been brought about, expressed as
-j:, ' ' much
-I:!
-is
-'f‘ ■ •
-[ 1 ‘
-I .1.
-lilim
-: U '
-• 11
-Cst : i \ •
-» 1 tfu; 1
-I
-. 45
-much concern, as Mrs. Selby did pleasure, at the renewal of it. He declared aloud, that, was he in thftr place, he would not, on any account, go to the baronet’s house, after having had Sufficient reason to believe that their com
-I
-pany would not be acceptable; adding, that, by keeping up their consequence upon this occasion, they would raise themselves higher in the esteem of all those people, with whom: it was more honour to be acquainted, than with half the noblest families in the county.. :
+"And so you want to employ it in conversing with the low-bred wives and daughters of your clownish neighbors, I have never been used to have any neighbours : I hate neighbours."
 
-This address of Mr. Selby to his wife and daughters, only made their features wear the appearance of contempt, while they looked Significantly at each. other by way of triumphing over him.
-*
-f
-'they
-II
-; *!
-I
-« 1
-1
-'; ' i >
-\
-I
-: ' ■ *
-ji i
-y I
-st j. '
-I
-I' I
-■' I
-] 4$ .
-. • I
-: | ...
-■ They were all ready, in all their fine
-I I •
-II fy, a full hour before Mrs. Selby thought
-It genteel to let out, as it was but a very
-i,
-■ i short drive to Sir thomas’s. The coach
-I ' *
-||: horses and postilions had been thorough
-•) *
-ly rubbed and Scrubbed, that they
-ft.
-I; might make the best poshble appear
-I; ance. Mrs. Selby and her daughters
-!i examined themselves fifty times in the
-I glass, to see if everything was right
-II before they ventured to step into the
-Carriage, which they kept waiting at the
-Ij; '
-II, ' door aconfiderable time, notwithstand
-* ‘
-|! ing their extreme impatience to be gone.
-i'; ■'
-Id? ^
-j f; ^
-||, At last Mrs. Selby gave the word,
-Ilf
-i - J I ^
-{ijl and led the way, followed byherdaugh
-N ters, out of her own house, and ' parad
-II ed, in the Same manner, into that of
-■ h! I J
-I ■ the baronet’s.
-‘l: \ :
-i t i
-ri ll
-II ' They
-I! > ''
-4 i ft •
-ii
-il: h
-, fui
-: !r ‘ •
-ift ‘
-1 t r I ^
-ill ■
-{
->
-s
-I
-, 47
-'They found Lady Lumley quite in a dishabille, half reclined upon a sopha, playing with a little Spanish dog. miss Lumley was shetching out a view of the garden from the window; and miss
-Harriot was tuning her guitar.
-• ^
-They all rose on the entrance of their visiters, and then h'eturned to their re speftive amusements.
-f. ^
-4 -
-This mode of behaviour rather embarrassed Mrs. Selby, who, though not a woman of the world, knew that if it was polite to pay So little attention to people, it was by no fidendly, nor
-even neighbourly; and that as sloe meant Lady Lumley and her daughters a civi ■
-by coming to visit them, toey ought
-/
-to have expressed Some degree of Satisfaction at their appearance. She, therefore,
+[42]
+"It may be so," replied the Baronet; "and you may hate their as much as you please, though you let them in to divert you. We are very fond of people whom we laugh at."
 
-\
-I
-I
-48 .
-I fore, reddened, and drew up a little;
-(
-her girls followed her example. The Lumleys Smiled at each other. Lady Lumley pushing her playfellow aside,
-: J condcicended to ask imrs. Selby if she
-I had lived a great while in that part of
-', the country --what families were near
-j them --whether there was any affem
-L; bly.
-I
-i
-*,. i'
-I j This was quite shssicient; she wished
-II
-lit ^ _
-I I - for nothing more to sht her talking. In
-I I a very short time she related all she knew
-, V I
-fii! to the mother, while her daughters were
-If. ^
-I, doing the same to the daughters of Sir
-II Thomas, though they had not the happy
-I i opportunity of repeating, every now
-I I and then, my Lady, and your Ladyship.
-ii ^
-! '!
-i
-■1
-J Mrs, Selby, pleased with having a
-V •! ' f
-III titled pershn to Speak to, and fearful
-ill! - of
-; * I
-h \
-iftl i
-jili I ^ -
-II *
-I
-liwu.
-I .r: : • r
-/!'*■' • *
-III i
-• /
-•• *
-»
-. 49
-of giving her Ladyship offence, or of showing her ignorance, my ladied her So often, and So improperly, that the miss Lumleys could not possibly forbear laughing aloud: a pleasure they would not by any means have denied themselves, had they not believed it
-I
-would have deprived them also of another pleasure, of which they just began to be sensible. The miss Selbys not only gave them a minute and particular account of every family within
-I
-twenty miles round the country, including their birth, parentage, and educa tion, but of all the idle tittle tattle which had circulated round them time out of mind.' these family details happened to prove So very entertaining to ' the miss Lumleys, that they insenfibly
-began to throw off their haughty looks, and haughty behaviour, and to draw
-vol. I. D their
-/
-4
-) C
+Still Lady Lumley’s pride kept her from yielding to the inclinations of Sir Thomas, and her daughters, with whom she sat down to a joyless *parti quarre*. After having pouted and. fretted away the dullest of all dull evenings, at the card-table -- though the weather was so very inviting, either for riding or walking, that few people, neither blind nor lame, could have resisted the desire of enjoying it abroad -- she consented to let the *creatures* come: she could not, however,
+be prevailed on to suffer a card to be written to inform them of the honourhe
+[43]
+she intended them. She only sent the Servant with a verbal message, next day, delivered in a manner extremely concise. "Lady Lumley will be at home," -- unaccompanied with any apology, or compliment of any kind.
 
-■', f
-''; i
-: ir‘
-their chairs closer to their new acquaint
-I i ance; to Smile at their remarks, to en,
-, »
-courage them to go on. Her Ladyship,
-■lli!. ^ ^
-SI at the lame time, signified her approba
-t •
-ii
-i tion by nods and Irniles, and repetitions
-ijl of what had been told her, in away
-I ■ ' : '
-jt which leemed to convince her intelli
-I ■ C
-; I st: :
-: |; oencers, that she had no doubt concern
-i i; h
-ill’ ing their veracity. In short, the Spirit
-!|| : standal operated sh powerfully, that
-1st,
-1st it did^more than anything elle could
-LI have done. The desire to know on one
-'i I,
-I st ■
-fide, and the need to talk on the other,
-'U I 1
-m had liicli a prodigious estedt on both
-i iih •
-; I parties, that they shon became, out
-i jl [
-pi' wardly, the best friends in the world.
-ill:
-5; st Mist Lumley, by her mother’s order.
-If rang for the coffee and tea. Sir Though
-jl st : ^
-Il; V mas then came in, and her Ladyship
-i proposhd a pool at Quadrille. Mrs.
-j 2 Selby
-1st: : stst:!
-II u[
-iists CL ‘;
-i! '
-I
-f
-. 51 Selby readily assented to it, being one
-4
-of those obliging women, who never can refuse those whom they look upon as their Superiors, in anything : for the very same reason, and for another still more weighty, she made no objection to playing at a shilling a fish : she was ashamed to own that she had not been
-\
-used to play So high; more ashamed to
-confess that she could not afford it She
-was Soon plundered of above two guineas before she thought it possible for
-her to have lost an eighth part of that
-Sum.
-#
-While four out of the Seven in company were losing and winning their money with the greatest apparent cheerful ness, miss Harriot Lumley was entertaining the miss Selbys with an account of the diversions in London, on the
-D 2. newest
-\
-If'
-M
-II
-t i
-imif'
-I :
-f
-m; UI
-*11 :
-!
-iirit •
-'Ij'ii I
-I
-m
-i
-< < 1 M f
+This strange mode of proceeding, as it appeared to the Selbys, somewhat staggered them, at first: the message was by no means explicit: there was no mention made of the young people on either side. The Selby-girls were disconcerted: yet, though they had been lulled into an almost perfect indifference about her ladyship’s acquaintance, in consequence of her delay, this summons roused them, and made them again eager to go. They were greatly at a loss, indeed, about the propriety of going, but they wished to attend their mother.
 
-I'
-i z. *
-n r I
+[44]
+Fanny, who was far the least anxious of the two sisters, was willing to give up the visit.
 
-{
-f
+Molly, who most resembled Mrs. Selby in her person and manners, said that she thought, as the Miss Lumleys were not mentioned, they might conclude themselves expected.
 
-i i
-II
-[Jiii
-|!l|‘
-ihi!..
-lihi
-< I. T!
-■ ria t
-ic; -; !li \
+This speech was decisive in favour of their going to the Baronet’s. They then began to prepare to dress as fast as
+possible.
 
-lijf!
-■ II
-LI n \
-11
-iur>
-II •«
-If
-!IU
-ltp{
-ifhi Vil
-M ^
-Jll
-If
+Mr. Selby, who had, for some days, entertained hopes of this *foolish affair's* being dropped, and who, pluming himself upon his penetration, had strongly flattered himself that it never would have been brought about, expressed as much
+[45]
+much concern, as Mrs. Selby did pleasure, at the renewal of it. He declared aloud, that, was he in *their* place, he would not, on any account, go to the Baronet’s house, after having had Ssufficient reason to believe that their company would not be acceptable; adding, that, by keeping up their consequence upon this occasion, they would raise themselves higher in the esteem of all those people, with whom it was more honour to be acquainted, than with half the noblest families in the county.
 
-*
-^ I
-II
-t,
-fc
-I
-il
-Ri
-Hi: t
-Hit i
-I
-H
-.H
-i! I
-(il
-t
-LI
-I ^
-Si
-LI
-ill
-• U
-ih
-il«r‘
-- - ' 4 •.
-f ■
-I
-il
-11
-nil
-U
-*
- 
-newest manner of dressing the hair and •putting on caps, which was fo totally different from 'every thing about them, that the poor girls, who, but an hour shefore, fancied themselves as elegant little Princesses, were now entirely out of conceit with themselves, and their whole appearance. They had admired their ■figures at home, all the day.; but they could .not bear the Sight of them in the
-glasses at Lumley place. Their caps,
-compared with those worn by the miss
-/
-Lumleys, and very .becoming, appeared old-fashioned, and forlorn in their eyes: their stays, also, were ridiculously easy, and frightfully low both before and behind : their gowns were odioussy off their necks, with monstrous wide flounces, and little shallow ruffles --In short, they felt themselves extremely awkward, and. allsthe way home in the coach talked
-of
-.k •
-. 53^
-/
-of nothing but the elegant style in which: the miss Lumleys wxre dressed; wishing very much, at the Same time, ta imitate them, not being able to endure
-their own caps, See. Scc Scc
-#
-to Mrs. Selby, she was by no means like her daughters, with regard to their wishes fo imitate their new acquaintance : she returned, indeed, with a strong aversion to everything she met with at home, and with a Superlative contempt for her husband;; she believed --for the Lumleys, while they won her money, were particularly civil to her --that she made as good a figure ' as Lady Lumley herself did, if not a better one: and with respedl to her dress and her house, she was determined to’' make them both as like the abovementioned lady’s as poshble. The miss
-D 3^ Selbys,,.
-A
-isth n - L
-Lill itlii "
-I < 1
-ihii • ■
-II
-L
-Ijii,
-lit h:
-S ^
-54 .
-1 ^ i!
-: L C
-lip Selbys, following sh excellent an exam
-I f Ilf! t *
-p! pie, resolved upon a very close imitai
+This address of Mr. Selby to his wife and daughters, only made their features wear the appearance of contempt, while they looked significantly at each other by way of triumphing over him.
+
+[46]
+They were all ready, in all their finery, a full hour before Mrs. Selby thought it genteel to let out, as it was but a very
+short drive to Sir Thomas’s. The coach horses and postilions had been thoroughly rubbed and scrubbed, that they might make the best poshble appearance. Mrs. Selby and her daughters examined themselves fifty times in the glass, to see if everything was right before they ventured to step into the
+carriage, which they kept waiting at the door a considerable time, notwithstand ing their extreme impatience to be gone.
+
+At last Mrs. Selby gave the word, and led the way, followed by her daughters, out of her own house, and paraded, in the same manner, into that of the Baronet’s.
+
+[47]
+They found Lady Lumley quite in a dishabille, half reclined upon a sopha, playing with a little Spanish dog. miss Lumley was shetching out a view of the garden from the window; and Miss Harriot was tuning her guitar.
+
+They all rose on the entrance of their visiters, and then returned to their respective amusements.
+
+This mode of behaviour rather embarrassed Mrs. Selby, who, though not a woman of the world, knew that if it was *polite* to pay so little attention to people, it was by no means friendly, nor even *neighbourly*; and that as *she* meant Lady Lumley and her daughters a civlity, by coming to visit them, *they* ought to have expressed some degree of satisfaction at their appearance. She,
+[48]
+therefore, reddened, and drew up a little; her girls followed her example. The Lumleys smiled at each other. Lady Lumley pushing her playfellow aside, condescended to ask Mrs. Selby if she had lived a great while in that part of the country -- what families were near them -- whether there was any assembly.
+
+This was quite sufficient; she wished for nothing more to set her talking. In a very short time she related all she knew to the mother, while her daughters were doing the same to the daughters of Sir Thomas, though they had not the happy opportunity of repeating, every now and then, *my Lady*, and *your Ladyship*.
+
+Mrs, Selby, pleased with having a titled person to speak to, and fearful
+[49]
+of giving her Ladyship offence, or of showing her ignorance, *my ladied* her so often, and so improperly, that the Miss Lumleys could not possibly forbear laughing aloud: a pleasure they would not by any means have denied themselves, had they not believed it would have deprived them also of another pleasure, of which they just began to be sensible. The miss Selbys not only gave them a minute and particular account of every family within twenty miles round the country, including their birth, parentage, and education, but of all the idle tittle tattle which had circulated round them time out of mind. These family details happened to prove so very entertaining to the Miss Lumleys, that they insensibly began to throw off their haughty looks, and haughty behaviour, and to draw
+[50]
+their chairs closer to their new acquaintance; to smile at their remarks, to encourage them to go on. Her Ladyship, at the same time, signified *her* approbation by nods and smiles, and repetitions of what had been told her, in away which leemed to convince her intelligencers, that she had no doubt concerning their veracity. In short, the spirit of scandal operated so powerfully, that it did more than anything else could
+have done. The desire to know on one side, and the need to talk on the other, had such a prodigious effect on both parties, that they soon became, outwardly, the best friends in the world.
+
+Miss Lumley, by her mother’s order, rang for the coffee and tea. Sir Thomas then came in, and her Ladyship proposed a pool at Quadrille. Mrs.
+[51]
+Selby readily assented to it, being one of those obliging women, who never can refuse those whom they look upon as their superiors, in anything: for the very same reason, and for another still more weighty, she made no objection to playing at a shilling a fish: she was ashamed to own that she had not been used to play so high; more ashamed to confess that she could not afford it. She was soon plundered of above two guineas before she thought it possible for her to have lost an eighth part of that sum.
+
+While four out of the seven in company were losing and winning their money with the greatest apparent cheerfulness, miss Harriot Lumley was entertaining the miss Selbys with an account of the diversions in London, on the
+[52]
+newest manner of dressing the hair and putting on caps, which was so totally different from every thing about *them*, that the poor girls, who, but an hour before, fancied themselves as elegant little princesses, were now entirely out of conceit with themselves, and their whole appearance. They had admired their figures at home, all the day; but they could not bear the sight of them in the glasses at Lumley place. Their caps,
+compared with those worn by the Miss Lumleys, and very becoming, appeared old-fashioned, and forlorn in their eyes: their stays, also, were ridiculously easy, and frightfully low both before and behind: their gowns were odioussy off their necks, with monstrous wide flounces, and little shallow ruffles -- In short, they felt themselves extremely awkward, and. all the way home in the coach talked
+[53]
+of nothing but the elegant style in which the Miss Lumleys were dressed; wishing very much, at the same time, to imitate them, not being able to endure their own caps, &c. &c. &c.
+
+As to Mrs. Selby, she was by no means like her daughters, with regard to their wishes to imitate their new acquaintance: she returned, indeed, with a strong aversion to everything she met with at home, and with a superlative contempt for her husband;; she believed -- for the Lumleys, while they won her money, were particularly civil to her -- that she made as good a figure  as Lady Lumley herself did, if not a better one: and with respect to her dress and her house, she was determined to make them both as like the above-mentioned lady’s as possible. The Miss
+[54]
+Selbys, following so excellent an example, resolved upon a very close imitai
 i tion of the Mist Lumleys, whom they
 till' looked upon as the very quintessence of
 (■ I H;
