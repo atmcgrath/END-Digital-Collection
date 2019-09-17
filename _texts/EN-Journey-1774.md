@@ -353,188 +353,46 @@ of nothing but the elegant style in which the Miss Lumleys were dressed; wishing
 
 As to Mrs. Selby, she was by no means like her daughters, with regard to their wishes to imitate their new acquaintance: she returned, indeed, with a strong aversion to everything she met with at home, and with a superlative contempt for her husband;; she believed -- for the Lumleys, while they won her money, were particularly civil to her -- that she made as good a figure  as Lady Lumley herself did, if not a better one: and with respect to her dress and her house, she was determined to make them both as like the above-mentioned lady’s as possible. The Miss
 [54]
-Selbys, following so excellent an example, resolved upon a very close imitai
-i tion of the Mist Lumleys, whom they
-till' looked upon as the very quintessence of
-(■ I H;
-; i,.
-il! everything that was genteel and polite,
-II At the lame time, like true femsiles,
-they allowed themselves to be far shpe p rior in their perlbns to their young
-I neighbours. They imagined, therefore,
-LI that by making a Similar appearance in
-I dress, Sec. Sec. Sec. they should infill nitely surpass them. However, as they
-M
-II had not an allowance Sufficient to enable
-id ^ '
-II them to purchase just what new orna
-I ments they pleased, and as they could
-I not, indeed --had they been sh enabled,
-il --procure them, the next town being
-LI Several miles from them, and not a fa
-|| one --they could only, in fb ob
-sture a part of the country, give their
-1 ' ( - ■■
-things the true London air, by n§w make
-LI *
-m2
-o 4 I i
-Off.. il t it <
-I II Id I
-ii 1 'I
-: ili!;
-ist: :
-1
-III ^
-diiu ■
-. 55
-1
-I
-ing them. resolved to appear as politely dressed as the miss Lumleys, they prepared to imitate them with all pos fible expedition; and therefore could Say but little that night. So much was their, attention taken up about an affair to them, at that moment, of the greatest importance.
-Mr. Selby, who was very fond of his daughters, wanted to hear them chat and laugh as usual; and finding them loth to enter into conversation, told them that he was afraid they did not like their visit, though they had made a very
-0
-long one.
-Mrs. Selby answered for them, that nothing could have been more to their taste, and that she had never passed So agreeable an evening ig her life. She,
-D 4 ' Secretly,
-:
-nliniil:
-1 II II i
-! i;
-tiiii■ i 'I
-iiilj .fi ■
-f
-J J || I. ^ ^
-lilis ■ ss6 ..
-Ipjt: III i
-• f: 1;; ^;
-lip secretly, however, lamented the lost of
-i; her money; yet, upon second thoughts,,
-list comforted herself with the knowledge
-q jtst III O
-!?•?•; i u;.
-il;; : she had gained. She pleased herself
-list; with thinkins: that she had lost her mo
-pjiipiij.
-III ney in the genteelest company in the
-j; • 1 I; i j t
-ilii! world, but laid not a word of her lost
-lllj ings to Mr. Selby : she deemed it most
-III prudent to keep them concealed, from
-ill! him, and as he had no shfpicions about
-II |! ' f.
-jj||j them, he was happy from his ignorance.
-Ill The wisest of Kings informs us, that
-if ^
-III he who increaseth knowledge,, increast
-i • • •
-I eth forrovrand it is very certain,
-I i that if Mr. Selby had known what his
-I wife then conceded from him, he would
-have been Sorry for the communication,.
-I Mr. Selby, not being able to get any
-j j j! I ^,
-lib intelligence that evening of what had
-Ijll ' passed
-Km
-iii' ';
+Selbys, following so excellent an example, resolved upon a very close imitation of the Miss Lumleys, whom they till looked upon as the very quintessence of everything that was genteel and polite. At the same time, like true females, they allowed themselves to be far superior in their persons to their young neighbours. They imagined, therefore, that by making asSimilar appearance in dress,  &c. &c. &c. they should infinitely surpass them. However, as they had not an allowance sufficient to enable them to purchase just what new ornaments they pleased, and as they could not, indeed -- had they been so enabled, -- procure them, the next town being several miles from them, and not a fashionable one -- they could only, in so obscure a part of the country, give their things the true London air, by new-
+[55]
+making them. Resolved to appear as politely dressed as the Miss Lumleys, they prepared to *imitate* them with all possible expedition; and therefore could say but little that night. So much was their, attention taken up about an affair to them, at that *moment*, of the greatest importance.
 
-passed at Lumley place, contented himself With telling,. imrs. Selby and his daughters, that they were all. returned, very grave from their visit..
-Mrs. Selby took him up immediately,, and quite in a laconic manner.
-ft
-People of fashion, !* Said she, are not always laughing, and making a noise, whatever may think --For.
-my part' --I know better."
-\
-Mr. Selby bore this reproof with wonderful patience; and then turning, to his eldest, daughter,, Said --Why,.
-child,, you look like a, Friezeland hen:, your hair is curled’ So much,, that it is quite unnatural; Polly." —
-laying.his finger on one of her curls..
-r
-I
-D 5 Law,.
-/
-*»
-_ ^
-S
-II 1 If (
-f L ‘
-: i: I
-te s Isti;;!
-'I. !ll X
-:; II i
-ml.
-; M ■'
-in.. .
-JS|4 ^
-ifs Law! papa!" replied she, all
-i;;; I
-i; : i; | people of fashion wear it fo; and you
-‘I I; LI
-M will abiblutely spoil it, if you touch
-II LII * it. Besides, I hate to be called Folly."
-i
-Ho !i '• i
-*!^ i; f
-III This speech rnade him somewhat
-iiiiijii ^
-III angry..
-M! LI ".,
-hi L
-111 -
-ill
-ill • ■ I desire to hear' no more about
-Ijl people of st fashion, " answered he —
-III Do you wants to be (Called out of your
-y namei" ^ ff ' - •
-il'
-(i: i
-111!
-Ui ■
-! i ‘‘ I do shot know, indeed, " lard she, •
-■■ 'j
-jjlj with an affected kind of pertnest; but
-I I think Polly has a very vulgar
-1st j - ■ '
-|>| found, and I wish my name was any
-LI thing elfo."
-hi' ' ^
-!
-il iii
-j
-I III Indeed !" replied the old gentle
-llip shan, looking earnestly at her --What
-II. have
-i LI
-Ml
-1 II .'n
-» T
-I
-t
-i
-. 59
-" have you brought this, whim from Sir thomas’s ^ Though I fuppose he calls his daughter Poll, or Polly, if she was christened Mary."
-V
-The miss Lumleys have no such common names, " Said miss Selby: Sir Thomas, generally calls them Charlotte and Harriot; atia Jucb names are fo genteel, fo fashionable, that one should be glad to be .called by them from morning tonight." ‘
-ft '
-i
-Really! " answered Mr. Selby: why the girl’s head is quite turned 7» If this is going to See people of fashion, as you call them, I shall de
-9
-fire you to stay at home for the future."
-ft
-K ' *
-9. *• 0 i
-D 6 Then
-•14
-nq hi
-, i! i! iilllll
-list
-i; ti.' !i /
-iiiijii!!!
-it' i
-hi.
-|l|j 6o .
-♦ LI I! I
-I i! if i
-1 Nf I 5 ^
-llfl Then turning to his wife, he added.
+Mr. Selby, who was very fond of his daughters, wanted to hear them chat and laugh as usual; and finding them loth to enter into conversation, told them that he was afraid they did not like their visit, though they had made a very long one.
+
+Mrs. Selby answered for them, that nothing could have been more to their taste, and that she had never passed so agreeable an evening in her life. She,
+[56]
+secretly, however, lamented the lost of her money; yet, upon second thoughts, comforted herself with the knowledge she had gained. She pleased herself with thinking that she had lost her money in the genteelest company in the world, but laid not a word of her losing to Mr. Selby: she deemed it most prudent to keep *them* concealed, from him, and as he had no suspicions about them, he was happy from his ignorance. The wisest of Kings informs us, that "he who increaseth knowledge, increasteth sorrow;" and it is very certain, that if Mr. Selby had *known* what his wife then conceded from him, he would
+have been sorry for the communication.
+
+Mr. Selby, not being able to get any intelligence that evening of what had
+[57]
+passed at Lumley place, contented himself With telling Mrs. Selby and his daughters, that they were all returned, very grave from their visit.
+
+Mrs. Selby took him up immediately, and quite in a laconic manner.
+
+"People of fashion," said she, "are not always laughing, and making a noise, whatever *you* may think -- For *my* part -- I know better."
+
+Mr. Selby bore this reproof with wonderful patience; and then turning, to his eldest, daughter, said -- "Why, child, you look like a, Friezeland hen: your hair is curled so much, that it is quite unnatural; Polly." -- Laying.his finger on one of her curls.
+
+[58]
+"Law! papa!" replied she, "all people of fashion wear it so; and you will absolutely spoil it, if you touch it. Besides, I hate to be called Polly."
+
+This speech made him somewhat angry.
+
+"I desire to hear no more about people of st fashion," answered he -- "Do you wants to be called out of your name?"
+
+"I do not know, indeed," said she, with an affected kind of pertness; "but I think Polly has a very vulgar found, and I wish my name was anything else."
+
+"Indeed!" replied the old gentleman, looking earnestly at her -- "What
+[59]
+have you brought *this* whim from Sir Thomas’s? Though I suppose *he* calls *his* daughter Poll, or Polly, if she was christened Mary."
+
+"The Miss Lumleys have no such common names," said miss Selby: "Sir Thomas, generally calls them Charlotte and Harriot; and *such* names are so genteel, so fashionable, that one should be glad to be called by them from morning tonight."
+
+"Really!" answered Mr. Selby: "why the girl’s head is quite turned -- If this is going to see people of fashion, as you call them, I shall desire you to stay at home for the future."
+
+[60]
+Then turning to his wife, he added.
 ni still: ir; t ^ T
 I i I j II j
 ilillil ’ You know I was always very much i|j|| against this visit, Mrs. Selby --(for I
