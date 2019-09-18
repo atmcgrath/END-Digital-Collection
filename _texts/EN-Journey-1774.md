@@ -392,117 +392,30 @@ have you brought *this* whim from Sir Thomas’s? Though I suppose *he* calls *h
 "Really!" answered Mr. Selby: "why the girl’s head is quite turned -- If this is going to see people of fashion, as you call them, I shall desire you to stay at home for the future."
 
 [60]
-Then turning to his wife, he added.
-ni still: ir; t ^ T
-I i I j II j
-ilillil ’ You know I was always very much i|j|| against this visit, Mrs. Selby --(for I
-j [ij 11 '■
-stl shppole you cannot bear to be called
-l ti))
-mother) and you see the bad estedt it
-I jlj!
-Ip! l already had upon your daughter,
-||ji by making her delpife everything
-il that I fey." - - :
-itesh ■. •
-iniiii i ij
-fnim!
-If you will talk like a man of i i fashion, Mr. Selby, " replied she, I
-il • ^
-dare Say she iwill not despise you?
-I but you have a low way of expressing
-! yourself, you know."
-j V Z -- -- -- -- rd! Madam, " exclaimed Mr.
-I Selby (though he never Swore but when
-he was uncommonly provoked) Z --s!
-I Madam, I hate all people of fashion,
-especially people who talk Such con nonsense. D --n it! do you
-III ' ■ think
+Then turning to his wife, he added, "You know I was always very much against this visit, Mrs. Selby -- (for I suppose you cannot bear to be called *mother*) and you see the bad effect has already had upon your daughter, by making her delpife everything that *I* say." --
 
-think I will not call the girl what I ‘ please? Let Sir Thomas call his what he likes, thacs no to me: I and my children are in a very different Situation of life,
-; and ever desire to remain fo."
-'''' Tou may desire to remain So, " Said. his Lady, because you have the most grovelling notions; but my daugh ters and I" (drawing Up her head with an air of the greatest consequence) ^cwho have Seen the world, have much ■ better ideas of things, and intend to
-raise ourselves by imitating people who understand every part of good breeding to the ver height. I beg therefore, Mr. Selby, that you would ^
-ft
-not put yourself in a passion, as all your Swearing and fuming will fig j nify nothing. As I now know what is
-\
-ft
-ML'
-'*.
-i, y: :
-'lis ti.i i
-'ll isst '
-; !'! ‘C' '
-: |! j. ■
-111 rl; ••
-■'id
-i S: '; :
-I ji' '
-il 62 .
-'If '4'
-‘ 'ji : h' ' '
-right, I shall follow it, whether yott
-i, happen to like it or no." '
-!| I
-I' ■'
-jil 2: With these words, pronounced in a
-'still i ' X
-stis sharper key than she had ever Ipoke to
-: i: i him, she rose, and walked, in great
-• ' i
-list state, to her. own apartment, to which
-Ijirj, she was followed by her daughters, lea 1st ving the plain, worthy man, with eyes
-i'
-CLI ' and hands lifted up with astonishment,
-|j|4j r
-list at this shddon and difegreeable change
-ill in his family..; >
-» : i
-i n r f,
-In. «
-li
-* - t r
-'rsh {
-lij While the female part of the Selby
-pi!
-N family were thus drawing improvement
-: ii from their late interview with the Lum
-II leys, the latter were talking over their
-Ijl departed viliters with, the most un
-Ist bounded freedom,.
-1st:. = ■
-'ifil! ■
-!■. '. ’ V ‘vwellist
-jlfi I j; '. 4 y ***** * ' > J '
-V 1•
-Il i ' ^
-I i
-WHO: III i
-li!l!
-jl ^ ^
+"If you will talk like a man of fashion, Mr. Selby," replied she, "I dare say she I will not despise you: but you have a low way of expressing yourself, you know."
 
-0 ^
-. 63
-Well!" Said Sir Thomas, turning to my Lady, before they were hardly out of hearing, I gave you good ad I think, when I persuaded you to receive these people. You have already got Something out of Madam Selby." •
-%
-Yes, " replied her Ladyship, counting her winnings., I have piddled a , little: two guineas and a half is pretty well to begin with; but I shall
+"Z-----ds! Madam, " exclaimed Mr. Selby (though he never swore but when he was uncommonly provoked) "Z-----s! Madam, I hate all people of fashion, especially people who talk such confounded nonsense. D---n it! do you
+[61]
+think I will not call the girl what I please? Let Sir Thomas call *his* what he likes, that's nothing to *me*: I and *my* children are in a very different situation of life, and ever desire to remain so."
+
+"*You* may desire to remain so," said his Lady, "because you have the most groveling notions; but my daughters and I" (drawing up her head with an air of the greatest consequence) "who have seen the world, have much better ideas of things, and intend to raise ourselves by imitating people who understand every part of good breeding to the very height. I beg therefore, Mr. Selby, that you would not put yourself in a passion, as all your swearing and fuming will signify nothing. As I now know what is
+[62]
+right, I shall follow it, whether *you* happen to like it or no."
+
+With these words, pronounced in a sharper key than she had ever spoke to him, she rose, and walked, in great state, to her own apartment, to which she was followed by her daughters, leaving the plain, worthy man, with eyes and hands lifted up with astonishment, at this sudden and disagreeable change in his family.
+
+While the female part of the Selby-family were thus drawing improvement from their late interview with the Lumleys, the latter were talking over their departed visiters with, the most unbounded freedom.
+
+[63]
+"Well!" Said Sir Thomas, turning to my Lady, before they were hardly out of hearing, "I gave you good advice, I think, when I persuaded you to receive these people. You have already got something out of Madam Selby."
+
+"Yes," replied her Ladyship, counting her winnings., I have piddled a , little: two guineas and a half is pretty well to begin with; but I shall
 , ft
 never endure the strange vulgarity of the creatures: the fulsome civility of the fat mother, and the awkward beha viour of the gaping girls --How they
 were dizened out! How strangely they affect to be well dressed, at the same time that everything about Them is out of taste! Never did 1 see Such a total ignorance of dress indeed: but I. believe
-IK Vo I
-f, Nft j J
-I dr'
-iilii!'
-. .Ijdii
-st : L
-st: *' I,
-;; : : Cj
-I dstj:
-: I !‘ij •
-1 i i'! j :
-II 64 .
-III :
-i I? :
+
 Ijj, believe they would willingly make
 IV I' ' ^
 ; || more modern figures, if they knew
