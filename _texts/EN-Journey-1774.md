@@ -411,71 +411,28 @@ While the female part of the Selby-family were thus drawing improvement from the
 [63]
 "Well!" Said Sir Thomas, turning to my Lady, before they were hardly out of hearing, "I gave you good advice, I think, when I persuaded you to receive these people. You have already got something out of Madam Selby."
 
-"Yes," replied her Ladyship, counting her winnings., I have piddled a , little: two guineas and a half is pretty well to begin with; but I shall
-, ft
-never endure the strange vulgarity of the creatures: the fulsome civility of the fat mother, and the awkward beha viour of the gaping girls --How they
-were dizened out! How strangely they affect to be well dressed, at the same time that everything about Them is out of taste! Never did 1 see Such a total ignorance of dress indeed: but I. believe
+"Yes," replied her Ladyship, counting her winnings, "I have piddled a  little: two guineas and a half is pretty well to begin with; but I shall never endure the strange vulgarity of the creatures: the fulsome civility of the fat mother, and the awkward behaviour of the gaping girls -- How they were dizened out! How strangely they affect to be well-dressed, at the same time that everything about them is out of taste! Never did I see such a total ignorance of dress indeed: but I
+[64]
+believe they would willingly make more modern figures, if they knew which way to go about it."
 
-Ijj, believe they would willingly make
-IV I' ' ^
-; || more modern figures, if they knew
-list'. ^ '
-'lihf • • '
-j which way to go about it."
-sthi ■
-I..IO
-h'li
-Iststj
-j girls!" replied Sir Thomas;
-j ist J
-illl 1 pitied them for knowing no better:
-^ ^ 'I I ‘ • 0
-lii are really handsome, and might,
-III with a little instrudlion, be rendered
-1111.1
-. : r ' ^
-diiii ' i '
-1st quite agreeable."
-II
-!t|ll
-'-1 I; I - i
-III Handsome?" cried my Lady, rc
-I peating that word, with a Sarcastic kugh,
-ill while the Mils Lumleys sheered --Well!
-• i
-; j
-ill I should never have thought of their
-ii l’ ^
-III being handsome, of all things --two
-I: : j
-; | shch coarfo, overgrown, blowzy crea
-lljjfji : ^
-III tures --they look as if they were just
-if: taken from their shther’s form, where
-; !jb! ^
-1; they have shttened from their inshncy,
-I to this hour, with the pigs and poultry.
-, IL j i
-I --Heaven defend me from hearing
-ill f^ shch
+"Poor girls!" replied Sir Thomas; "I pitied them for knowing no better: they are really handsome, and might, with a little instruction, be rendered quite agreeable."
 
-«
-Such vulgar wretches called handsome I No! there is nothing can. make peo, pie, rsteanly born and bred, tolera
-In the conclusion of this Speech, the two Mils Lumleys most cordially joined, and declared that they never Saw two girls who knew less of fife than the, miss Selbys.
-t
-'N.:.
-How they stared! ’* Said miss Lumley----thought they would have dfe^
+"Handsome?" cried my Lady, repeating that word, with a sarcastic laugh, while the Miss Lumleys sneered -- "Well!
+I should never have thought of their being handsome, of all things -- two such coarse, overgrown, blowzy creatures -- they look as if they were just taken from their father’s farm, where
+they have fattened from their infancy, to this hour, with the pigs and poultry. -- Heaven defend me from hearing
+[65]
+such vulgar wretches called handsome. No! there is nothing can make people, meanly born and bred, tolerable."
+
+In the conclusion of this speech, the two Miss Lumleys most cordially joined, and declared that they never saw two girls who knew less of life than the, Miss Selbys.
+
+"How they stared!" said miss Lumley----thought they would have dfe^
 voured me with their eager eyesr —
 When Sir Thomas or rhylady called me Miss, they started almost out of their chairs, as if they had never
 heard the word in their lives."
 *
 I suppose their father and mothet never address them by that title, "
 added
-m
-t
-■9
-/
-||jj 66 .
+[66]
 l added miss Harriot; it would, in
 I ti I ^ ^
 I deed, be very odd if they should; for
