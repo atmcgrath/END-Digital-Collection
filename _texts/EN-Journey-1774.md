@@ -425,28 +425,17 @@ such vulgar wretches called handsome. No! there is nothing can make people, mean
 
 In the conclusion of this speech, the two Miss Lumleys most cordially joined, and declared that they never saw two girls who knew less of life than the, Miss Selbys.
 
-"How they stared!" said miss Lumley----thought they would have dfe^
-voured me with their eager eyesr —
-When Sir Thomas or rhylady called me Miss, they started almost out of their chairs, as if they had never
-heard the word in their lives."
-*
-I suppose their father and mothet never address them by that title, "
-added
+"How they stared!" said Miss Lumley -- thought they would have devoured me with their eager eyes When Sir Thomas or my lady called me Miss, they started almost out of their chairs, as if they had never heard the word in their lives."
+
+"I suppose their father and mother never address them by that title,"
 [66]
-l added miss Harriot; it would, in
-I ti I ^ ^
-I deed, be very odd if they should; for
-j I am Sure their appearance would not
+added Miss Harriot; "it would, indeed, be very odd if they should; for I am Sure their appearance would not
 I gain it from anybody. I never Saw
 i i two more ordinary girls --handsome,
 I indeed!"
-i; 1
-! •
-*
-I
-ill ■ ■,.
+
 'Well, well, " cried Sir Thomas,
-** 1
+
 ij whether they are handsome or not,
 i
 I Since that word Seems to offend you
@@ -457,43 +446,19 @@ and restored feme composure to the rnind of the person to whom they were directe
 ^ o
 bare Supposition that any women could possibly have the Smallest pretensions to
 I beauty, who had neither birth, fortune,
-"
-i
-Ini* ^ ^ ‘
-'iiilf J i ‘
-iiftftfti i * I
-I
-1
-hll
-%
-. 67
+
+[67]
 nor a knowledge of the polite world to recommend them. Certain philosophers, it is true, have been of opinion that no woman can be completely handsome, who does not exhibit in her countenance a beautiful mind; but Lady lumley*s ideas were not So highly refined, though she was the daughter and the wife of a Baronet, with a fortune of fifteen thousand pounds, and had received the most liberal and polished education. Every woman of birth and fortune was, in her eyes, respeftable; Jhe only who was meanly born, and poor also, was con temptible in them. Sir Thomas, at that time. Seemed to Subscribe to his wife’s Sentiments, for reasons best known to
 %
 himself. He really entertained others exceedingly different, but his Silence upon So important an occasion was very well taken at that critical juncture; especially
-#
-*
-'tit •,
-''bill!’
-« i
-*
-'I
-I ^
-i.. • ist he ■
-ili.: .:
-;,; ’ ^
-SI; 68 The Jovrnev to Lonoon.
-r !i I I' ■
-st'l
+
+[68]
+The Jovrnev to Lonoon.
 dally as he joined in the laugh with my I; Lady ander daughters, who proceeded,
 i / with the utmost Sacisfadfion, to pull the
 i ’’ ^ I
 poor Selbys to pieces.
-i„j : i: i
-i f I > •
-. st I.
-I.
-, f.
-P : f,
+
 ; III The selby girls next morning rose
 %
 i very early, to make changes in their
@@ -521,42 +486,16 @@ ill to what she now ranked amono; the northeast
 !i r : i
 ^ ■ I ■ I
 II cessaries. of life, told them, that she
-ist would
-id‘umh [
-sti’iil!
-= di'i■; n I
-1st'.in.
-upui'f vi' ',
-i
-Ico
-ist i • ‘ i >
-tist'u, i • '
-l.f r • ■ ' '
-’ *
-:
-I. i '■ 1
-Istii
-\
-I
-. 6g
+
+[69]
 would swrke to a pcrson in London whom she knew, and desire her to send them down three of the most fashionable
 hoops which were then worn, and to be Sure to Send them large enough, or else people could not See they had any on, but might think they still Suffered their petticoats to cling about them, like all the comshon wenches in the country.
 This business being dispatched, they Set about making their heads of a proper height, throwing off their handkerchiefs, lengthening the rustles of their 'gowns, hooking their aprons, and fixing large roles, of different coloured ribbons, upon their shoes, within an inch of their toes,
 9
 Thus
-I
-0
-/
-I
-0
-IV
-l'
-Istll
-i 1
-i' I i
-1 i j '
-|| fj 70 .
-III i I
+
+[70]
+
 ||ji| Thus adorned, with erect heads the
 'III i I
 jlj ||| entered the dining parlour, and call
@@ -573,18 +512,9 @@ jl ation in their appearance, and exclaimed,
 --heyday! What is the mattei ‘‘ now, girls? What? are you turned rope dancers; by sticking up your heads fo high, and dressing your feet So low?"
 Molly replied, with a toss of her |jj|| head, --La! Sir! how - you talk —
 I i We have only put our things on in
-n I' the fashion." ’
-'I II f ^
-I f. If
-I '
-I i
-I ' '
-9
-*
-#
-_ \
-. 71
-%
+n I' the fashion."
+
+[71]
 If that is the fashion, " answered he, it is a very unbecoming one, I
 am Sure. --Why, polys hair is too far above her forehead by a quarter of a yard; and fans cap looks like ‘‘ our old steeple yonder, only the wea there cock is inverted, and put under it, instead of being atop."
 By these jocular remarks she thought ^ to laugh them out of a mode of dress which he, with all V men of sense and judgement, could not but look upon as highly preposterous. The young Ladies, however, who were chagrined at
