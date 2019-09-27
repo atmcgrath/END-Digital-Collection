@@ -467,9 +467,7 @@ in her life : but indeed the fashion gives an air to eve thing."
 
 This answer, delivered in a very peremptory tone, kept down all the good things which Mr. Selby might have had to say upon the subject; he only said
 [73]
-softly to himself, that she was, indeed, old enough to be he got nothing
-by his muttered remark, as his wife and his daughters unanimoussy, in consequence of it. Sealed up their lips during the whole dinner.
-.Soon after the cloth was removed Mr. Selby left the room, muttering again --Women will have their own « way, "
+softly to himself, that she was, indeed, old enough to be he got nothing by his muttered remark, as his wife and his daughters unanimoussy, in consequence of it. Sealed up their lips during the whole dinner. Soon after the cloth was removed Mr. Selby left the room, muttering again - -Women will have their own « way, "
 In less than a fortnight Mr. Selby found', in Spite of all his remonstrances, and petitions too (for he condescended to entreat his wife, when he remon
 a
 strated in vain) the economy of his fast
@@ -549,20 +547,7 @@ i impreshon upon Mrs. Selby, who now
 y;;, numerous as those of her daughters —
 II vthat had she been postested of twenty
 .times the shm she could at that time
-com
-tijlstst
-r st... \
-isth ■ -
-ststir ^
-'
-,.
-.;
-. r;;
-:
-ft
-'; fy
-9
-ft
+
 command, it would have been insuffi*
 /
 cient for the gratification of them the
