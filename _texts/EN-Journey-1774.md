@@ -467,43 +467,18 @@ in her life : but indeed the fashion gives an air to eve thing."
 
 This answer, delivered in a very peremptory tone, kept down all the good things which Mr. Selby might have had to say upon the subject; he only said
 [73]
-softly to himself, that she was, indeed, old enough to be he got nothing by his muttered remark, as his wife and his daughters unanimoussy, in consequence of it. Sealed up their lips during the whole dinner. Soon after the cloth was removed Mr. Selby left the room, muttering again - -Women will have their own « way, "
-In less than a fortnight Mr. Selby found', in Spite of all his remonstrances, and petitions too (for he condescended to entreat his wife, when he remon
-a
-strated in vain) the economy of his fast
+softly to himself, that she was, indeed, old enough to be he got nothing by his muttered remark, as his wife and his daughters unanimously, in consequence of it, sealed up their lips during the whole dinner.
 
-mily totally altered; and had the alterations been made instantaneoussy, instead of being brought gradually about,
-- he would Scarce have recognised either
+Soon after the cloth was removed Mr. Selby left the room, muttering again -- "Women will have their own way."
 
-his
-s
+In less than a fortnight Mr. Selby found, in spite of all his remonstrances, and petitions too (for he condescended to *intreat* his wife, when he remonstrated in vain) the economy of his family totally altered; and had the alterations been made instantaneously, instead of being brought gradually about, he would scarce have recognised either
+[74]
+his wife or his daughters, so entirely were they changed, not only in their looks, but in their language, and in their behaviour.
 
-III his wire or his daughters, lb entirely
-I. • J » ' ' • '
-II were they changed, not only in their
-jlj I looks, but in their language, and in
-tijl I I ■ :
-jl i, ' their behaviour.
+When Lady Lumley and the Miss Lumleys honoured Mrs. Selby and her daughters, by returning their visit, they actually dazzled their eyes with the brilliancy of their appearance. They were dressed in gold and silver muffins, and painted taffety sacques, with all the little elegant ornaments, which can only
+be purchased, only worn with propriety, by people of fashion.
 
-■ M 1! ■ ‘
-III When Lady Lumley and the Mils
-si: Lumleys honoured Mrs. Selby and her
-|j||j daughters, by returning their visit, they
-IL ^ I ' '
-ii actually dazzled their eyes with the bril
-ii. ' '' '
-l|hi| liancy of their appearance. They were
-: dressed in gold and Silver mufiins, and
-j painted taffety Sacques, with all the lit
-I tie elegant ornaments, which can only
-be purchased, only worn with propriety,
-!i by people of fashion.
-
-I The poor Selbys stared at them as if
-!! -
-they were beings of a Superior order: they were quite confounded by the glit
-I ter which they made with all their fine
-il things. .........
+The poor Selbys stared at them as if they were beings of a superior order: they were quite confounded by the glitter which they made with all their fine things.
 [75]
 i Mrs. Selby was So charmed with la dy lumiey’s diamond pin and bracelets, with Sir thomas’s and miss lumley’s. pictures ornamented with pearls, that she pined for a pair of the Same Sort; but she could not bear the thoughts of having Mr. selby’s round, cheerful countenance, ever in d grtn, in his still rounder wig, appear on her arm. This desire, however, was not, she knew; to
 be gratified till she got to London,
