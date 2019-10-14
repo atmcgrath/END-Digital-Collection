@@ -392,449 +392,94 @@ have you brought *this* whim from Sir Thomas’s? Though I suppose *he* calls *h
 "Really!" answered Mr. Selby: "why the girl’s head is quite turned -- If this is going to see people of fashion, as you call them, I shall desire you to stay at home for the future."
 
 [60]
-Then turning to his wife, he added.
-ni still: ir; t ^ T
-I i I j II j
-ilillil ’ You know I was always very much i|j|| against this visit, Mrs. Selby --(for I
-j [ij 11 '■
-stl shppole you cannot bear to be called
-l ti))
-mother) and you see the bad estedt it
-I jlj!
-Ip! l already had upon your daughter,
-||ji by making her delpife everything
-il that I fey." - - :
-itesh ■. •
-iniiii i ij
-fnim!
-If you will talk like a man of i i fashion, Mr. Selby, " replied she, I
-il • ^
-dare Say she iwill not despise you?
-I but you have a low way of expressing
-! yourself, you know."
-j V Z -- -- -- -- rd! Madam, " exclaimed Mr.
-I Selby (though he never Swore but when
-he was uncommonly provoked) Z --s!
-I Madam, I hate all people of fashion,
-especially people who talk Such con nonsense. D --n it! do you
-III ' ■ think
+Then turning to his wife, he added, "You know I was always very much against this visit, Mrs. Selby -- (for I suppose you cannot bear to be called *mother*) and you see the bad effect has already had upon your daughter, by making her delpife everything that *I* say." --
 
-think I will not call the girl what I ‘ please? Let Sir Thomas call his what he likes, thacs no to me: I and my children are in a very different Situation of life,
-; and ever desire to remain fo."
-'''' Tou may desire to remain So, " Said. his Lady, because you have the most grovelling notions; but my daugh ters and I" (drawing Up her head with an air of the greatest consequence) ^cwho have Seen the world, have much ■ better ideas of things, and intend to
-raise ourselves by imitating people who understand every part of good breeding to the ver height. I beg therefore, Mr. Selby, that you would ^
-ft
-not put yourself in a passion, as all your Swearing and fuming will fig j nify nothing. As I now know what is
-\
-ft
-ML'
-'*.
-i, y: :
-'lis ti.i i
-'ll isst '
-; !'! ‘C' '
-: |! j. ■
-111 rl; ••
-■'id
-i S: '; :
-I ji' '
-il 62 .
-'If '4'
-‘ 'ji : h' ' '
-right, I shall follow it, whether yott
-i, happen to like it or no." '
-!| I
-I' ■'
-jil 2: With these words, pronounced in a
-'still i ' X
-stis sharper key than she had ever Ipoke to
-: i: i him, she rose, and walked, in great
-• ' i
-list state, to her. own apartment, to which
-Ijirj, she was followed by her daughters, lea 1st ving the plain, worthy man, with eyes
-i'
-CLI ' and hands lifted up with astonishment,
-|j|4j r
-list at this shddon and difegreeable change
-ill in his family..; >
-» : i
-i n r f,
-In. «
-li
-* - t r
-'rsh {
-lij While the female part of the Selby
-pi!
-N family were thus drawing improvement
-: ii from their late interview with the Lum
-II leys, the latter were talking over their
-Ijl departed viliters with, the most un
-Ist bounded freedom,.
-1st:. = ■
-'ifil! ■
-!■. '. ’ V ‘vwellist
-jlfi I j; '. 4 y ***** * ' > J '
-V 1•
-Il i ' ^
-I i
-WHO: III i
-li!l!
-jl ^ ^
+"If you will talk like a man of fashion, Mr. Selby," replied she, "I dare say she I will not despise you: but you have a low way of expressing yourself, you know."
 
-0 ^
-. 63
-Well!" Said Sir Thomas, turning to my Lady, before they were hardly out of hearing, I gave you good ad I think, when I persuaded you to receive these people. You have already got Something out of Madam Selby." •
-%
-Yes, " replied her Ladyship, counting her winnings., I have piddled a , little: two guineas and a half is pretty well to begin with; but I shall
-, ft
-never endure the strange vulgarity of the creatures: the fulsome civility of the fat mother, and the awkward beha viour of the gaping girls --How they
-were dizened out! How strangely they affect to be well dressed, at the same time that everything about Them is out of taste! Never did 1 see Such a total ignorance of dress indeed: but I. believe
-IK Vo I
-f, Nft j J
-I dr'
-iilii!'
-. .Ijdii
-st : L
-st: *' I,
-;; : : Cj
-I dstj:
-: I !‘ij •
-1 i i'! j :
-II 64 .
-III :
-i I? :
-Ijj, believe they would willingly make
-IV I' ' ^
-; || more modern figures, if they knew
-list'. ^ '
-'lihf • • '
-j which way to go about it."
-sthi ■
-I..IO
-h'li
-Iststj
-j girls!" replied Sir Thomas;
-j ist J
-illl 1 pitied them for knowing no better:
-^ ^ 'I I ‘ • 0
-lii are really handsome, and might,
-III with a little instrudlion, be rendered
-1111.1
-. : r ' ^
-diiii ' i '
-1st quite agreeable."
-II
-!t|ll
-'-1 I; I - i
-III Handsome?" cried my Lady, rc
-I peating that word, with a Sarcastic kugh,
-ill while the Mils Lumleys sheered --Well!
-• i
-; j
-ill I should never have thought of their
-ii l’ ^
-III being handsome, of all things --two
-I: : j
-; | shch coarfo, overgrown, blowzy crea
-lljjfji : ^
-III tures --they look as if they were just
-if: taken from their shther’s form, where
-; !jb! ^
-1; they have shttened from their inshncy,
-I to this hour, with the pigs and poultry.
-, IL j i
-I --Heaven defend me from hearing
-ill f^ shch
+"Z-----ds! Madam, " exclaimed Mr. Selby (though he never swore but when he was uncommonly provoked) "Z-----s! Madam, I hate all people of fashion, especially people who talk such confounded nonsense. D---n it! do you
+[61]
+think I will not call the girl what I please? Let Sir Thomas call *his* what he likes, that's nothing to *me*: I and *my* children are in a very different situation of life, and ever desire to remain so."
 
-«
-Such vulgar wretches called handsome I No! there is nothing can. make peo, pie, rsteanly born and bred, tolera
-In the conclusion of this Speech, the two Mils Lumleys most cordially joined, and declared that they never Saw two girls who knew less of fife than the, miss Selbys.
-t
-'N.:.
-How they stared! ’* Said miss Lumley----thought they would have dfe^
-voured me with their eager eyesr —
-When Sir Thomas or rhylady called me Miss, they started almost out of their chairs, as if they had never
-heard the word in their lives."
-*
-I suppose their father and mothet never address them by that title, "
-added
-m
-t
-■9
-/
-||jj 66 .
-l added miss Harriot; it would, in
-I ti I ^ ^
-I deed, be very odd if they should; for
-j I am Sure their appearance would not
-I gain it from anybody. I never Saw
-i i two more ordinary girls --handsome,
-I indeed!"
-i; 1
-! •
-*
-I
-ill ■ ■,.
-'Well, well, " cried Sir Thomas,
-** 1
-ij whether they are handsome or not,
-i
-I Since that word Seems to offend you
-1 So much, they will Serve to be laughed
-at, and to lose their money."
-‘ these observations appeared to make Some amends for the preceding ones,
-and restored feme composure to the rnind of the person to whom they were directed, who began to be hurt at the
-^ o
-bare Supposition that any women could possibly have the Smallest pretensions to
-I beauty, who had neither birth, fortune,
-"
-i
-Ini* ^ ^ ‘
-'iiilf J i ‘
-iiftftfti i * I
-I
-1
-hll
-%
-. 67
-nor a knowledge of the polite world to recommend them. Certain philosophers, it is true, have been of opinion that no woman can be completely handsome, who does not exhibit in her countenance a beautiful mind; but Lady lumley*s ideas were not So highly refined, though she was the daughter and the wife of a Baronet, with a fortune of fifteen thousand pounds, and had received the most liberal and polished education. Every woman of birth and fortune was, in her eyes, respeftable; Jhe only who was meanly born, and poor also, was con temptible in them. Sir Thomas, at that time. Seemed to Subscribe to his wife’s Sentiments, for reasons best known to
-%
-himself. He really entertained others exceedingly different, but his Silence upon So important an occasion was very well taken at that critical juncture; especially
-#
-*
-'tit •,
-''bill!’
-« i
-*
-'I
-I ^
-i.. • ist he ■
-ili.: .:
-;,; ’ ^
-SI; 68 The Jovrnev to Lonoon.
-r !i I I' ■
-st'l
-dally as he joined in the laugh with my I; Lady ander daughters, who proceeded,
-i / with the utmost Sacisfadfion, to pull the
-i ’’ ^ I
-poor Selbys to pieces.
-i„j : i: i
-i f I > •
-. st I.
-I.
-, f.
-P : f,
-; III The selby girls next morning rose
-%
-i very early, to make changes in their
-. (
-caps, petticoats, c. Sec. and sh vigour,
-,. •
-ousty employed themselves about them,
-st ists '
-st; that when they were shmmoned to din
-ill ner, they had hardly any clothes to put
-iilii. ^
-; | I on. Unluckily, they were stopped at
-r|jj||| the very beginning of their operations,
-‘"''' i'''
-I lill by considering that they had no hoops,,
-A and that they could not expect to pro
-1st r cure them in that part of the country,
-lill In this distrelsful condition they applied
-■5itest; C
-III to their mother, and she, being exactly
-j|ip! in the same predicament, with regard
-f i II ^ ‘
-ji If j - * J ' ^
-ill to what she now ranked amono; the northeast
-!i r : i
-^ ■ I ■ I
-II cessaries. of life, told them, that she
-ist would
-id‘umh [
-sti’iil!
-= di'i■; n I
-1st'.in.
-upui'f vi' ',
-i
-Ico
-ist i • ‘ i >
-tist'u, i • '
-l.f r • ■ ' '
-’ *
-:
-I. i '■ 1
-Istii
-\
-I
-. 6g
-would swrke to a pcrson in London whom she knew, and desire her to send them down three of the most fashionable
-hoops which were then worn, and to be Sure to Send them large enough, or else people could not See they had any on, but might think they still Suffered their petticoats to cling about them, like all the comshon wenches in the country.
-This business being dispatched, they Set about making their heads of a proper height, throwing off their handkerchiefs, lengthening the rustles of their 'gowns, hooking their aprons, and fixing large roles, of different coloured ribbons, upon their shoes, within an inch of their toes,
-9
-Thus
-I
-0
-/
-I
-0
-IV
-l'
-Istll
-i 1
-i' I i
-1 i j '
-|| fj 70 .
-III i I
-||ji| Thus adorned, with erect heads the
-'III i I
-jlj ||| entered the dining parlour, and call
-|| each other, every now and then. Mil
-[ii Molly and Mils Fanny,
-II Iji
-II i
-Mr. Selby, who had been all th lllll morning looking over his grounds, nf
-i; H shtt* I
-III I jl Sooner cast his eyes on his daughters
-iiiil'i'i :!, _
-1!| than he perceived the Sudden transform'
-jl ation in their appearance, and exclaimed,
---heyday! What is the mattei ‘‘ now, girls? What? are you turned rope dancers; by sticking up your heads fo high, and dressing your feet So low?"
-Molly replied, with a toss of her |jj|| head, --La! Sir! how - you talk —
-I i We have only put our things on in
-n I' the fashion." ’
-'I II f ^
-I f. If
-I '
-I i
-I ' '
-9
-*
-#
-_ \
-. 71
-%
-If that is the fashion, " answered he, it is a very unbecoming one, I
-am Sure. --Why, polys hair is too far above her forehead by a quarter of a yard; and fans cap looks like ‘‘ our old steeple yonder, only the wea there cock is inverted, and put under it, instead of being atop."
-By these jocular remarks she thought ^ to laugh them out of a mode of dress which he, with all V men of sense and judgement, could not but look upon as highly preposterous. The young Ladies, however, who were chagrined at
-his finding fault with what they believed
-,,,.
-'to be both becoming and genteel, appeared mighty grave.
-V
-I
-miss Fanny Said, --I think. Sir, my Sister Molly never looked So well
-f
-ia
-ipispii I
-if i
-iljjlllpiin; • '
-U ■ .n1 f,
-filffi'
-ilj: 72 .
-: il b, - •
-'f ' in 'her life : but indeed the fashion
-■! st,.;
-i i list gives an air to eve thing."
-S i, ' ' • L st
-f;;. ‘‘. •
-d! • - C i i •
-I ••• li •
-'1. • ’ i
-jl: I wish it would give a little under
-II fi standingro slime people, " replied he,
-nirstii I I N;
-; ■ J L
-||{j‘|i ' fijting his eyespn Mrs. Selby, who had,
-in the dreshng of her head, exactly shh
-l||ljl lowed her daughters.
-I isii!
-ill 1st • - ' ■
-stilst If you mean m, Mr. Seshy, " Said
-■; § Ili
-fi isle, I must tell you, once for all, that I
-Ijj I jii I I
-III I ■ think I am of a Sufficient age to know
-h »ji| •
-||[| how to drels myself, without either
-li; instructions or observations: :
-if' b
-i will, therefore, pofidvely hear no
-lii more of them."
-sim ■ ^
-iii ji III.
-list,.. ■
-j|ji This answer, delivered in a very pe
-||||| tone, kept down all the good
-fi things which Mr. Selby might have had
-!j jjjll)
-||||; to say upon the shtyed; he only laid
-Ml * foftijr
-‘hd!n
-iiiji II
-lf!h!. »
-iii!! I
-i‘»j r:!
-mil
-II
-. '
-V
-. '
-. 73
-Softly to himself, that she was, indeed, old enough to be he got nothing
-by his muttered remark, as his wife and his daughters unanimoussy, in consequence of it. Sealed up their lips during the whole dinner.
-.Soon after the cloth was removed Mr. Selby left the room, muttering again --Women will have their own « way, "
-In less than a fortnight Mr. Selby found', in Spite of all his remonstrances, and petitions too (for he condescended to entreat his wife, when he remon
-a
-strated in vain) the economy of his fast
+"*You* may desire to remain so," said his Lady, "because you have the most groveling notions; but my daughters and I" (drawing up her head with an air of the greatest consequence) "who have seen the world, have much better ideas of things, and intend to raise ourselves by imitating people who understand every part of good breeding to the very height. I beg therefore, Mr. Selby, that you would not put yourself in a passion, as all your swearing and fuming will signify nothing. As I now know what is
+[62]
+right, I shall follow it, whether *you* happen to like it or no."
 
-mily totally altered; and had the alterations been made instantaneoussy, instead of being brought gradually about,
-- he would Scarce have recognised either vol. I. E his
-s
+With these words, pronounced in a sharper key than she had ever spoke to him, she rose, and walked, in great state, to her own apartment, to which she was followed by her daughters, leaving the plain, worthy man, with eyes and hands lifted up with astonishment, at this sudden and disagreeable change in his family.
 
-III his wire or his daughters, lb entirely
-I. • J » ' ' • '
-II were they changed, not only in their
-jlj I looks, but in their language, and in
-tijl I I ■ :
-jl i, ' their behaviour.
-11! ■ / '
-Hi!! o
-I!
-i I;! I 'i
-■ M 1! ■ ‘
-III When Lady Lumley and the Mils
-si: Lumleys honoured Mrs. Selby and her
-|j||j daughters, by returning their visit, they
-IL ^ I ' '
-ii actually dazzled their eyes with the bril
-ii. ' '' '
-l|hi| liancy of their appearance. They were
-: dressed in gold and Silver mufiins, and
-j painted taffety Sacques, with all the lit
-I tie elegant ornaments, which can only
-be purchased, only worn with propriety,
-!i by people of fashion.
-il ’ I
-I st
-il ‘I
-ij I ■ ■ ■. ^
-I The poor Selbys stared at them as if
-!! -
-they were beings of a Superior order: they were quite confounded by the glit
-I ter which they made with all their fine
-il things. .........
-ii '.
-l / - ■ ' -
-Ill; '.
-ill' ^ hili
-i ll i i
-lifi! ill I
-II I
-9
-* '
-. 75
-9 t
+While the female part of the Selby-family were thus drawing improvement from their late interview with the Lumleys, the latter were talking over their departed visiters with, the most unbounded freedom.
+
+[63]
+"Well!" Said Sir Thomas, turning to my Lady, before they were hardly out of hearing, "I gave you good advice, I think, when I persuaded you to receive these people. You have already got something out of Madam Selby."
+
+"Yes," replied her Ladyship, counting her winnings, "I have piddled a  little: two guineas and a half is pretty well to begin with; but I shall never endure the strange vulgarity of the creatures: the fulsome civility of the fat mother, and the awkward behaviour of the gaping girls -- How they were dizened out! How strangely they affect to be well-dressed, at the same time that everything about them is out of taste! Never did I see such a total ignorance of dress indeed: but I
+[64]
+believe they would willingly make more modern figures, if they knew which way to go about it."
+
+"Poor girls!" replied Sir Thomas; "I pitied them for knowing no better: they are really handsome, and might, with a little instruction, be rendered quite agreeable."
+
+"Handsome?" cried my Lady, repeating that word, with a sarcastic laugh, while the Miss Lumleys sneered -- "Well!
+I should never have thought of their being handsome, of all things -- two such coarse, overgrown, blowzy creatures -- they look as if they were just taken from their father’s farm, where
+they have fattened from their infancy, to this hour, with the pigs and poultry. -- Heaven defend me from hearing
+[65]
+such vulgar wretches called handsome. No! there is nothing can make people, meanly born and bred, tolerable."
+
+In the conclusion of this speech, the two Miss Lumleys most cordially joined, and declared that they never saw two girls who knew less of life than the, Miss Selbys.
+
+"How they stared!" said Miss Lumley -- thought they would have devoured me with their eager eyes When Sir Thomas or my lady called me *Miss*, they started almost out of their chairs, as if they had never heard the word in their lives."
+
+"I suppose their father and mother never address them by that title,"
+[66]
+added Miss Harriot; "it would, indeed, be very odd if they should; for I am Sure their appearance would not gain it from anybody. I never saw two more ordinary girls -- handsome, indeed!"
+
+"Well, well," cried Sir Thomas, "whether they are handsome or not, since that word seems to offend you so much, they will serve to be laughed at, and to lose their money."
+
+These observations appeared to make some amends for the preceding ones, and restored *some* composure to the rnind of the person to whom they were directed, who began to be hurt at the bare supposition that any women could possibly have the smallest pretensions to beauty, who had neither birth, fortune,
+[67]
+nor a knowledge of the polite world to recommend them. Certain philosophers, it is true, have been of opinion that no woman can be completely handsome, who does not exhibit in her countenance a beautiful mind; but Lady Lumley's ideas were not so highly refined, though she was the daughter and the wife of a Baronet, with a fortune of fifteen thousand pounds, and had received the most liberal and polished education. Every woman of birth and fortune was, in *her* eyes, respestable; *she* only who was meanly born, and poor also, was contemptible in them. Sir Thomas, at that time, seemed to subscribe to his wife’s sentiments, for reasons best known to himself. He really entertained others exceedingly different, but his silence upon so important an occasion was very well taken at that critical juncture;
+[68]
+especially as he joined in the laugh with my Lady and her daughters, who proceeded, with the utmost satisfacion, to pull the poor Selbys to pieces.
+
+The Selby-girls next morning rose very early, to make changes in their caps, petticoats, &c. &c. and so vigourously employed themselves about them, that when they were shmmoned to dinner, they had hardly any clothes to put on. Unluckily, they were stopped at the very beginning of their operations, by considering that they had no hoops, and that they could not expect to procure them in that part of the country. In this distressful condition they applied to their mother, and she, being exactly in the same predicament, with regard to what she now ranked among the northeast nrcessaries of life, told them, that she
+[69]
+would write to a person in London whom she knew, and desire her to send them down three of the most fashionable hoops which were then worn, and to be sure to send them large enough, or else people could not see they had any on, but might think they still suffered their petticoats to cling about them, like all the common wenches in the country.
+
+This business being dispatched, they set about making their heads of a proper height, throwing off their handkerchiefs, lengthening the rustles of their gowns, hooking their aprons, and fixing large roles, of different coloured ribbons, upon their shoes, within an inch of their toes,
+
+[70]
+Thus adorned, with erect heads they entered the dining parlour, and called each other, every now and then, Miss Molly and Miss Fanny.
+
+Mr. Selby, who had been all thr morning looking over his grounds, sooner cast his eyes on his daughters than he perceived the sudden transformation in their appearance, and exclaimed, " -- Hey-day! What is the mattet now, girls? What? are you turned rope dancers; by sticking up your heads so high, and dressing your feet so low?"
+
+Molly replied, with a toss of her head, -- "La! Sir! how -- you talk -- We have only put our things on in the fashion."
+
+[71]
+"If that is the fashion," answered he, "it is a very unbecoming one, I am sure. -- Why, *Polly's* hair is too far above her forehead by a quarter of a yard; and *Fan's* cap looks like our old steeple yonder, only the weather-cock is inverted, and put under it, instead of being atop."
+
+By these jocular remarks he thought to laugh them out of a mode of dress which he, with all men of sense and judgement, could not but look upon as highly preposterous. The young Ladies, however, who were chagrined at his finding fault with what they believed to be both becoming and genteel, appeared mighty grave.
+
+Miss Fanny said, -- "I think, Sir, my sister Molly never looked so well
+[72]
+in her life : but indeed the fashion gives an air to eve thing."
+
+"I wish it would give a little understanding to some people," replied he, fixing his eyes on Mrs. Selby, who had, in the dressing of her head, exactly followed her daughters.
+
+"If you mean *me*, Mr. Seshy," said she, "I must tell you, once for all, that I think I am of a sufficient age to know how to dress myself, without either instructions or observations: and I will, therefore, positively hear no more of them."
+
+This answer, delivered in a very peremptory tone, kept down all the good things which Mr. Selby might have had to say upon the subject; he only said
+[73]
+softly to himself, that she was, indeed, old enough to be he got nothing by his muttered remark, as his wife and his daughters unanimously, in consequence of it, sealed up their lips during the whole dinner.
+
+Soon after the cloth was removed Mr. Selby left the room, muttering again -- "Women will have their own way."
+
+In less than a fortnight Mr. Selby found, in spite of all his remonstrances, and petitions too (for he condescended to *intreat* his wife, when he remonstrated in vain) the economy of his family totally altered; and had the alterations been made instantaneously, instead of being brought gradually about, he would scarce have recognised either
+[74]
+his wife or his daughters, so entirely were they changed, not only in their looks, but in their language, and in their behaviour.
+
+When Lady Lumley and the Miss Lumleys honoured Mrs. Selby and her daughters, by returning their visit, they actually dazzled their eyes with the brilliancy of their appearance. They were dressed in gold and silver muffins, and painted taffety sacques, with all the little elegant ornaments, which can only
+be purchased, only worn with propriety, by people of fashion.
+
+The poor Selbys stared at them as if they were beings of a superior order: they were quite confounded by the glitter which they made with all their fine things.
+[75]
 i Mrs. Selby was So charmed with la dy lumiey’s diamond pin and bracelets, with Sir thomas’s and miss lumley’s. pictures ornamented with pearls, that she pined for a pair of the Same Sort; but she could not bear the thoughts of having Mr. selby’s round, cheerful countenance, ever in d grtn, in his still rounder wig, appear on her arm. This desire, however, was not, she knew; to
 be gratified till she got to London,
 «»
@@ -877,20 +522,7 @@ i impreshon upon Mrs. Selby, who now
 y;;, numerous as those of her daughters —
 II vthat had she been postested of twenty
 .times the shm she could at that time
-com
-tijlstst
-r st... \
-isth ■ -
-ststir ^
-'
-,.
-.;
-. r;;
-:
-ft
-'; fy
-9
-ft
+
 command, it would have been insuffi*
 /
 cient for the gratification of them the
