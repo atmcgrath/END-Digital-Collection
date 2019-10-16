@@ -480,7 +480,7 @@ be purchased, only worn with propriety, by people of fashion.
 
 The poor Selbys stared at them as if they were beings of a superior order: they were quite confounded by the glitter which they made with all their fine things.
 [75]
-i Mrs. Selby was So charmed with la dy lumiey’s diamond pin and bracelets, with Sir thomas’s and miss lumley’s. pictures ornamented with pearls, that she pined for a pair of the Same Sort; but she could not bear the thoughts of having Mr. selby’s round, cheerful countenance, ever in d grtn, in his still rounder wig, appear on her arm. This desire, however, was not, she knew; to
+Mrs. Selby was so charmed with lady lumiey’s diamond pin and bracelets, with Sir thomas’s and miss lumley’s. pictures ornamented with pearls, that she pined for a pair of the Same Sort; but she could not bear the thoughts of having Mr. selby’s round, cheerful countenance, ever in d grtn, in his still rounder wig, appear on her arm. This desire, however, was not, she knew; to
 be gratified till she got to London,
 «»
 * Ji
