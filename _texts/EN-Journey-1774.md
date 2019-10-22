@@ -480,137 +480,23 @@ be purchased, only worn with propriety, by people of fashion.
 
 The poor Selbys stared at them as if they were beings of a superior order: they were quite confounded by the glitter which they made with all their fine things.
 [75]
-Mrs. Selby was so charmed with lady lumiey’s diamond pin and bracelets, with Sir thomas’s and miss lumley’s. pictures ornamented with pearls, that she pined for a pair of the Same Sort; but she could not bear the thoughts of having Mr. selby’s round, cheerful countenance, ever in d grtn, in his still rounder wig, appear on her arm. This desire, however, was not, she knew; to
-be gratified till she got to London,
-«»
-* Ji
-where she intended to Spend the winter. The vast encomiums on the metropolis, which she had heard from her new neighbours, and the accounts which they had given her of the people of rank and fa shion there, of the perpetual amuse ments, and of the various plea
-V
-Sures which might be procured there
-m ft
-with money, determined her not to bury herself another winter in the country.
-F 2 And
-%
-4
-/
+Mrs. Selby was so charmed with lady lumiey’s diamond pin and bracelets, with Sir Thomas’s and  Miss Lumley's pictures ornamented with pearls, that she pined for a pair of the same sort; but she could not bear the thoughts of having Mr. Selby’s round, cheerful countenance, ever in *a grin*, in his still rounder wig, appear on her arm. This desire, however, was not, she knew; to be gratified till she got to London, where she intended to spend the winter. The vast encomiums on the metropolis, which she had heard from her *new* neighbours, and the accounts which they had given her of the people of rank and fashion there, of the perpetual amusements, and of the various pleasures which might be procured there with money, determined her not to bury herself another winter in the country.
+[76]
+And with regard to the expensiveness of a polite residence in London, Sir Thomas had rendered her perfectly easy, by informing her that people of fashion never went without what they wanted, whether they had money or not, as no tradesman dared to refuse sending them the things they ordered, or to be troublesome afterwards about the payment for them. Sir Thomas, however, was here too bold in his assertions: he shad met with many *incivilities* from the *fellows* whom she dealt with; but his assertions, delivered with a very consequential air, made a strong impression upon Mrs. Selby, who now found her wants multiply so fast -- wants as numerous as those of her daughters -- that had she been possessed of twenty times the shm she could at that time
+[77]
+command, it would have been insufficient for the gratification of them.
 
-i, ii And with regard to the expensive
-jj; " jj' ■
-! I mels of a polite residence dn London,
-'!S! |! ' ' ’
-! jtsir Thomas had .rendered her perfectly
-l|i|p!j 11 ^ ^ a 7
-|||j|f «aly, by informing her that people of
-SB, fashion aever went without what they
-^8 wanted, whether they had money or
-mot, .as mo tradesman dared to refuse
-BI Tending them the things they ordered, if II ior to she ^troublefbme afterwards about
-if fii ■. ■ ■
-I il the payment for them. Sir Thomas,
-ill showever, was here too bold in his as;
-; i hi I ^
-lsi ji I
-III fertions.: he shad met with many met
-LI II ^ - '■
-iilii vilities .from the fellows whom she dealt
-i*iii Iilii
-iii; with; but his assertionsi, delivered with
-{ I a very conlequential air, rrvade a strong
-i impreshon upon Mrs. Selby, who now
-151 found her wants multiply sh fast --wants
-■ststdl'' ■.
-y;;, numerous as those of her daughters —
-II vthat had she been postested of twenty
-.times the shm she could at that time
+The hoops, in a few days after they were ordered came down. They were'much too large to be genteel; but the girls stretched their old flimsy,, half dirty silks over them, and made themselves appear the most awkward, tawdry figures to be conceived.
 
-command, it would have been insuffi*
-/
-cient for the gratification of them the
-hoops, in a few days after they were ordered,, came down. They were' much too large to be genteel; but the' girls stretched their old flimsy,, half dirty Silks over them, and made themselves appear the most: awkward, tawdry figures to be conceived.
-• ■ V
-In their new hoops and their old fi'lks they hurried away to thb baronet’s. There they found an addition to the ’ company, by the arrival of Mr. Charles Lumley and his brother George, 'who
-.,. 9 '
-was designed for the army.
-ft
-I,,
-these Gentlemen were young; they were rather agreeable in person,
-'
-E 3 and
-f
-\
-f'plc:; ^
-iststbsth
-• hst 'I, -
-'ls • I : •
-{ cisti. ilb 'ststst
-'I - ‘;; ■:.
-II -- dst: '*
-^ ■
-siistc^i
-h, i: iu; ■
-■!'! ic ^
-■■ - ''
-. i st
-I; y8 .
-! : l ^
-I :
-il \ isst ■ ■
-V f *'
-iind were quite, in their appearance, i men of the world. • '■
-‘iiid 1; L;,
-: ils Ust
-isin'hlist
-i'sit lst ■ ’ ^
-Till: :; :;.. •
-lijhi.st! '
-;; 't. The Mist Selbys were now powerfiil
-i ly engaged in stealing glances at thde
-ti; fine fellows (who took no Sinall pains to
-illl attraifi; their attention) and listenino; to
-: i ^ ID
-lli: the pretty nonlenle they sometimes threw
-i:; 1 j: M: i ‘
-||||| out on purpose to see what estcdt it would
-'i ll have upon a couple of girls who had northeast
-li j I ^ ^ '
-ii' ' they Ibon perceived, till then, seen
-j j!
-i hi any man who really merited the notice
-Ij of a woman of taste. With their tongues
-I
-ill and their eyes the country girls endea
-ti, ijll
-llij voured to be as attradive as poshble —
-II ’ ‘j! b 1 i ^
-; i ‘jjti) •.
-Isti: and their violent efforts to please were
-lilij shccestful. Young, healthy, handsome,
-Ii!!!
-I and new obyedis, the Lumleys beheld
-ijljl more charms in them than they would
-lill have, perhaps, difoovered in more beau
-i i 1 i'.m' XX;
-; uhl:
-lils tisul women: and as the fair sex are
-pr •
-'seldom
-It
-ilisti: -
-C
-'M.;
-; • * t
-i
-\
-t
-/
-t
-*
-♦
-, yp
-*
-N
-N
-.seldom deceived with regard to then conquests, they presently perceived the impression they had made on their admirers, and began to plume themselves
+In their new hoops and their old silks they hurried away to the Baronet’s. There they found an addition to the company, by the arrival of Mr. Charles Lumley and his brother George, who was designed for the army.
+
+Both these Gentlemen were young; they were rather agreeable in person,
+[78]
+and were quite, in their appearance, men of the world.
+
+The Miss Selbys were now powerfully engaged in stealing glances at these fine fellows (who took no small pains to attract their attention) and listening; to the pretty nonsense *they* sometimes threw out on purpose to see what effect it would have upon a couple of girls who had northeast they soon perceived, till then, seen any man who really merited the notice of a woman of taste. With their tongues and their eyes the country girls endeavoured to be as attractive as posible -- and their violent efforts to please were succesdful. Young, healthy, handsome, and *new* objects, the Lumleys beheld more charms in them than they would have, perhaps, discovered in more beautiful women: and as the fair sex are
+[79]
+seldom deceived with regard to then conquests, they presently perceived the impression they had made on their admirers, and began to plume themselves
 V
 upon their success. ^tiiey both, indeed, immediately reckoned themselves Settled for life.
 w
@@ -628,22 +514,7 @@ to feel her consequence, before the visit was half ended.
 This visit was finished pretty much, in the Same manner as the foregoing; one
 kiy (D
 ■ --The Selbys retired losers----they
-E 4 were
-* **
-s
-i!pi|.d
-b lit;
-ijl
-im - • ■ '
-LI '
-I
-L.. 4 i * J; ‘ ^ 11: • ‘ M.
-st _ I; st?v: {
-'• ■ d’;
-i So
-Jl .'■ ■-
-u iff
-Ipi'"
+
 were too rjauch animated by their pro ill ■ fpeh/s to be affected by their Ioffes.
 L'stst'l ■'
 i
