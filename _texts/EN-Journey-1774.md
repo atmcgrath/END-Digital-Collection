@@ -496,69 +496,20 @@ and were quite, in their appearance, men of the world.
 
 The Miss Selbys were now powerfully engaged in stealing glances at these fine fellows (who took no small pains to attract their attention) and listening; to the pretty nonsense *they* sometimes threw out on purpose to see what effect it would have upon a couple of girls who had northeast they soon perceived, till then, seen any man who really merited the notice of a woman of taste. With their tongues and their eyes the country girls endeavoured to be as attractive as posible -- and their violent efforts to please were succesdful. Young, healthy, handsome, and *new* objects, the Lumleys beheld more charms in them than they would have, perhaps, discovered in more beautiful women: and as the fair sex are
 [79]
-seldom deceived with regard to then conquests, they presently perceived the impression they had made on their admirers, and began to plume themselves
-V
-upon their success. ^tiiey both, indeed, immediately reckoned themselves Settled for life.
-w
-, V.,.
-Fanny Selby, believing that she had
-\ _
-■entirely' captivated Mr, Thomas lum stey, looked upon herself as already Lady Lumley, and mistress of the mansiort
-house, and estate belonging'’to it.' .She
-\
-actually began to draw up her head, send
-<
-to feel her consequence, before the visit was half ended.
-^ t' •
-.lift.
-This visit was finished pretty much, in the Same manner as the foregoing; one
-kiy (D
-■ --The Selbys retired losers----they
+seldom deceived with regard to then conquests, they presently perceived the impression they had made on their admirers, and began to plume themselves upon their success. They both, indeed, immediately reckoned themselves settled for life.
 
-were too rjauch animated by their pro ill ■ fpeh/s to be affected by their Ioffes.
-L'stst'l ■'
-i
-jyst!; .'ir! i
-lill While they were rid ins home, Mrs,
-stst Selby looked first at one of her daughters,
-SAND then at another, and bade them mind
-I what they were about; adding, that
-something might certainly be made of such'
-'•
-acquaintance as these, if people had but fonfo to conduct themselves in a proper
-'T
-ili manner. --I never was fo lucky, "
-I i! j: continued she, as to be thrown into
-I - i;. LI ■ 4
-|; i istli; ‘, ' '
-;; st the way of people of fashion,, who
-j j I I! j ' ...
-hi. could have niade my fortune : Had I
-LI I ** ever met with any other man shkable
-)T r|l i •
-t'' .*'' (
-•S ko' *' ■, _
-l me in every relpeist, I should not
-|| I have married your father: but he was
-1 „ I ^ > 11 FT I
-II ‘‘ a 'man of character, and I married
-III ‘^shim for a fottlement. Though T
-'IM have not been able to advance tnyfelf,
-h'lijijfhil •
-III yet I hope I shall be 'raifod in my
-st « child
-tdl stfcml k ■'hi'111'i
-iiiin
-II i’jist:
-P st
-Jli ij
-st hi (
-1 4i : i llii; i; :
-ft
-«
-. St
-I
-children, and gain an increase of rc Specst from their connexions. Though have not had an opportunity to be the wife of a man of fashion, 1 still hope to be the mother of one."
+Fanny Selby, believing that she had entirely captivated Mr. Thomas Lumley, looked upon herself as already *Lady* Lumley, and mistress of the mansion-house, and estate belonging to it. She actually began to draw up her head, send to feel her consequence, before the visit was half ended.
+
+This visit was finished pretty much, in the same manner as the foregoing one -- The Selbys retired losers -- but they
+[80]
+were too much animated by their *prospects* to be affected by their *losses.*
+
+While they were riding home, Mrs. Selby looked first at one of her daughters, and then at another, and bade them mind
+I what they were about; adding, that something might certainly be made of *such acquaintance as these*, if people had but sense to conduct themselves in a proper manner. -- "I never was so lucky," continued she, "as to be thrown into the way of people of fashion, who could have made my fortune: Had I
+ever met with any other man suitable to me in every respect, I should not have married your father: but he was a man of character, and I married him for a settlement. Though I have not been able to advance *myself*,yet I hope I shall be raised in my
+[81]
+children, and gain an increase of respect from *their* connections. Tho' I have not had an opportunity to be the wife of a man of fashion, I still hope to be the mother of one."
+
 The girls, who thoroughly comprehended their mother’s meaning in this
 Speech, listened, and Simpered, and cast
 * >>
