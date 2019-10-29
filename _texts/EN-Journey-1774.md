@@ -510,127 +510,23 @@ ever met with any other man suitable to me in every respect, I should not have m
 [81]
 children, and gain an increase of respect from *their* connections. Tho' I have not had an opportunity to be the wife of a man of fashion, I still hope to be the mother of one."
 
-The girls, who thoroughly comprehended their mother’s meaning in this
-Speech, listened, and Simpered, and cast
-* >>
-Significant glances at each other.:
-ft
-When they came home, they kept up a kind of ocular conversation during, Sup
-ft.
-pefj in Spite of all Mr. Selby could say
-to draw them into a verbal one. He
-%..
-V
-disapproved entirely of their frequent visits to Lumley place, and of the manner in which they dressed themsetees upon those occasions; yet, as he could not
-I
-prevent their aisting and appearing tor, tally out of character, he began to relinquish ail thoughts of endeavouring.to
-^ ' V ' V '
-E 5 bring
-%
-qn»(c •’ Hjtii i r
-bibiih
-‘
-i; : li L i d.n stlt Till M II; = iirjrhlif : jij 1': :; : j :
-ifpllst bring them to think as he did upon th;
-|!|||||jt shbjedt. Being a great lover of peat
-■ijll h; ■ f.'dj.ljj: • :.
-||!|||ij|: too, he chose rather to give up a poin
-‘ii
-Ijliilte than to be always contesting it withoi
-i I ‘''st;! ^
-any hopes of Succels. Fond, indee' listilst of his children, who might have bet
-iip; st ' ’ o
-reckoned tolerable, he imagined, if th had not, by attempting to liiend natur
-liulii t’!’ -
-ii abshlutely shoilt her, he wished to he
-fji[‘ J ‘ :
-ij !|- them talk over in an evening, what h;
-i LI i ' ^
-’ b'lv • • • »
-il lit pasted in the day, and join in their i
-1 I ln j I!
-!till nocent cliat: but, as alb he could f
-I '
-|| i proved; ineffectual, their heads beii
-piip i i. .....
-Ijilljli quite, giddy with their imaginary CC
-Iilii i quests, he, left them to enjoy their o
-la 1 fji {{ i ' ^ ^ ^
-ji !l|pj : j !|* H j ^ ^
-III il' converfetion by themselves, and L
-III III I'; ii ‘ ^
-ji|||i; down his foutary meal as well as
-ll|r could.. -■.
-LI!;; lifif (
-islfi n ^ ■■
-lists ^ Mrs.^selby now laid very little to I
-i i I !!' jj'i j 1 • i
-lilllist shushand, but when she wantedsherpu
+The girls, who thoroughly comprehended their mother’s meaning in this speech, listened, and simpered, and cast significant glances at each other. When they came home, they kept up a kind of *ocular* conversation during supper, in spite of all Mr. Selby could say to draw them into a *verbal* one. He disapproved entirely of their frequent visits to *Lumley-Place*, and of the manner in which they dressed themselves upon those occasions; yet, as he could not prevent their aisting and appearing tor, tally out of character, he began to relinquish all thoughts of endeavouring to
+[82]
+bring them to think as *he* did upon the subject. Being a great lover of peace too, he chose rather to give up a point, than to be always contesting it without any hopes of sucess. Fond, indeed, of his children, who might have been reckoned tolerable, he imagined, if they had not, by attempting to mend nature, absolutely spoilt her, he wished to hear them talk over in an evening, what had passed in the day, and join in their innocent chat: but, as all he could say proved ineffectual, their heads being quite, giddy with their imaginary quests, he, left them to enjoy their conversaion by themselves, and got down his *solitary* meal as well as he could.
 
-replenished, or her wardrobe recruited. This neglest he bore with great composure, as she had been too much accustomed to talk too fast for him, esoe
-'X
-dally upon Subjects which were not always agreeable to him. He comforted
-himself also, by hoping that, when the very genteel Lumleys were gone back to London again, on the Setting in of the winter, his wife and daughters would return to their senses : really believing that they had impaired them by associating frequently with people who, from what he could learn, had discovered not a few marks of insanity.
-#
-A
-- t ./
-Till this happy event should be brought about, Mr. Selby amused himself with looking after his farm, and in contriving to improve it; very ratio i^ally supposing, from Mrs. selbyv in ^ " 6 creased
-/
-L.
-••.»t 1j .: u n
-sh" •"
-> f u.
-Uiiiilj,
-il! istih:!; '
-Ml iilll'i’i:
-lill $4.
-i ill L ■■*
-III crcaled demands, for herself and her
-st; : II ’ ’: :.. • '
-daughters, that an increase of income Ist would be as necessary as it would be
-I ' * « V J,
-kli’s eligible. Yet he was by no means wish; II ling to Ipend any overplus he might be
-lucky enough to find arising from his j |j|i ceconomicai improvements; he wished
-!! 1st j ' '
-j III to lay by a decent Sirnl every year, in
-i I!
-i! order to make Some provision for his
-{[ijj daughters.
-.. v.
-Ill One day, when he thought they were
-LI more iniportunate for money than they
-sti .st • ^ ".st'., ^
-1' ought to have been, he endeavoured to
-'ll!. ■'
-il! silence them, by telling them, that he
-l ^
-||| they would show more pru
-lijil shence if they denied themselves a few
-ilis
-III trifles; to lave a shm for the making of
-Illl their future lives comfortable.
-h! .'■SC st' '. - • ■ ■
-ist'inil
-ij ■ ...., •,
-■ -,, st.’ ■ ■
-II • t J..
-ju., jl » V
-LIII st p' V; /;,
-iq.itu -.
-I il
-; ii.'iiii
-ist'st; !:
-■■ilt'ill r
-^#1
-liilsr
-LI LIII ■\ tui
+Mrs. Selby now said very little to her husband, but when she wanted her purse
+[83]
+replenished, or her wardrobe recruited. This neglest he bore with great composure, as she had been too much accustomed to talk too fast for him, especially upon subjects which were not always agreeable to him. He comforted himself also, by hoping that, when the very *genteel Lumleys* were gone back to London again, on the setting in of the winter, his wife and daughters would return to their senses: really believing that they had impaired them by associating frequently with people who, from what he could learn, had discovered not a few marks of insanity.
 
-t
-Th jou6.net to'lonbosh. 85
-I
-Mrs. Selby, overhearing this answer,
-- t
-bounced into the room, and Said, she did not know what he meant by comfortable; that he talked in a strange manner; that she had not the least idea of the word comfortable', that it was a very old-fashioned word, and that nobody thought of comfort. --Taste,
+Till this happy event should be brought about, Mr. Selby amused himself with looking after his farm, and in contriving to improve it; very rationally supposing, from Mrs. Selby
+[84]
+increased demands, for herself and her daughters, that an increase of income would be as necessary as it would be eligible. Yet he was by no means willing to spend any overplus he might be lucky enough to find arising from his economicai improvements; he wished to lay by a decent sum every year, in
+order to make some provision for his daughters.
+
+One day, when he thought they were more importunate for money than they ought to have been, he endeavoured to silence them, by telling them, that he they would show more prudence if they denied themselves a few trifles; to save a sum for the making of their future lives comfortable.
+
+[85]
+Mrs. Selby, overhearing this answer, bounced into the room, and Said, she did not know what he meant by comfortable; that he talked in a strange manner; that she had not the least idea of the word comfortable', that it was a very old-fashioned word, and that nobody thought of comfort. --Taste,
 elegance, and magnificence, " conti.
 .
 nued she, are the fashionable expres Sions: people who are in a style of
@@ -688,20 +584,7 @@ is!ji|: 11 fore,, could not much boast of her con
 lllll ..However,, as there is always
 slime advantage in driving the enemy
 lills to a distance, if he cannot be brought
-•; ■ ■ 1st !■ : *, Tn r. a
-pi!|st?s| - tc
-I I ■ 'ill. r;;
 
-'dlii'.t
-i 1 ■
-Il Ah
-Slit
-ifj it
-sh 'll;
-is ' !ih
-! Am
-I; III
-." 8y
 CO desirable terms. So Mrs. Selby conceived hopes of worrying her husband out of what she could not get out of him by persuasion. She knew that he was very Strongly attached to a country life; that there was nothing he detested more than the bustle of company, with
 the attending expenses; that he would have his own nasiy way----she Called it --if he could; and that she could hope
 to carry her point but by one way of proceeding --by making his life uneasy, by oppostng him in everything, and by obliging him to part with his money to purchase the peace which he enjoyed, before his family had entertained notions So unsuitable to their situation in life : a Situation in which he was desirous of Seeing them remain, as he could not afford to place them dna more elevated Iphere; nor indeed did he believe
