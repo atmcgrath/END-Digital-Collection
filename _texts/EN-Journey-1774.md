@@ -526,34 +526,12 @@ order to make some provision for his daughters.
 One day, when he thought they were more importunate for money than they ought to have been, he endeavoured to silence them, by telling them, that he they would show more prudence if they denied themselves a few trifles; to save a sum for the making of their future lives comfortable.
 
 [85]
-Mrs. Selby, overhearing this answer, bounced into the room, and Said, she did not know what he meant by comfortable; that he talked in a strange manner; that she had not the least idea of the word comfortable', that it was a very old-fashioned word, and that nobody thought of comfort. --Taste,
-elegance, and magnificence, " conti.
-.
-nued she, are the fashionable expres Sions: people who are in a style of
-• \ * I. • V st
-to command them, are Sure of
-I ' f f 0
-enjoying all the felicity which this
-. t ' A
-world can afford: and without a for
-r
-tune Sufficient to purchase Such fell city, life is' a mighty dull affair."
-... ■ 5 ’ * ■ 1
-* 4
-1
-4. i - #
-'A ^ i ■. j ■ - J
-Selby heard all his imitating wife uttered; but as her sentiments as well as her language were quite new to him, he
-discovered astonishment in every limb,
-in
-$
+Mrs. Selby, overhearing this answer, bounced into the room, and said, she did not know what he meant by *comfortable*; that he talked in a strange manner; that she had not the least idea of the word *comfortable*, that it was a very old-fashioned word, and that nobody thought of *comfort*. -- "Taste, elegance, and magnificence," continued she, "are the fashionable expressions: people who are in a style of life to command *them*, are sure of enjoying all the felicity which this world can afford: and without a fortune Sufficient to purchase such felicity, life is a mighty dull affair."
 
-■ 1 I II : i‘hb
-yi|: ii
-jlllllp in.every.feature. He was. .almost inca
-■liillli! pabic: of Speaking : he was pretty shn
-I i ^ II
-i ||jiii| he should not be able to Speak to th(
+Selby heard all his *imitating* wife uttered; but as her sentiments as well as her language were quite new to him, he
+discovered astonishment in every limb,
+[86]
+in every feature. He was almost incapable of speaking: he was pretty shn he should not be able to speak to th(
 t M 1 ^ 1
 I I Ji! purposci He thought it best, there!
 ! [!! j 1!
@@ -564,10 +542,7 @@ I M 1 I' * ft ft
 her rhetoric upon him, and happened tc
 1 j |ji 1} i I Ij ^
 r||ijl III be then particularly eloquent.
-'LI lill
-f T j i. ■ 1 ■.
-: 1
-ill
+
 I i ' The good, mild man, at last, tc
 j relieve his ears, retired into the garder
 h ^ I I I • • • •
@@ -641,27 +616,7 @@ of life fon, than, a. man who,
 thinking himself Superior to me in'
 «
 every respect,, them equally : y defer ving,
-C
-4
-I hili I
-|!! il'! j j; Uh tu '
-f diii’
-'9© The journev to' London.
-lib J A: V \
-, : 1 i lllipib!!
-t. i rf ■?! 1 s
-*" *' tl ' ‘n■ i ' '
-ij|||ij, '■‘‘"'deferving; strriay best^apt' to trfeat
-S i hljillstsi'irst ■ ^
-: j t • u j] j isti; ij?|| / ^ ^
-||||{{|||; iji '* and my child \vith a contempt no
-ti iililist • be endured."
-5 ■ #ij t 'i: • i ti it 1
-is illifll! i
-Liiliitist * ..............‘
-lillinjjlii
-: Hi ihh
-j I '
+
 M L In this rational shanner he talke(
 i Mrs. Selby; but, by telldng hi
 h i manner to her, he only made thi
@@ -723,23 +678,7 @@ in the manner she expected. He would,
 *
 indeed, have pronounced anybody mad
 who
-&
-ft
-^ il i
-•il'ist ‘1 '
-. fj' i
-*.* • f0
-f, • :
-: IJ ^'
-*. *
-- ' ■; < LI
-uian
-iirtlill
-i'iiltli
-: sh!i: C
-h lit -- - _ _
-I 9+ .
-ijjiii
+
 ii who had Supposed it possible for him to
 II entertain serious thoughts of selby’s
 Il daughter; and as he never had the least
@@ -759,20 +698,7 @@ i '
 j: my Lady fusty imagined, between his
 LI
 I' nephews, George, never liking one wo
-i ■ I ' man
-I. ^
-I
-ji;
-h r
-m
-7 ~ X
-Hi *?'
-Iso
-:
-> ■
-/
-. 95. man long, was not much concerned at
-•»
+ 95. man long, was not much concerned at
 having an opportunity to leave a Jpot,
 'of which he began to be heartily tired,
 Tom, on the other hand, who really, felt a passion for Fanny, though it was
@@ -858,22 +784,7 @@ Young lewson had not received
 * ■ • V
 a polisned education, but he was modest, lenlible, and exceedingly well behaved; and his father, who had both
 F 2 a sound
-r
-..sstrtff
-J •.
-•0 « J
-. t,. _; :;
-; '"li ■
-#
-C
-ri '
-■ •. 1 J
-I; •• I: : •;
-K'
-ib j
-jijijdb, lc •
-iisifii; -' Tst^ ■ jovrne y Ato ^ 'loncan.'
-[■i'i ilk
+
 IIS ^ K sound understanding, and ^ a valuabl ifs heart, had regard enough : fbr him, t
 listfst confont to ihis marrymg a woman witi
 j|.fhv'»ih" ’ I * • ft ft * ( ^
@@ -937,26 +848,7 @@ II dafter hstvisttk'followed Fanny for a week or tenfostys, and taken her flirt
 |1 ' W.. r
 jli lie foized thejflrst luck morfient, as he
 ||| th6ught*uwhichsfocturred, ' and made an
-I' I LIII '■ • '" ■ ' s t • ■' •, ■, S'
-Ihiite VI ’ t ‘''cj stv''
-£' rt 1 ^
-: A V II, nui isic SCC. D V .■
-i'iair " |ii‘ ’ .• *. k
-i I II Qi : amyn: A72ii aari - ■
-i'fi'
-ssultj; ss; !|- ' i \ 1 1
-il k r.
-!sh \
-. .ri Ji '
-'bl 1
-I' I il '; IS I
-1"'
-%
-'- - D ' **• : •'■t'ccii. fc i
-. io'
-^ ' • •■ V
-.. - V. V J.. - ■. - r ^ ■
-■ ', *; ■ ■ : ': ■ -■ *
+
 , Fanny, had She never seen thelumleys, would not, perhaps, have refused le\y ion’s offer: ike would, probably, have'
 '^ • •. ^
 gladly accepted of it: but j after having entertained hopes of a baronet’s eldest
@@ -973,19 +865,8 @@ haughtiness that ititcned iber exceedihgir ly, and gave.great uneasiness. was pa
 imdefcrving of their attachment to her; -
 F 5 they
 *
-#
-l illijilf ill I
-- • hi tei’il
-: dii: 'nh iihi r .* ■ #
-(mn 'h;
-i'ti': i i: :;; !!’! j ^ ■ ■
-iilii! iii;
-'I life?
-listy jl l jji!
-lib! io .
-f II i \ ■
-; hi !i if! V.
-‘ il. !tss Il: :
+
+
 •! f: Hi! II i
 If ills. they would have confbled themselves, LIII by thinking that their lost, in const
 ■ i ** fi ^
@@ -997,17 +878,7 @@ I of a different turn of mind : he felt a
 III sincere concern at finding her lest amiable
 upon a more intimate acquaintance, with her, than be could have believed her to be. Agreeably to his feelings
 KD wi O
-upon the trying occasion, he left her with the strongest marks of regret in his countenance, with the keenest stnsa tions of sorrow in his heart: telling her, however, that he could not yet prevail on himself to give up the fond hopes he had fo long cherished of calling her his; that he would wait for a more favourable opportunity to renew rhe fiibjed nearest his. heart, :
-iff ' '
-Lhi '
-1
-9
-t
-\
-9
-\
-. 107
-'I
+upon the trying occasion, he left her with the strongest marks of regret in his countenance, with the keenest stnsa tions of sorrow in his heart: telling her, however, that he could not yet prevail on himself to give up the fond hopes he had fo long cherished of calling her his; that he would wait for a more favourable opportunity to renew rhe fiibjed nearest his. heart,
 She made him no answer.
 C
 Just as he was leaving the room, Mr Selby met him.
