@@ -531,48 +531,16 @@ Mrs. Selby, overhearing this answer, bounced into the room, and said, she did no
 Selby heard all his *imitating* wife uttered; but as her sentiments as well as her language were quite new to him, he
 discovered astonishment in every limb,
 [86]
-in every feature. He was almost incapable of speaking: he was pretty shn he should not be able to speak to th(
-t M 1 ^ 1
-I I Ji! purposci He thought it best, there!
-! [!! j 1!
-pi, |, fore, to be Silent: and, indeed, at thai
-I I |ij I; Jl
-I III I STRIE he would have been quite over j||il powered, as his Lady poured out al
-I M 1 I' * ft ft
-her rhetoric upon him, and happened tc
-1 j |ji 1} i I Ij ^
-r||ijl III be then particularly eloquent.
+in every feature. He was almost incapable of speaking: he was pretty sure he should not be able to speak to the purpose. He thought it best, therefore, to be silent: and, indeed, at that
+time he would have been quite over-powered, as his Lady poured out all her rhetoric upon him, and happened to be then particularly eloquent.
 
-I i ' The good, mild man, at last, tc
-j relieve his ears, retired into the garder
-h ^ I I I • • • •
-j Ij I: hastily, leaving his loquacious wife mis
-j tress of the field. But though Mrs
-I !|1 Selby had, in one sense'of the word,
-J I f I
-jijii i gained the vicstory, she had not been abk
-■j ft !■ fj i j 1 1 ■»
-llpj, to carry away any plunder; she, there
-is!ji|: 11 fore,, could not much boast of her con
-.1 'I >1 •
-; rjjj ijji'lj stj j' j I;; ^
-lllll ..However,, as there is always
-slime advantage in driving the enemy
-lills to a distance, if he cannot be brought
-
-CO desirable terms. So Mrs. Selby conceived hopes of worrying her husband out of what she could not get out of him by persuasion. She knew that he was very Strongly attached to a country life; that there was nothing he detested more than the bustle of company, with
+The good, mild man, at last, to relieve his ears, retired into the garden hastily, leaving his loquacious wife mistress of the field. But though Mrs. Selby had, in one sense of the word, gained the victory, she had not been able to carry away any plunder; she, therefore, could not much boast of her conquesr. However, as there is always some advantage in driving the enemy to a distance, if he cannot be brought
+[87]
+to desirable terms. So Mrs. Selby conceived hopes of worrying her husband out of what she could not get out of him by persuasion. She knew that he was very Strongly attached to a country life; that there was nothing he detested more than the bustle of company, with
 the attending expenses; that he would have his own nasiy way----she Called it --if he could; and that she could hope
 to carry her point but by one way of proceeding --by making his life uneasy, by oppostng him in everything, and by obliging him to part with his money to purchase the peace which he enjoyed, before his family had entertained notions So unsuitable to their situation in life : a Situation in which he was desirous of Seeing them remain, as he could not afford to place them dna more elevated Iphere; nor indeed did he believe
 that
-;.. jin*' I r J i; -11- *■,.
-Liliy^ i c|'i!r: r;.
-M... miciit p : -; r '-‘ iiist d '
-■A Hd
-u rtlb!\;.
-■ !i( "iiilby. _
-lllilst 8^ THE; j0urneyt0l0nd0n, '
-'■i| list: **
-III SIP'
+
 |t||ii that they could be happier than the
 Cst i I, 1-;! ifji Cui; '
 Sllfllj ■ were, could he place them in the high
@@ -1082,21 +1050,7 @@ t. m. • •*
 A ♦ ^ * *
 he, hurrying out of the room, quite
 '■ '' - weary
-#
-ft
-iiil’i III j
-'ssi I St!
-w'hh 'i fj : (
-||‘ r; i •
-st S H f
-LI Pii I
-I up The., ' -
-ji weary of contesting a point which she
-1 I ^
-Illl I never should carry^, she' plainly'saw.. ■’"
-it'n " t -
-'; 0m ssl 1 ' • '
-i|ih i! J ■' ‘.
+
 lil No shoner was begone, thansmrs.
 j il Selby began to .question.'fanny." about
 ji| lewson; and concluded, with telling
@@ -1149,19 +1103,7 @@ lill ■ his Fanny, - and never observed! any signs of dislike to himself in her
 I I was' shi mated by the'nioft' flattering
 hopes to believe that he Should gain her cshnsent. Nf disappointment, Therefore
 was very great: he was truly mortified to find the woman whom he had long ad ibired iind loved, not only extremely in differenf about him, ' but alsq {trongly disposed to treat him with contempt. He was exceedingly chagrined at her cold, at her insulting behaviour, yet even that behaviour diei not, cure him, * as he first fancied it would have done, of his passion for her. On the Contrary, he, like many infatuated people in love, felt himsdf but too fondly attached to her. He strove, indeed, to conquer feelings which he could not defend by a' Severe ejtami
-I n ation
-I
-I.
-;
-9
-\
-\
-\
-ft.
-p
-I
-, fig,
-j
+
 riation.of her imperfections, but he found
 ft
 that when they were contrasted with her beauties, they were Soon forgotten. The latter took possession of his mind, and
@@ -1616,23 +1558,7 @@ J Fh: i!' !' • •
 If:, i lover communicated his disagreeable in
 |e|it '. o.
 imj:! tedigence, and at length, on being
-III
-1 ityst •», •*
-I ss JE i'
-I Ijj^ C; '■
-'i' ' ^
-fk; - f:
-lildii p' I'
-r. '
-[.
-i. ■■ ■. ' ■ ■
-ta
-I.
-i N
-p
-/
-, lyg
-t
+
 prelted, declared herself very much con.. at the .idea of a separation. He
 %
 told her there was but one way for her to prevent it. --Go to town with me,
@@ -1750,28 +1676,7 @@ I
 off with the Selby samily as Soon as she could, not being able To bear the
 thoughts of knowing Such wretches in town, though they Served to fill up a vacant hour in the Solitude of the country. Mrs. Selby, however, would not be put by in that manner: fly continued
 upon the subject which engrossed her attention, till file learned all .that file wanted to know; and was not
-J
-tfsi
 
-talking
-H 2
-!• I
-'A
-'i!
-i
-
-!!
-Si!
-', i
-i; ''
-k
-iii
-hh
-U:
-:
-
-ll
-in
 
 l[; te4|ir ■
 Iilii deterred from the Journey
@@ -1995,17 +1900,7 @@ polite life, and Inch stuff She would j
 have been fettled in a very affluent j
 manner, and would have been very K happy with Mr. Lewfon, if you had | - ' let ' I
 • j
-ft t
-!
-f
-f
-I
-4
-« i
-V I
-!
-<
-i' '
+
 I let her alone. Yet you are always
 I talking of putting her in the way of
 I making her fortune : but mind what
@@ -2215,16 +2110,12 @@ S'' P
 ||| Charles, sufficiently deshous of get
 P .ting at a light of Mist Lurnley, was
 1: ^ all compliance, and went to Berkley
-square the very next morning. He was not a little embarrassfed to behold his ‘ fine lady mistress, sitting between a w<2
+square the very next morning. He was not a little embarrassfed to behold his ‘ fine lady mistress, sitting between a w 2
 caroni^ Lord, and a Coloriel in the guards, to each of whom Ihe appeared to be dispensing favours with the greatest ease and liberality. Little har .riot was at the same rhyme entirely en
 II gauged with a young Right Honourable
 in orders, who made a very uncierical j appearance. His hair was drilled fit
 for a bag; he had a black satin waistcoat with black chenille and bugles : he had white linen breeches white silk stockings, and a light grey frock with a waist which almost reached to his garters, and scarce any Ikircs at all. I his dainty i?ivine was expatiating upon a
-I large
-r ■.
-ft
-/ •
-'.7 r
+
 The j0urnev fp Lonoon. <.17.1
 f ^ ' /
 i
@@ -2254,13 +2145,7 @@ L
 . > «
 i -- ^ f - ’
 Charles, finding every part of the family at' home - particularly employed,
-'' 1 2 ‘ laid
-\
-\
-0
-T
-liji
-ihils
+
 01;
 j kfi The journty ' ttelfonocins
 fiii*
@@ -2358,15 +2243,7 @@ I called to ask them how they did aster
 II ^
 = l.. •
 their journey.
-I As
-» I - '
-s
-II • ■
-LI
-1; I
-I
-I
-/
+
 I
 The jpurnev IO LONOPN.
 * ft
@@ -2449,21 +2326,7 @@ f wishing Miss Lumley as innocent as
 I her; or. that Jhe had all those charms I; ' 'whicte
 ij! ' ■ '
 A..
-f I
-(
-i
-!
-I
-'M
-'9 ■
-I
-I
-.
-I
-'-}*
-i:
-1
-I
+
 i
 The jcrurnev tq London, j 70
 wkieli had ib, long pled him in Charlotte.
@@ -2533,19 +2396,7 @@ I » - _
 I ^ In darted Lady Lumleyr in a deep
 I ^. r' ' < /
 taffety. One of the Mist Lumleys^
-I -
-» ^
-was
-%
-}
-t
-wn
-C JT
-s
-I
-I
-/
-.
+
 was in a pink, the other in a buff per ftan.
 *
 Mrs. Jefferson,, that a real Lads was coming, crept to the farthest
@@ -2557,10 +2408,6 @@ Mrs, Selby, I am quite tired of climbing up fo many pair of stairs --I have neve
 night
 ii
 
-: i
-r
-184 .
-#
 tiight of her life. --I cannot think
 *
 how you came to chuse an apartment fb very high from the street."
@@ -3807,16 +3654,7 @@ By this unexpeiffed .effrontdrk of the ."Selbys, and by the great attention of .
 "tainiy have returned home much better
 j pleased,
 ft ^
-) •
-i
-«
-f
-«
-$
-t
-I
-. g
-I
+
 pleased, had she not Seen the Selbys fo
 *
 greatly admired.
@@ -3898,17 +3736,7 @@ My excellent girl, " replied Selby, --believing every syllable she uttered --^
 ‘ 4. : ■ ■ ■ '
 make yourself easy --we niust wait;
 I will endeavour to arm my self with patience.’*
-A 4
-»
-s
-Bj Yes."
-%
-w
-9
-s
-■ /
-V ♦
-6 .
+
 Yes, " said she, rather in a peevish tone --but we cannot have patience for ever. The. greatest patience may
 4 •
 be worn out in time. For my part,
@@ -7925,18 +7753,7 @@ if she consents, stie is no longer shiy;
 'daughter.".. *
 , S I 4 You
 *
-\
-9
-\
-4
-I
-i
-i
-1
-!
-i
-»
-j
+
 1
 t s r'
 176 ;
@@ -7976,15 +7793,7 @@ No, " said Mr. Selby, that will not. j
 do, Charles : she will then, make an addition to her vices, by asting just the same part your mother has done,
 by running you deeply in debt. no tt as you cannot be divorced from het for want of witnesses----neither st Lewfon nor I saw her in the arms
 I ^ ♦ of
-s
-f
-L
-h
-h
-t, '
-r
 
-I ' ■
 t
 of another man, you must bear the
 C
@@ -8019,22 +7828,7 @@ To the conclusion of this^fpeecjh Mr. Selby replied --‘‘ For once in your li
 live quite out of the wqrld^
 I will carry you down with the rest of the family to --shire ist a few days." '*
 , 16,, Here
-N.
-\
-'C
-I (
-t
-f
-t
-I
-•4
-i ^
-I
-tt
-5
-i
-18b .
-/
+
 - Flere Maria interposed, and desired
 L. '.
 to be excepted,, as she hated nothing fd much as the country.
@@ -8085,22 +7879,7 @@ But ’tis all your own fault. You
 never would listen to my advice : yoii bade me go out of your house' the ■ last time 1 was here; and I shoiild
 not have fubjested myself a second tirrie
 to
-y
-\
-%
-s
-5;
-7
-I
-1
-I
-IR
 
-»• r
-C
-i: &2
-9 ■
-j
 ^ st to the same affront, but but of pur
 * ‘
 st friendihip to you and your ehildrenv
@@ -8285,18 +8064,7 @@ accompanied - by Chafles, who had ibeen in search of his wife, during the. above
 . r, ^
 i While lewson was consuking wiih Mr. Selby how to ast in Such a manner as might render Charles the least liable to be troubled with his wife, Fanrty, >whdv from her fibk. chamber, had heard severy word that pasted between Mrs, Jefferson and her mother, and who found her fears confirmed,, who found her re
 puta
-4
-\
-hi
-• ’i
-I
-N,
-,
-i
-, 1
-N
-j
-tgi
+
 1
 pii tation as well as peace lost forever,
 ♦
@@ -8413,18 +8181,7 @@ I death. --Instead of going to offer her '
 the smallest assistance, she ran into the
 \
 1 parlour,
-4
-*
-»
-I
-0
-9
-t
-!, '
-\ • ’
-\
-% »
-, igg
+
 /
 parlour, and exclaimed --Lord bless st me! I wonder you will not come --I st believe Fanny is dead."
 ft
@@ -8602,11 +8359,11 @@ Charles, having taken orders, met with a woman of character and fortune who took
 lewson, - who never thoroughly recovered the loss of Fanny, spent his time. in consoiing Mr. Selby; and, dying soon after Mrs. Selby, left him and his font in possession of his whole fortune,
 0
 T H E E N D.
-r
-/
-4
+
+
+
 BOOKS printed for'f. and J. Noble.'
-*
+
 *** Every Article in the following Catalogue is marked as it is sold bound, unlefi otherwise..
 Assignation, a sentimental .Novel, 2 vol 65^
 Adopted Daughter 3 or History of clarislii B —, 2 vol, s all’s right fit last 5 or, the Hist, of Miss West, 2 voh. 6s,
@@ -8694,26 +8451,7 @@ ________ / 1
 • ‘ ft
 '. X k 9
 Speedily Will he publtfhed. In ivuo volumes' '
-< ■ \
-* »
-6 s. bound)
-I • ^. » *. •
-FATAL AFFECTION:
-/ ■
-the
-• '. ' N'.
-H I S T O R Y
-ft
-t
-OF
-..,.. •. A \ ■ A '
-A ' ■ •. »
-HEN R Y AND U AROLT N E,
-if,;.
-t
-*
-L
-■V
+
 ADVERTISEMENT,
 To the Country Booksellers.
 X Z" ^ ^ ^ from our having refufei Y to let Mr.. Bald WIN, the Publisher of the London' maga%lne, have any more of our Books, till a reai'onable satissadiion is made to us, by retracing'an impudent Falsehood asserted in his Magazine for December, 1772, relative to two Novels we published, under the Titles of, The Way to Lose Him, and. The Way to Please Him (See our Appeal. to the Public, annexed to thesfilf deceivsh; or. The History of Lord Byron) we have sufficient Reason to believe, that Orders coming from the Country to him, - and, perhaps, others his Colleagues, will not be com .plied with, and various malicious and false Pre.
@@ -8727,17 +8465,3 @@ I J. Noble.
 I Note, Thole who take 25 Volumes of <3^
 I rent Sorts, will have the Same Allowance as is
 J ufiially made for the farrle Number when only
-1 me Sort is taken,
-4 r '
-I -
-t
-\
-i
-i
-I
-ft
-■ft
-ft
-•
-
-I
