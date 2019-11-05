@@ -537,78 +537,26 @@ time he would have been quite over-powered, as his Lady poured out all her rheto
 The good, mild man, at last, to relieve his ears, retired into the garden hastily, leaving his loquacious wife mistress of the field. But though Mrs. Selby had, in one sense of the word, gained the victory, she had not been able to carry away any plunder; she, therefore, could not much boast of her conquesr. However, as there is always some advantage in driving the enemy to a distance, if he cannot be brought
 [87]
 to desirable terms. So Mrs. Selby conceived hopes of worrying her husband out of what she could not get out of him by persuasion. She knew that he was very Strongly attached to a country life; that there was nothing he detested more than the bustle of company, with
-the attending expenses; that he would have his own nasiy way----she Called it --if he could; and that she could hope
-to carry her point but by one way of proceeding --by making his life uneasy, by oppostng him in everything, and by obliging him to part with his money to purchase the peace which he enjoyed, before his family had entertained notions So unsuitable to their situation in life : a Situation in which he was desirous of Seeing them remain, as he could not afford to place them dna more elevated Iphere; nor indeed did he believe
-that
+the attending expenses; that he would have his own *nasty way* -- as she c it -- if he could; and that she could hope to carry her point but by *one* way of proceeding -- by making his life uneasy, by oppossing him in everything, and by obliging him to part with his money to purchase the peace which he enjoyed, before his family had entertained notions So unsuitable to their situation in life: a situation in which he was desirous of seeing them remain, as he could not afford to place them dna more elevated Iphere; nor indeed did he believe
+[88]
+that they could be happier than they were, could he place them in the highest.
 
-|t||ii that they could be happier than the
-Cst i I, 1-;! ifji Cui; '
-Sllfllj ■ were, could he place them in the high
-istiii still i est.
-1 V '': i stjststi
-^ Iilii ijiststl!!
-n' -: *■!■ '
-Iilllll 1st Mrs. Selby presently sew all that pass
-S’'! i\‘. st; h.. '
-11st in his contrasted mind, and delpiled hir
-f st j S' I '[!!•' i! '
-i, I st'i; " for his grovelling notions. She though
-'ip'ilstf'ist.i. ■
-lipstst herself, and her children allb, com
-stpletely formed, not only to shine in th
-iiilili great world, but to raise themselves, sh'
-tesiiiii their persons and talents, to a rank fa
-will i lill *..
-II shperior to their birth and fortune.
-1! [ H B Jj
-I ip
-If! I With these abshrd ideas floating II
-i I Ilj her head, Mrs. Selby Soon became in
-Ij I I fopportable to her husband----wa
-lijll I continually asking him for money; tell
-ii ing him that she could hot do without
-ii I and that, by refusing her the shms which
-11 were absolutely necessary to keep up th
-credit of the family, they should al
+Mrs. Selby presently saw all that passed in his *contracted mind*, and despised him for his *groveling notions*. She thought herself, and her children also, completely formed, not only to shine in the great world, but to raise themselves, by their persons and talents, to a rank far superior to their birth and fortune.
 
-lose the finest, and perhaps the only op
-y
-portunity, of fettling their daughters: to advantage : am opportunity which might never offer against
-was in vaim that Mr; Selby told his wife he had no desire to Settle his girls in any other way than that in which
-I
-they had been educated --And Sup.
-‘h posing, " continued he men In
-stations Should make advan tageous offers to. thein,. of which I not see the Smallest probability —
-I shall be one of the first to oppbfe their acceptance of them, as I very well know that neither birth nor wealth can ensure happiness --I had much rather call a mam in my own
-of life fon, than, a. man who,
-thinking himself Superior to me in'
-«
-every respect,, them equally : y defer ving,
+With these absurd ideas floating in her head, Mrs. Selby soon became instopportable to her husband -- She was continually asking him for money; telling him that she could not do without, and that, by refusing her the sums which were absolutely necessary to keep up th
+credit of the family, they should all
+[89]
+lose the finest, and perhaps the only opportunity, of settling their daughters to advantage: an opportunity which might never offer again.
 
-M L In this rational shanner he talke(
-i Mrs. Selby; but, by telldng hi
-h i manner to her, he only made thi
-I I I I ■ ’ A
-j II worsei She would not aliow wha
-, Said to be right; she plainly told'him
-ii ’ ‘
-i M she could not bear to listen to the C
-lill II V '
-I ’very of sentiments diametrically oppeto
-her own; sentiments which nowor of Spirit ought, she Said, to en tain; and by wearying him with ar ments in Support of her own opinu which she would never give up, acstu obliged him, for the sake of a q I life, to furnish her with the money
-Spst: : ]!stj jslf 11 •.. ^ ^ ■
-ijiilai! wanted. For a quiet life, he was
-I !i •
-I jj II duced to the disagreeable necessity
-i'll i isis • .■ ■ ‘ - : ' -
-I .liv
-J lillllip!!. -
-I - ■
-11 LI
-fi
-’. 91
-driving his family forward to their own
-destruction.
+It as in vain that Mr; Selby told his wife he had no desire to settle his girls in any other way than that in which they had been educated -- "And supposing," continued he, "any men in superior stations *should* make advantageous offers to them, of which I not see the smallest probability -- I shall be one of the first to oppose their acceptance of them, as I very well know that neither birth nor wealth can ensure happiness -- I had much rather call a man in my own
+of life *son*, than a man who, thinking himself superior to me in every respect, admitting them equally
+[90]
+deserving, may be apt to treat me and my child with contempt not to be endured."
+
+In this rational manner he talked Mrs. Selby; but, by telldng hi
+in this manner to her, he only made things worse. She would not allow what he aid to be right: she plainly told him she could not bear to listen to the delivery of sentiments diametrically oppesed to her own; sentiments which no woman of spirit ought, she said, to entertain; and by wearying him with arguments in support of her own opinion which she would never give up, actually obliged him, for the sake of a quiet life, to furnish her with the money she wanted. For a quiet life, he was reduced to the disagreeable necessity of
+[91]
+driving his family forward to their own destruction.
 .
 Selby was a very worthy, and a very sensible mast, but he was not proof against the perpetual applications, teasingly made to him, for pecuniary Supplies. Money was continually wanted for changes of clothes, for card ex|iences, and Sometimes for little ref refitments, si^ milar to those which the Lumleys gave on the days of invitation,. a
 fr -.
