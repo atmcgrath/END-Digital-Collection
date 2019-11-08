@@ -557,17 +557,12 @@ In this rational manner he talked Mrs. Selby; but, by telldng hi
 in this manner to her, he only made things worse. She would not allow what he aid to be right: she plainly told him she could not bear to listen to the delivery of sentiments diametrically oppesed to her own; sentiments which no woman of spirit ought, she said, to entertain; and by wearying him with arguments in support of her own opinion which she would never give up, actually obliged him, for the sake of a quiet life, to furnish her with the money she wanted. For a quiet life, he was reduced to the disagreeable necessity of
 [91]
 driving his family forward to their own destruction.
-.
-Selby was a very worthy, and a very sensible mast, but he was not proof against the perpetual applications, teasingly made to him, for pecuniary Supplies. Money was continually wanted for changes of clothes, for card ex|iences, and Sometimes for little ref refitments, si^ milar to those which the Lumleys gave on the days of invitation,. a
-fr -.
-. i
-Sir thomas’s two Sons were now coming continually to the selhy house. The elder of them attached himself to
-.♦i.
-Fanny, the younger trifled with Molly j who, naturally vain and haughty, eri vicd her sister’s having made a conquest of the immediate heir to the title and
-t
-* * •. ft • •
-estate. Not that she, in any other re
-. gave him the preference. Haff
+
+Mr. Selby was a very worthy, and a very sensible man, but he was not proof against the perpetual applications, teasingly made to him, for pecuniary supplies. Money was continually wanted for changes of clothes, for card-expenses, and sometimes for little *refreshments*, similar to those which the Lumleys gave on the days of invitation.
+
+Sir Thomas’s two sons were now coming continually to the Selby-house. The elder of them attached himself to Fanny, the younger trifled with Molly; who, naturally vain and haughty, envicd her sister’s having made a conquest of the immediate heir to the title and estate. Not that she, in any other
+[92]
+respect, gave him the preference. Haff
 p: sheir prolpeds been equally flattering,,
 ; Tj'ilj.''
 Ill she would have chosen' George, the
