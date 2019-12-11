@@ -562,13 +562,8 @@ Mr. Selby was a very worthy, and a very sensible man, but he was not proof again
 
 Sir Thomas’s two sons were now coming continually to the Selby-house. The elder of them attached himself to Fanny, the younger trifled with Molly; who, naturally vain and haughty, envicd her sister’s having made a conquest of the immediate heir to the title and estate. Not that she, in any other
 [92]
-respect, gave him the preference. sheir prolpeds been equally flattering,,
-; Tj'ilj.''
-Ill she would have chosen' George, the
-III younger brother,, but as she sincerely
-I believed that Tom had.the most honourable
-intentions with regard to Fanny,, she could not well bear the thoughts i|ih f the younger fisteps taking place of
-I her.
+respect, gave him the preference. Their prospects been equally flattering, she would have chosen George, the younger brother,, but as she sincerely believed that Tom had the most honourable intentions with regard to Fanny, she could not well bear the thoughts i|ih f the younger fisteps taking place of her.
+
 As for Fanny, she, being of a more gentle and affectionate disposition tharr Molly, would have been, quite happy with Tom, had he been the younger Son; if her mother and lister,,, as well as the miss Lumleys, had not been always saying,, no .people are looked upon [ who are not both in genteel and affluent
 circumstances; and that the rich and the great were the, only happy people.
 Stimulated bystthefe declarations, perpe
