@@ -562,14 +562,11 @@ Mr. Selby was a very worthy, and a very sensible man, but he was not proof again
 
 Sir Thomas’s two sons were now coming continually to the Selby-house. The elder of them attached himself to Fanny, the younger trifled with Molly; who, naturally vain and haughty, envicd her sister’s having made a conquest of the immediate heir to the title and estate. Not that she, in any other
 [92]
-respect, gave him the preference. Their prospects been equally flattering, she would have chosen George, the younger brother,, but as she sincerely believed that Tom had the most honourable intentions with regard to Fanny, she could not well bear the thoughts i|ih f the younger fisteps taking place of her.
+respect, gave *him* the preference. Their prospects been equally flattering, she would have chosen George, the younger brother, but as she sincerely believed that Tom had the most honourable intentions with regard to Fanny, she could not well bear the thoughts of the younger sister's taking place of her.
 
-As for Fanny, she, being of a more gentle and affectionate disposition tharr Molly, would have been, quite happy with Tom, had he been the younger Son; if her mother and lister,,, as well as the miss Lumleys, had not been always saying,, no .people are looked upon [ who are not both in genteel and affluent
-circumstances; and that the rich and the great were the, only happy people.
-Stimulated bystthefe declarations, perpe
-[
-^ >
-ttiially repeated, she exulted at being di .'stinguished by the eldest Son of a Baronet.; yet his distinguishing bdiaviour was no matter of real joy to her. The truth is, the young Lumleys only amused themselves with the young sel 'bys during their necessary wifit to Sir Thomas and my Lady. However,
+As for Fanny, she, being of a more gentle and affectionate disposition than Molly, would have been, quite happy with Tom, had *he* been the younger son; if her mother and sister as well as the Miss Lumleys, had not been always saying, that no people are looked upon who are not both in genteel and affluent circumstances; and that the rich and the great were the, only *happy* people. Stimulated by these declarations, perpetually
+[93]
+repeated, she exulted at being di .'stinguished by the eldest Son of a Baronet.; yet his distinguishing bdiaviour was no matter of real joy to her. The truth is, the young Lumleys only amused themselves with the young sel 'bys during their necessary wifit to Sir Thomas and my Lady. However,
 t
 •though they, at first, dangled after 'them merely for their diversion, and to
 4 \
