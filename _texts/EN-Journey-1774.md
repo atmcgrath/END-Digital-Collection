@@ -578,22 +578,17 @@ for, as she had set her heart upon making her fortune, as well as pleasing her f
 [97]
 more discreet than Ihe would otherwise have been.
 
-When Tom bade Fanny adieu, he took care that his parting words Should be uttered at her father’s house, and not at his. He expressed much concern at the Separation, and a kind of anxiety about
+When Tom bade Fanny adieu, he took care that his parting words should be uttered at her father’s house, and not at his. He expressed much concern at the separation, and a kind of anxiety about
 finding her. as much affected by it.
-«
-She artfully enough replied --I have ho reason to suppose, Sir, that you will be affected by any change in. me
+
+She artfully enough replied -- "I have no reason to suppose, Sir, that you will be affected by any change in. me
 When he warmly assured her shat a, change in her would give him considerable uneasmess, Ihe answered --‘‘ Tender Speeches alone will not be convincing to me.. There is but onie way of con m of your Sincerity."
-vol. I. F ^
-ife!;, ■.
-!: |:; r!|s; !j
-'iml! ‘ "
-I I!
-i|j:. tike journey'to Lonbon.
+
+itike journey'to Lonbon.
 I ill ^
 Illi He. understood her'perfeclly; but as
 ill it was not then convenient, or indeed pro!
-! ^ • d i I
-Ijl, i Ij!’'!
+
 ill per for him, to give her the conviction
 jl j ^ *
 III she wanted in her own way, he pretended
