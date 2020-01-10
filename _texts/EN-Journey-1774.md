@@ -578,56 +578,23 @@ for, as she had set her heart upon making her fortune, as well as pleasing her f
 [97]
 more discreet than Ihe would otherwise have been.
 
-When Tom bade Fanny adieu, he took care that his parting words should be uttered at her father’s house, and not at his. He expressed much concern at the separation, and a kind of anxiety about
-finding her. as much affected by it.
+When Tom bade Fanny adieu, he took care that his parting words should be uttered at *her* father’s house, and not at his. He expressed much concern at the separation, and a kind of anxiety about finding her as much affected by it.
 
-She artfully enough replied -- "I have no reason to suppose, Sir, that you will be affected by any change in. me
-When he warmly assured her shat a, change in her would give him considerable uneasmess, Ihe answered --‘‘ Tender Speeches alone will not be convincing to me.. There is but onie way of con m of your Sincerity."
+She artfully enough replied -- "I have no reason to suppose, Sir, that you will be affected by any change in *me*."
 
-itike journey'to Lonbon.
-I ill ^
-Illi He. understood her'perfeclly; but as
-ill it was not then convenient, or indeed pro!
+When he warmly assured her that a change in her would give him considerable uneasiness, she answered -- "Tender speeches alone will not be convincing to me. There is but one way of convincing me of your sincerity."
 
-ill per for him, to give her the conviction
-jl j ^ *
-III she wanted in her own way, he pretended
-I ‘ijiiiliii! I
-III not to comprehend what she could, with
-\jlij -■
-II I no shrt of delkacy, .explain. They
-III Hi! Ill
-li; parted, therefore, greatly distatisfied
-|| j h /
-LI with each other. Charles, however, at
-bis departure;, made many protestations of tenderness, which, though not quite Satisfaftory, ■ were fushcient to induce her to believe that she deeply engaged I Fis thoughts. With this consolation
-i j she was forced to be content; and tolerably
-content she was with it, as her sister had not been half fo much encouraged to imagine herself beloved by
-I the Captain..
-I Molly was not near fo amiable as
-f^nyr --Many connoisseurs in beauty * reckoned
-m * * ♦
-ft
-, gg reckoned .her the handfomell: of the two;
-i
-but the pride, vanity, ambition and relueffnefs which She inherited from her mother, rendered her personal charms
-I
-sess attradhng than they would have been. Fanny, though She had her most
+[98]
+He understood her perfeclly; but as it was not then convenient, or indeed proper for him, to give her the conviction she wanted in her own way, he pretended not to comprehend what she could, with no sort of delicacy, explain. They parted, therefore, greatly distatisfied with each other. Charles, however, at his departure, made many protestations of tenderness, which, though not quite satisfactory, ■ were sufficient to induce her to believe that she deeply engaged  his thoughts. With this consolation she was forced to be content; and tolerably content she was with it, as her sister had not been half fo much encouraged to imagine herself beloved by the Captain.
 
-ther’s propensity to pleasure and parade,
-I ^
-had also an agreeable mixture of her fa ther’s mildiiess and gcntleness. Softened'
-ft
-by that mixture, she was, upon the whole, the far more desirable giil; and She Iiad, indeed, been for Ibme time greatly admired by a young neighbour, whose father, though only a far
-* • * •... *
-cultivated more land than Mr. Selby did, and had a larger income.
-I
-Young lewson had not received
-* ■ • V
-a polisned education, but he was modest, lenlible, and exceedingly well behaved; and his father, who had both
-F 2 a sound
+Molly was not near so amiable as Fanny -- Many connoisseurs in beauty
+[99]
+reckoned her the handsomest of the two; but the pride, vanity, ambition and restlessness which she inherited from her mother, rendered her personal charms less attracting than they would have been. Fanny, though she had her mother's propensity to pleasure and parade, had also an agreeable mixture of her father’s mildiness and gentleness. Softened by that mixture, she was, upon the whole, the far more desirable girl; and she had, indeed, been for some time greatly admired by a young neighbour, whose father, though only a far cultivated more land than Mr. Selby did, and had a larger income.
 
-IIS ^ K sound understanding, and ^ a valuabl ifs heart, had regard enough : fbr him, t
+Young Lewson had not received a polished education, but he was modest,
+sensible, and exceedingly well behaved; and his father, who had both
+[100]
+a sound understanding, and ^ a valuabl ifs heart, had regard enough : fbr him, t
 listfst confont to ihis marrymg a woman witi
 j|.fhv'»ih" ’ I * • ft ft * ( ^
 if! a fmalssriwiih.evtn fto fortune, providec
