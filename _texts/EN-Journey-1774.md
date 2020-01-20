@@ -531,287 +531,80 @@ Mrs. Selby, overhearing this answer, bounced into the room, and said, she did no
 Selby heard all his *imitating* wife uttered; but as her sentiments as well as her language were quite new to him, he
 discovered astonishment in every limb,
 [86]
-in every feature. He was almost incapable of speaking: he was pretty shn he should not be able to speak to th(
-t M 1 ^ 1
-I I Ji! purposci He thought it best, there!
-! [!! j 1!
-pi, |, fore, to be Silent: and, indeed, at thai
-I I |ij I; Jl
-I III I STRIE he would have been quite over j||il powered, as his Lady poured out al
-I M 1 I' * ft ft
-her rhetoric upon him, and happened tc
-1 j |ji 1} i I Ij ^
-r||ijl III be then particularly eloquent.
+in every feature. He was almost incapable of speaking: he was pretty sure he should not be able to speak to the purpose. He thought it best, therefore, to be silent: and, indeed, at that
+time he would have been quite over-powered, as his Lady poured out all her rhetoric upon him, and happened to be then particularly eloquent.
 
-I i ' The good, mild man, at last, tc
-j relieve his ears, retired into the garder
-h ^ I I I • • • •
-j Ij I: hastily, leaving his loquacious wife mis
-j tress of the field. But though Mrs
-I !|1 Selby had, in one sense'of the word,
-J I f I
-jijii i gained the vicstory, she had not been abk
-■j ft !■ fj i j 1 1 ■»
-llpj, to carry away any plunder; she, there
-is!ji|: 11 fore,, could not much boast of her con
-.1 'I >1 •
-; rjjj ijji'lj stj j' j I;; ^
-lllll ..However,, as there is always
-slime advantage in driving the enemy
-lills to a distance, if he cannot be brought
+The good, mild man, at last, to relieve his ears, retired into the garden hastily, leaving his loquacious wife mistress of the field. But though Mrs. Selby had, in one sense of the word, gained the victory, she had not been able to carry away any plunder; she, therefore, could not much boast of her conquesr. However, as there is always some advantage in driving the enemy to a distance, if he cannot be brought
+[87]
+to desirable terms. So Mrs. Selby conceived hopes of worrying her husband out of what she could not get out of him by persuasion. She knew that he was very Strongly attached to a country life; that there was nothing he detested more than the bustle of company, with
+the attending expenses; that he would have his own *nasty way* -- as she c it -- if he could; and that she could hope to carry her point but by *one* way of proceeding -- by making his life uneasy, by oppossing him in everything, and by obliging him to part with his money to purchase the peace which he enjoyed, before his family had entertained notions So unsuitable to their situation in life: a situation in which he was desirous of seeing them remain, as he could not afford to place them dna more elevated Iphere; nor indeed did he believe
+[88]
+that they could be happier than they were, could he place them in the highest.
 
-CO desirable terms. So Mrs. Selby conceived hopes of worrying her husband out of what she could not get out of him by persuasion. She knew that he was very Strongly attached to a country life; that there was nothing he detested more than the bustle of company, with
-the attending expenses; that he would have his own nasiy way----she Called it --if he could; and that she could hope
-to carry her point but by one way of proceeding --by making his life uneasy, by oppostng him in everything, and by obliging him to part with his money to purchase the peace which he enjoyed, before his family had entertained notions So unsuitable to their situation in life : a Situation in which he was desirous of Seeing them remain, as he could not afford to place them dna more elevated Iphere; nor indeed did he believe
-that
-;.. jin*' I r J i; -11- *■,.
-Liliy^ i c|'i!r: r;.
-M... miciit p : -; r '-‘ iiist d '
-■A Hd
-u rtlb!\;.
-■ !i( "iiilby. _
-lllilst 8^ THE; j0urneyt0l0nd0n, '
-'■i| list: **
-III SIP'
-|t||ii that they could be happier than the
-Cst i I, 1-;! ifji Cui; '
-Sllfllj ■ were, could he place them in the high
-istiii still i est.
-1 V '': i stjststi
-^ Iilii ijiststl!!
-n' -: *■!■ '
-Iilllll 1st Mrs. Selby presently sew all that pass
-S’'! i\‘. st; h.. '
-11st in his contrasted mind, and delpiled hir
-f st j S' I '[!!•' i! '
-i, I st'i; " for his grovelling notions. She though
-'ip'ilstf'ist.i. ■
-lipstst herself, and her children allb, com
-stpletely formed, not only to shine in th
-iiilili great world, but to raise themselves, sh'
-tesiiiii their persons and talents, to a rank fa
-will i lill *..
-II shperior to their birth and fortune.
-1! [ H B Jj
-I ip
-If! I With these abshrd ideas floating II
-i I Ilj her head, Mrs. Selby Soon became in
-Ij I I fopportable to her husband----wa
-lijll I continually asking him for money; tell
-ii ing him that she could hot do without
-ii I and that, by refusing her the shms which
-11 were absolutely necessary to keep up th
-credit of the family, they should al
+Mrs. Selby presently saw all that passed in his *contracted mind*, and despised him for his *groveling notions*. She thought herself, and her children also, completely formed, not only to shine in the great world, but to raise themselves, by their persons and talents, to a rank far superior to their birth and fortune.
 
-lose the finest, and perhaps the only op
-y
-portunity, of fettling their daughters: to advantage : am opportunity which might never offer against
-was in vaim that Mr; Selby told his wife he had no desire to Settle his girls in any other way than that in which
-I
-they had been educated --And Sup.
-‘h posing, " continued he men In
-stations Should make advan tageous offers to. thein,. of which I not see the Smallest probability —
-I shall be one of the first to oppbfe their acceptance of them, as I very well know that neither birth nor wealth can ensure happiness --I had much rather call a mam in my own
-of life fon, than, a. man who,
-thinking himself Superior to me in'
-«
-every respect,, them equally : y defer ving,
+With these absurd ideas floating in her head, Mrs. Selby soon became instopportable to her husband -- She was continually asking him for money; telling him that she could not do without, and that, by refusing her the sums which were absolutely necessary to keep up th
+credit of the family, they should all
+[89]
+lose the finest, and perhaps the only opportunity, of settling their daughters to advantage: an opportunity which might never offer again.
 
-M L In this rational shanner he talke(
-i Mrs. Selby; but, by telldng hi
-h i manner to her, he only made thi
-I I I I ■ ’ A
-j II worsei She would not aliow wha
-, Said to be right; she plainly told'him
-ii ’ ‘
-i M she could not bear to listen to the C
-lill II V '
-I ’very of sentiments diametrically oppeto
-her own; sentiments which nowor of Spirit ought, she Said, to en tain; and by wearying him with ar ments in Support of her own opinu which she would never give up, acstu obliged him, for the sake of a q I life, to furnish her with the money
-Spst: : ]!stj jslf 11 •.. ^ ^ ■
-ijiilai! wanted. For a quiet life, he was
-I !i •
-I jj II duced to the disagreeable necessity
-i'll i isis • .■ ■ ‘ - : ' -
-I .liv
-J lillllip!!. -
-I - ■
-11 LI
-fi
-’. 91
-driving his family forward to their own
-destruction.
-.
-Selby was a very worthy, and a very sensible mast, but he was not proof against the perpetual applications, teasingly made to him, for pecuniary Supplies. Money was continually wanted for changes of clothes, for card ex|iences, and Sometimes for little ref refitments, si^ milar to those which the Lumleys gave on the days of invitation,. a
-fr -.
-. i
-Sir thomas’s two Sons were now coming continually to the selhy house. The elder of them attached himself to
-.♦i.
-Fanny, the younger trifled with Molly j who, naturally vain and haughty, eri vicd her sister’s having made a conquest of the immediate heir to the title and
-t
-* * •. ft • •
-estate. Not that she, in any other re
-. gave him the preference. Haff
-p: sheir prolpeds been equally flattering,,
-; Tj'ilj.''
-Ill she would have chosen' George, the
-III younger brother,, but as she sincerely
-I believed that Tom had.the most honourable
-intentions with regard to Fanny,, she could not well bear the thoughts i|ih f the younger fisteps taking place of
-I her.
-As for Fanny, she, being of a more gentle and affectionate disposition tharr Molly, would have been, quite happy with Tom, had he been the younger Son; if her mother and lister,,, as well as the miss Lumleys, had not been always saying,, no .people are looked upon [ who are not both in genteel and affluent
-circumstances; and that the rich and the great were the, only happy people.
-Stimulated bystthefe declarations, perpe
-# ■ tually
-I I
-\
-. 91
-^ >
-ttiially repeated, she exulted at being di .'stinguished by the eldest Son of a Baronet.; yet his distinguishing bdiaviour was no matter of real joy to her. The truth is, the young Lumleys only amused themselves with the young sel 'bys during their necessary wifit to Sir Thomas and my Lady. However,
-t
-•though they, at first, dangled after 'them merely for their diversion, and to
-4 \
-inake the tedious hours in a country retirement pass away more cheerfully, the pleasmg person of Fanny, and her manners, infinitely fiiperior to those of her Sister, inspired Tom with a tender.
-.
-ness which he had never fek before for any woman; yet, though he really felt an inclination for her, it was not, by any means, an inclination likely to end
-in the manner she expected. He would,
-*
-indeed, have pronounced anybody mad
-who
+It as in vain that Mr; Selby told his wife he had no desire to settle his girls in any other way than that in which they had been educated -- "And supposing," continued he, "any men in superior stations *should* make advantageous offers to them, of which I not see the smallest probability -- I shall be one of the first to oppose their acceptance of them, as I very well know that neither birth nor wealth can ensure happiness -- I had much rather call a man in my own
+of life *son*, than a man who, thinking himself superior to me in every respect, admitting them equally
+[90]
+deserving, may be apt to treat me and my child with contempt not to be endured."
 
-ii who had Supposed it possible for him to
-II entertain serious thoughts of selby’s
-Il daughter; and as he never had the least
-i idea of degrading himself by.marrying
-ip her, he never mentioned a Syllable which
-could give her reason to expeist an. alii! stance with him; but she waited with
-ijli ^ ^,
-ij impatience, every day, for the avowal
-II. of his passion, and had prepared an,
-I f
-knswer ready for the tender question,
-I 11 whenever it should be articulated.
-When the time Set apart for the stay of these young gentlemen at Lumley place was expired, and when they were I to purshe their journey fiirther into the
-ri West of England, to visit an uncle,
-whosd fortune, as he was an old batche | lor, would, be divided. Sir Thomas and
-i '
-j: my Lady fusty imagined, between his
-LI
-I' nephews, George, never liking one wo
- 95. man long, was not much concerned at
-having an opportunity to leave a Jpot,
-'of which he began to be heartily tired,
-Tom, on the other hand, who really, felt a passion for Fanny, though it was
-not of the purest, of the patonic kind,
-/
-rather wished to remain there a little longer; at least, till he saw whether lie
-I
-had made the wished for impression upon her heart. Had he indeed known what passed in that heart, he would have have had no doubts concerning his power over it. Fanny, however, though
-extremely fusceptible of pleasure, had not yet lost the modesty which is inherent in every woman of delicacy, and therefore concealed h seclinp s from
-O
-her lover with So much care, ‘ that he was not able to discover the share he had of her regard. .There was also. a little finesse in this behaviour of hers;.
-for,
-*
-4
-AAVL
+In this rational manner he talked Mrs. Selby; but, by telldng hi
+in this manner to her, he only made things worse. She would not allow what he aid to be right: she plainly told him she could not bear to listen to the delivery of sentiments diametrically oppesed to her own; sentiments which no woman of spirit ought, she said, to entertain; and by wearying him with arguments in support of her own opinion which she would never give up, actually obliged him, for the sake of a quiet life, to furnish her with the money she wanted. For a quiet life, he was reduced to the disagreeable necessity of
+[91]
+driving his family forward to their own destruction.
 
-visor, as She had set her heart upon
-I II making her fortune, as west as pleasing
-Ij her fancy, by marrying Mr, Lumley,
-i * *
-isle thought it quite necessary to be upon the refervefometimes, lest he might
-imagine she was to, be gained Tipon much cheaper terms. In Consequence of III this prudent i reserve in fanny’s beha ’
-|| wiour, Tom was obliged to leave Lunii ^
-O
-lay place, without being certain of what jre/?wished fo earnestly to know; not Choosing, st eager as he was to learn her sentiments relating to hirhfelf, to be altogether explicit on his fide. He talked, it is true, very warmly of love, but he had never, either direistly or indireduy, hinted a syllable about marriage: and it was his ssience with refpecfi: to mar 'i riage, which threw the Lady still more
-( upon her guard; which rendered her
-T more
-%
-4 _
-. 97
+Mr. Selby was a very worthy, and a very sensible man, but he was not proof against the perpetual applications, teasingly made to him, for pecuniary supplies. Money was continually wanted for changes of clothes, for card-expenses, and sometimes for little *refreshments*, similar to those which the Lumleys gave on the days of invitation.
+
+Sir Thomas’s two sons were now coming continually to the Selby-house. The elder of them attached himself to Fanny, the younger trifled with Molly; who, naturally vain and haughty, envicd her sister’s having made a conquest of the immediate heir to the title and estate. Not that she, in any other
+[92]
+respect, gave *him* the preference. Their prospects been equally flattering, she would have chosen George, the younger brother, but as she sincerely believed that Tom had the most honourable intentions with regard to Fanny, she could not well bear the thoughts of the younger sister's taking place of her.
+
+As for Fanny, she, being of a more gentle and affectionate disposition than Molly, would have been, quite happy with Tom, had *he* been the younger son; if her mother and sister as well as the Miss Lumleys, had not been always saying, that no people are looked upon who are not both in genteel and affluent circumstances; and that the rich and the great were the, only *happy* people. Stimulated by these declarations, perpetually
+[93]
+repeated, she exulted at being distinguished by the eldest son of a Baronet; yet his distinguishing behaviour was no matter of real joy to her. The truth is, the young Lumleys only amused themselves with the young Selbys during their necessary visit to Sir Thomas and my Lady. However, though they, at first, dangled after them merely for their diversion, and to make the tedious hours in a country retirement pass away more cheerfully, the pleasing person of Fanny, and her manners, infinitely superior to those of her sister, inspired Tom with a tenderness which he had never felt before for any woman; yet, though he really felt an inclination for her, it was not, by any means, an inclination likely to end in the manner she expected. He would, indeed, have pronounced anybody mad
+[94]
+who had supposed it possible for him to entertain serious thoughts of Selby’s daughter; and as he never had the least idea of degrading himself by marrying her, he never mentioned a syllable which could give her reason to expect an alliance with him; but *she* waited with impatience, every day, for the avowal of his passion, and had prepared an answer ready for the tender question, whenever it should be articulated.
+
+When the time set apart for the stay of these young gentlemen at Lumley place was expired, and when they were to purshe their journey further into the West of England, to visit an uncle, whose fortune, as he was an old batchelor, would, be divided, Sir Thomas and my Lady fully imagined, between his nephews, George, never liking one
+[95]
+woman long, was not much concerned at having an opportunity to leave a spot, of which he began to be heartily tired. Tom, on the other hand, who really, felt a passion for Fanny, though it was not of the purest, of the *patonic* kind, rather wished to remain there a little longer; at least, till he saw whether he had made the wished for impression upon her heart. Had he indeed known what passed in *that* heart, he would have have had no doubts concerning his power over it. Fanny, however, tho' extremely susceptible of pleasure, had not yet lost the modesty which is inherent in every woman of delicacy, and therefore concealed her feelings from her lover with so much care, that he was not able to discover the share he had of her regard. There was also a little finesse in this behaviour of hers;
+[96]
+for, as she had set her heart upon making her fortune, as well as pleasing her fancy, by marrying Mr. Lumley, she thought it quite necessary to be upon the reserve sometimes, lest he might imagine she was to, be gained upon much cheaper terms. In consequence of this prudent reserve in Fanny’s behaviour, Tom was obliged to leave Lumley-Place, without being certain of what he wished so earnestly to know; not choosing, eager as he was to learn her sentiments relating to himself, to be altogether explicit on his side. He talked, it is true, very warmly of love, but he had never, either directly or indirectly, hinted a syllable about marriage: and it was his silence with respect to marriage, which threw the Lady still more upon her guard; which rendered her
+[97]
 more discreet than Ihe would otherwise have been.
-§
-When Tom bade Fanny adieu, he took care that his parting words Should be uttered at her father’s house, and not at his. He expressed much concern at the Separation, and a kind of anxiety about
-finding her. as much affected by it.
-«
-She artfully enough replied --I have ho reason to suppose, Sir, that you will be affected by any change in. me
-When he warmly assured her shat a, change in her would give him considerable uneasmess, Ihe answered --‘‘ Tender Speeches alone will not be convincing to me.. There is but onie way of con m of your Sincerity."
-vol. I. F ^
-ife!;, ■.
-!: |:; r!|s; !j
-'iml! ‘ "
-I I!
-i|j:. tike journey'to Lonbon.
-I ill ^
-Illi He. understood her'perfeclly; but as
-ill it was not then convenient, or indeed pro!
-! ^ • d i I
-Ijl, i Ij!’'!
-ill per for him, to give her the conviction
-jl j ^ *
-III she wanted in her own way, he pretended
-I ‘ijiiiliii! I
-III not to comprehend what she could, with
-\jlij -■
-II I no shrt of delkacy, .explain. They
-III Hi! Ill
-li; parted, therefore, greatly distatisfied
-|| j h /
-LI with each other. Charles, however, at
-bis departure;, made many protestations of tenderness, which, though not quite Satisfaftory, ■ were fushcient to induce her to believe that she deeply engaged I Fis thoughts. With this consolation
-i j she was forced to be content; and tolerably
-content she was with it, as her sister had not been half fo much encouraged to imagine herself beloved by
-I the Captain..
-I Molly was not near fo amiable as
-f^nyr --Many connoisseurs in beauty * reckoned
-m * * ♦
-ft
-, gg reckoned .her the handfomell: of the two;
-i
-but the pride, vanity, ambition and relueffnefs which She inherited from her mother, rendered her personal charms
-I
-sess attradhng than they would have been. Fanny, though She had her most
 
-ther’s propensity to pleasure and parade,
-I ^
-had also an agreeable mixture of her fa ther’s mildiiess and gcntleness. Softened'
-ft
-by that mixture, she was, upon the whole, the far more desirable giil; and She Iiad, indeed, been for Ibme time greatly admired by a young neighbour, whose father, though only a far
-* • * •... *
-cultivated more land than Mr. Selby did, and had a larger income.
-I
-Young lewson had not received
-* ■ • V
-a polisned education, but he was modest, lenlible, and exceedingly well behaved; and his father, who had both
-F 2 a sound
+When Tom bade Fanny adieu, he took care that his parting words should be uttered at *her* father’s house, and not at his. He expressed much concern at the separation, and a kind of anxiety about finding her as much affected by it.
 
-IIS ^ K sound understanding, and ^ a valuabl ifs heart, had regard enough : fbr him, t
-listfst confont to ihis marrymg a woman witi
-j|.fhv'»ih" ’ I * • ft ft * ( ^
-if! a fmalssriwiih.evtn fto fortune, providec
-fsti’;
-i lii he liked her; provided there was a proba
-ibj bility of her rriaking"hirti st good wife; j
-PI \ Suitable cornpanion, as.ready to Ihareshi! Jil j .Sorrows as his joys, ahd.to assist him in that
-!l care and, improvement of his affairs.
-{ ’^•this‘" was‘the cliaradler of the eldef
-1^ Mr. Lewfoh, *^ arid his fost was exaflly
-I of the same way of thinking. With
-r i i. ir X ■ L "S' .g ( ■ • 'i ■ ■"
-that way of thiriking; with a genteel! person, and with ’a natlifally chearsui
-Ij tempei;, she was a wery desirable objeish
-I .ekcltislve of shis fortune which was
-I Superior fo that possessed by moss: of
-'I the young men in that' village, or 'iri
-, I the, next. Of all the women he had
+She artfully enough replied -- "I have no reason to suppose, Sir, that you will be affected by any change in *me*."
 
-had frequently met her at several houses' in the neighbourhood, he had often joined ina dance with her, and diftin guilhed her more than once, by desiring, her for at partner. At, these times and indeed upom every occasion, (he conducted - herself .with Jb • much proprh 6ty, V in his opinion at least, that,. being equally pleased with her person and her
-* ^ ^ .f v jlihs
-manners; he made his father acquainted with his inclination, for sher, and shis determination
-to makeshis addreffe.§, to herr.
+When he warmly assured her that a change in her would give him considerable uneasiness, she answered -- "Tender speeches alone will not be convincing to me. There is but one way of convincing me of your sincerity."
+
+[98]
+He understood her perfeclly; but as it was not then convenient, or indeed proper for him, to give her the conviction she wanted in her own way, he pretended not to comprehend what she could, with no sort of delicacy, explain. They parted, therefore, greatly distatisfied with each other. Charles, however, at his departure, made many protestations of tenderness, which, though not quite satisfactory, ■ were sufficient to induce her to believe that she deeply engaged  his thoughts. With this consolation she was forced to be content; and tolerably content she was with it, as her sister had not been half fo much encouraged to imagine herself beloved by the Captain.
+
+Molly was not near so amiable as Fanny -- Many connoisseurs in beauty
+[99]
+reckoned her the handsomest of the two; but the pride, vanity, ambition and restlessness which she inherited from her mother, rendered her personal charms less attracting than they would have been. Fanny, though she had her mother's propensity to pleasure and parade, had also an agreeable mixture of her father’s mildiness and gentleness. Softened by that mixture, she was, upon the whole, the far more desirable girl; and she had, indeed, been for some time greatly admired by a young neighbour, whose father, though only a far cultivated more land than Mr. Selby did, and had a larger income.
+
+Young Lewson had not received a polished education, but he was modest,
+sensible, and exceedingly well behaved; and his father, who had both
+[100]
+a sound understanding, and a valuable heart, had regard enough for him, to consent to his marrymg a woman with a *small*, with even *no* fortune, provides he liked her; provided there was a porbability of her making him a food wife; a suitable companion, as ready to share his sorrows as his joys, and to assist him in the care and improvement of his affairs.
+
+This was the character of the elder Mr. Lewson, and his son was exactly of the same way of thinking. With that way of thinking, with a genteel person, and with a naturally chearful temper, he was a very desirable object, exclusive of his fortune, which was superior to that possessed by most of the young men in that village, or in the next. Of all the women he had seen, he liked Fanny Selby best; he had
+[101]
+had frequently met her at several houses in the neighbourhood, he had often joined in a dance with her, and distinguished her more than once, by desiring her for a partner. At, these times and indeed upon every occasion, she conducted herself with so much propriety, in *his* opinion at least, that, being equally pleased with her person and her
+manners, he made his father acquainted with his inclination for her, and his determination to make his addresses to her.
  
-r Soon after the departure'of the two
-I brothers, young lewson happening to
+Just at this time Sir Thomas Lumley brought his family into the country. Fanny was then so much taken up with them, that her rural lover han no proper opportunity to declare his sentiments to her.
+
+[102]
+Soon after the departure of the two brothers, young lewson happening to
 I meet with Fanny and her lister at the
 house of a common acquaintance, renewed his intiniacy with her. She at first appeared rather stiy, and played off I a Sew of those airs which She had
 caught from her genteel neighbours, and which might have discovered to many people, a total change in her manners: but the eyes of lovers arc not like the eyes of other men : sofar from feeing any improper reserve in his mistress, Lewfon thought that he himself had occasioned the alteration he ■perceived in her, by not Having attended her with his former assiduities: assiduities from thejceeping of which he was ^ prevented, by feeing her surrounded by
@@ -819,13 +612,7 @@ Fij j
 *1 young people of both foxes, and elpe
 J p; I I '
 i daily by men Ib much Superior to him,
-: !if Iilii
-K ' ‘ "P'
-itii I • Hi i
-ii Iji!
-. log
-§
-f
+
 apparently, in every respect. His natural modesty, and a consciousness o' his deficiencies, for want of a fashionable education, and a fasliionable appearance, hiirdered him from intruding himself upon her, .: and from mixing with young fellows w’ho Seemed every way qualified to Sink him into a cypher. But when he Saw her again among her old neighbours and friends,, he began to ind both his passion and his courage re' ', and once more resolved to pufsue his first plan. With this view he endeavoured to make himself as agreeable •toher as possible. She could not, however, now look upon him, now listie© to him, without forming comparffons
 ft
 ■ to his disadvantage; yet, as she had been accustomed to the attentions of Lumley, she thought that lewson, as he had thrown himselsin her way, might
@@ -1082,21 +869,7 @@ t. m. • •*
 A ♦ ^ * *
 he, hurrying out of the room, quite
 '■ '' - weary
-#
-ft
-iiil’i III j
-'ssi I St!
-w'hh 'i fj : (
-||‘ r; i •
-st S H f
-LI Pii I
-I up The., ' -
-ji weary of contesting a point which she
-1 I ^
-Illl I never should carry^, she' plainly'saw.. ■’"
-it'n " t -
-'; 0m ssl 1 ' • '
-i|ih i! J ■' ‘.
+
 lil No shoner was begone, thansmrs.
 j il Selby began to .question.'fanny." about
 ji| lewson; and concluded, with telling
@@ -1149,19 +922,7 @@ lill ■ his Fanny, - and never observed! any signs of dislike to himself in her
 I I was' shi mated by the'nioft' flattering
 hopes to believe that he Should gain her cshnsent. Nf disappointment, Therefore
 was very great: he was truly mortified to find the woman whom he had long ad ibired iind loved, not only extremely in differenf about him, ' but alsq {trongly disposed to treat him with contempt. He was exceedingly chagrined at her cold, at her insulting behaviour, yet even that behaviour diei not, cure him, * as he first fancied it would have done, of his passion for her. On the Contrary, he, like many infatuated people in love, felt himsdf but too fondly attached to her. He strove, indeed, to conquer feelings which he could not defend by a' Severe ejtami
-I n ation
-I
-I.
-;
-9
-\
-\
-\
-ft.
-p
-I
-, fig,
-j
+
 riation.of her imperfections, but he found
 ft
 that when they were contrasted with her beauties, they were Soon forgotten. The latter took possession of his mind, and
@@ -1616,23 +1377,7 @@ J Fh: i!' !' • •
 If:, i lover communicated his disagreeable in
 |e|it '. o.
 imj:! tedigence, and at length, on being
-III
-1 ityst •», •*
-I ss JE i'
-I Ijj^ C; '■
-'i' ' ^
-fk; - f:
-lildii p' I'
-r. '
-[.
-i. ■■ ■. ' ■ ■
-ta
-I.
-i N
-p
-/
-, lyg
-t
+
 prelted, declared herself very much con.. at the .idea of a separation. He
 %
 told her there was but one way for her to prevent it. --Go to town with me,
@@ -1750,28 +1495,7 @@ I
 off with the Selby samily as Soon as she could, not being able To bear the
 thoughts of knowing Such wretches in town, though they Served to fill up a vacant hour in the Solitude of the country. Mrs. Selby, however, would not be put by in that manner: fly continued
 upon the subject which engrossed her attention, till file learned all .that file wanted to know; and was not
-J
-tfsi
 
-talking
-H 2
-!• I
-'A
-'i!
-i
-
-!!
-Si!
-', i
-i; ''
-k
-iii
-hh
-U:
-:
-
-ll
-in
 
 l[; te4|ir ■
 Iilii deterred from the Journey
@@ -1995,17 +1719,7 @@ polite life, and Inch stuff She would j
 have been fettled in a very affluent j
 manner, and would have been very K happy with Mr. Lewfon, if you had | - ' let ' I
 • j
-ft t
-!
-f
-f
-I
-4
-« i
-V I
-!
-<
-i' '
+
 I let her alone. Yet you are always
 I talking of putting her in the way of
 I making her fortune : but mind what
@@ -2215,16 +1929,12 @@ S'' P
 ||| Charles, sufficiently deshous of get
 P .ting at a light of Mist Lurnley, was
 1: ^ all compliance, and went to Berkley
-square the very next morning. He was not a little embarrassfed to behold his ‘ fine lady mistress, sitting between a w<2
+square the very next morning. He was not a little embarrassfed to behold his ‘ fine lady mistress, sitting between a w 2
 caroni^ Lord, and a Coloriel in the guards, to each of whom Ihe appeared to be dispensing favours with the greatest ease and liberality. Little har .riot was at the same rhyme entirely en
 II gauged with a young Right Honourable
 in orders, who made a very uncierical j appearance. His hair was drilled fit
 for a bag; he had a black satin waistcoat with black chenille and bugles : he had white linen breeches white silk stockings, and a light grey frock with a waist which almost reached to his garters, and scarce any Ikircs at all. I his dainty i?ivine was expatiating upon a
-I large
-r ■.
-ft
-/ •
-'.7 r
+
 The j0urnev fp Lonoon. <.17.1
 f ^ ' /
 i
@@ -2254,13 +1964,7 @@ L
 . > «
 i -- ^ f - ’
 Charles, finding every part of the family at' home - particularly employed,
-'' 1 2 ‘ laid
-\
-\
-0
-T
-liji
-ihils
+
 01;
 j kfi The journty ' ttelfonocins
 fiii*
@@ -2358,15 +2062,7 @@ I called to ask them how they did aster
 II ^
 = l.. •
 their journey.
-I As
-» I - '
-s
-II • ■
-LI
-1; I
-I
-I
-/
+
 I
 The jpurnev IO LONOPN.
 * ft
@@ -2449,21 +2145,7 @@ f wishing Miss Lumley as innocent as
 I her; or. that Jhe had all those charms I; ' 'whicte
 ij! ' ■ '
 A..
-f I
-(
-i
-!
-I
-'M
-'9 ■
-I
-I
-.
-I
-'-}*
-i:
-1
-I
+
 i
 The jcrurnev tq London, j 70
 wkieli had ib, long pled him in Charlotte.
@@ -2533,19 +2215,7 @@ I » - _
 I ^ In darted Lady Lumleyr in a deep
 I ^. r' ' < /
 taffety. One of the Mist Lumleys^
-I -
-» ^
-was
-%
-}
-t
-wn
-C JT
-s
-I
-I
-/
-.
+
 was in a pink, the other in a buff per ftan.
 *
 Mrs. Jefferson,, that a real Lads was coming, crept to the farthest
@@ -2557,10 +2227,6 @@ Mrs, Selby, I am quite tired of climbing up fo many pair of stairs --I have neve
 night
 ii
 
-: i
-r
-184 .
-#
 tiight of her life. --I cannot think
 *
 how you came to chuse an apartment fb very high from the street."
@@ -3807,16 +3473,7 @@ By this unexpeiffed .effrontdrk of the ."Selbys, and by the great attention of .
 "tainiy have returned home much better
 j pleased,
 ft ^
-) •
-i
-«
-f
-«
-$
-t
-I
-. g
-I
+
 pleased, had she not Seen the Selbys fo
 *
 greatly admired.
@@ -3898,17 +3555,7 @@ My excellent girl, " replied Selby, --believing every syllable she uttered --^
 ‘ 4. : ■ ■ ■ '
 make yourself easy --we niust wait;
 I will endeavour to arm my self with patience.’*
-A 4
-»
-s
-Bj Yes."
-%
-w
-9
-s
-■ /
-V ♦
-6 .
+
 Yes, " said she, rather in a peevish tone --but we cannot have patience for ever. The. greatest patience may
 4 •
 be worn out in time. For my part,
@@ -7925,18 +7572,7 @@ if she consents, stie is no longer shiy;
 'daughter.".. *
 , S I 4 You
 *
-\
-9
-\
-4
-I
-i
-i
-1
-!
-i
-»
-j
+
 1
 t s r'
 176 ;
@@ -7976,15 +7612,7 @@ No, " said Mr. Selby, that will not. j
 do, Charles : she will then, make an addition to her vices, by asting just the same part your mother has done,
 by running you deeply in debt. no tt as you cannot be divorced from het for want of witnesses----neither st Lewfon nor I saw her in the arms
 I ^ ♦ of
-s
-f
-L
-h
-h
-t, '
-r
 
-I ' ■
 t
 of another man, you must bear the
 C
@@ -8019,22 +7647,7 @@ To the conclusion of this^fpeecjh Mr. Selby replied --‘‘ For once in your li
 live quite out of the wqrld^
 I will carry you down with the rest of the family to --shire ist a few days." '*
 , 16,, Here
-N.
-\
-'C
-I (
-t
-f
-t
-I
-•4
-i ^
-I
-tt
-5
-i
-18b .
-/
+
 - Flere Maria interposed, and desired
 L. '.
 to be excepted,, as she hated nothing fd much as the country.
@@ -8085,22 +7698,7 @@ But ’tis all your own fault. You
 never would listen to my advice : yoii bade me go out of your house' the ■ last time 1 was here; and I shoiild
 not have fubjested myself a second tirrie
 to
-y
-\
-%
-s
-5;
-7
-I
-1
-I
-IR
 
-»• r
-C
-i: &2
-9 ■
-j
 ^ st to the same affront, but but of pur
 * ‘
 st friendihip to you and your ehildrenv
@@ -8285,18 +7883,7 @@ accompanied - by Chafles, who had ibeen in search of his wife, during the. above
 . r, ^
 i While lewson was consuking wiih Mr. Selby how to ast in Such a manner as might render Charles the least liable to be troubled with his wife, Fanrty, >whdv from her fibk. chamber, had heard severy word that pasted between Mrs, Jefferson and her mother, and who found her fears confirmed,, who found her re
 puta
-4
-\
-hi
-• ’i
-I
-N,
-,
-i
-, 1
-N
-j
-tgi
+
 1
 pii tation as well as peace lost forever,
 ♦
@@ -8413,18 +8000,7 @@ I death. --Instead of going to offer her '
 the smallest assistance, she ran into the
 \
 1 parlour,
-4
-*
-»
-I
-0
-9
-t
-!, '
-\ • ’
-\
-% »
-, igg
+
 /
 parlour, and exclaimed --Lord bless st me! I wonder you will not come --I st believe Fanny is dead."
 ft
@@ -8602,11 +8178,11 @@ Charles, having taken orders, met with a woman of character and fortune who took
 lewson, - who never thoroughly recovered the loss of Fanny, spent his time. in consoiing Mr. Selby; and, dying soon after Mrs. Selby, left him and his font in possession of his whole fortune,
 0
 T H E E N D.
-r
-/
-4
+
+
+
 BOOKS printed for'f. and J. Noble.'
-*
+
 *** Every Article in the following Catalogue is marked as it is sold bound, unlefi otherwise..
 Assignation, a sentimental .Novel, 2 vol 65^
 Adopted Daughter 3 or History of clarislii B —, 2 vol, s all’s right fit last 5 or, the Hist, of Miss West, 2 voh. 6s,
@@ -8694,26 +8270,7 @@ ________ / 1
 • ‘ ft
 '. X k 9
 Speedily Will he publtfhed. In ivuo volumes' '
-< ■ \
-* »
-6 s. bound)
-I • ^. » *. •
-FATAL AFFECTION:
-/ ■
-the
-• '. ' N'.
-H I S T O R Y
-ft
-t
-OF
-..,.. •. A \ ■ A '
-A ' ■ •. »
-HEN R Y AND U AROLT N E,
-if,;.
-t
-*
-L
-■V
+
 ADVERTISEMENT,
 To the Country Booksellers.
 X Z" ^ ^ ^ from our having refufei Y to let Mr.. Bald WIN, the Publisher of the London' maga%lne, have any more of our Books, till a reai'onable satissadiion is made to us, by retracing'an impudent Falsehood asserted in his Magazine for December, 1772, relative to two Novels we published, under the Titles of, The Way to Lose Him, and. The Way to Please Him (See our Appeal. to the Public, annexed to thesfilf deceivsh; or. The History of Lord Byron) we have sufficient Reason to believe, that Orders coming from the Country to him, - and, perhaps, others his Colleagues, will not be com .plied with, and various malicious and false Pre.
@@ -8727,17 +8284,3 @@ I J. Noble.
 I Note, Thole who take 25 Volumes of <3^
 I rent Sorts, will have the Same Allowance as is
 J ufiially made for the farrle Number when only
-1 me Sort is taken,
-4 r '
-I -
-t
-\
-i
-i
-I
-ft
-■ft
-ft
-•
-
-I
