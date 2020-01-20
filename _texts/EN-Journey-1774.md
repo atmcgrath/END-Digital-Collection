@@ -594,33 +594,17 @@ reckoned her the handsomest of the two; but the pride, vanity, ambition and rest
 Young Lewson had not received a polished education, but he was modest,
 sensible, and exceedingly well behaved; and his father, who had both
 [100]
-a sound understanding, and ^ a valuabl ifs heart, had regard enough : fbr him, t
-listfst confont to ihis marrymg a woman witi
-j|.fhv'»ih" ’ I * • ft ft * ( ^
-if! a fmalssriwiih.evtn fto fortune, providec
-fsti’;
-i lii he liked her; provided there was a proba
-ibj bility of her rriaking"hirti st good wife; j
-PI \ Suitable cornpanion, as.ready to Ihareshi! Jil j .Sorrows as his joys, ahd.to assist him in that
-!l care and, improvement of his affairs.
-{ ’^•this‘" was‘the cliaradler of the eldef
-1^ Mr. Lewfoh, *^ arid his fost was exaflly
-I of the same way of thinking. With
-r i i. ir X ■ L "S' .g ( ■ • 'i ■ ■"
-that way of thiriking; with a genteel! person, and with ’a natlifally chearsui
-Ij tempei;, she was a wery desirable objeish
-I .ekcltislve of shis fortune which was
-I Superior fo that possessed by moss: of
-'I the young men in that' village, or 'iri
-, I the, next. Of all the women he had
+a sound understanding, and a valuable heart, had regard enough for him, to consent to his marrymg a woman with a *small*, with even *no* fortune, provides he liked her; provided there was a porbability of her making him a food wife; a suitable companion, as ready to share his sorrows as his joys, and to assist him in the care and improvement of his affairs.
 
-had frequently met her at several houses' in the neighbourhood, he had often joined ina dance with her, and diftin guilhed her more than once, by desiring, her for at partner. At, these times and indeed upom every occasion, (he conducted - herself .with Jb • much proprh 6ty, V in his opinion at least, that,. being equally pleased with her person and her
-* ^ ^ .f v jlihs
-manners; he made his father acquainted with his inclination, for sher, and shis determination
-to makeshis addreffe.§, to herr.
+This was the character of the elder Mr. Lewson, and his son was exactly of the same way of thinking. With that way of thinking, with a genteel person, and with a naturally chearful temper, he was a very desirable object, exclusive of his fortune, which was superior to that possessed by most of the young men in that village, or in the next. Of all the women he had seen, he liked Fanny Selby best; he had
+[101]
+had frequently met her at several houses in the neighbourhood, he had often joined in a dance with her, and distinguished her more than once, by desiring her for a partner. At, these times and indeed upon every occasion, she conducted herself with so much propriety, in *his* opinion at least, that, being equally pleased with her person and her
+manners, he made his father acquainted with his inclination for her, and his determination to make his addresses to her.
  
-r Soon after the departure'of the two
-I brothers, young lewson happening to
+Just at this time Sir Thomas Lumley brought his family into the country. Fanny was then so much taken up with them, that her rural lover han no proper opportunity to declare his sentiments to her.
+
+[102]
+Soon after the departure of the two brothers, young lewson happening to
 I meet with Fanny and her lister at the
 house of a common acquaintance, renewed his intiniacy with her. She at first appeared rather stiy, and played off I a Sew of those airs which She had
 caught from her genteel neighbours, and which might have discovered to many people, a total change in her manners: but the eyes of lovers arc not like the eyes of other men : sofar from feeing any improper reserve in his mistress, Lewfon thought that he himself had occasioned the alteration he ■perceived in her, by not Having attended her with his former assiduities: assiduities from thejceeping of which he was ^ prevented, by feeing her surrounded by
@@ -628,13 +612,7 @@ Fij j
 *1 young people of both foxes, and elpe
 J p; I I '
 i daily by men Ib much Superior to him,
-: !if Iilii
-K ' ‘ "P'
-itii I • Hi i
-ii Iji!
-. log
-§
-f
+
 apparently, in every respect. His natural modesty, and a consciousness o' his deficiencies, for want of a fashionable education, and a fasliionable appearance, hiirdered him from intruding himself upon her, .: and from mixing with young fellows w’ho Seemed every way qualified to Sink him into a cypher. But when he Saw her again among her old neighbours and friends,, he began to ind both his passion and his courage re' ', and once more resolved to pufsue his first plan. With this view he endeavoured to make himself as agreeable •toher as possible. She could not, however, now look upon him, now listie© to him, without forming comparffons
 ft
 ■ to his disadvantage; yet, as she had been accustomed to the attentions of Lumley, she thought that lewson, as he had thrown himselsin her way, might
