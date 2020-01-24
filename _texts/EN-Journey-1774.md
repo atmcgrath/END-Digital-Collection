@@ -601,12 +601,10 @@ This was the character of the elder Mr. Lewson, and his son was exactly of the s
 had frequently met her at several houses in the neighbourhood, he had often joined in a dance with her, and distinguished her more than once, by desiring her for a partner. At, these times and indeed upon every occasion, she conducted herself with so much propriety, in *his* opinion at least, that, being equally pleased with her person and her
 manners, he made his father acquainted with his inclination for her, and his determination to make his addresses to her.
  
-Just at this time Sir Thomas Lumley brought his family into the country. Fanny was then so much taken up with them, that her rural lover han no proper opportunity to declare his sentiments to her.
+Just at this time Sir Thomas Lumley brought his family into the country. Fanny was then so much taken up with them, that her rural lover had no proper opportunity to declare his sentiments to her.
 
 [102]
-Soon after the departure of the two brothers, young lewson happening to
-I meet with Fanny and her lister at the
-house of a common acquaintance, renewed his intiniacy with her. She at first appeared rather stiy, and played off I a Sew of those airs which She had
+Soon after the departure of the two brothers, young Lewson happening to meet with Fanny and her sister at the house of a common acquaintance, renewed his intimacy with her. She at first appeared rather stiy, and played off I a Sew of those airs which She had
 caught from her genteel neighbours, and which might have discovered to many people, a total change in her manners: but the eyes of lovers arc not like the eyes of other men : sofar from feeing any improper reserve in his mistress, Lewfon thought that he himself had occasioned the alteration he ■perceived in her, by not Having attended her with his former assiduities: assiduities from thejceeping of which he was ^ prevented, by feeing her surrounded by
 Fij j
 *1 young people of both foxes, and elpe
