@@ -604,44 +604,22 @@ manners, he made his father acquainted with his inclination for her, and his det
 Just at this time Sir Thomas Lumley brought his family into the country. Fanny was then so much taken up with them, that her rural lover had no proper opportunity to declare his sentiments to her.
 
 [102]
-Soon after the departure of the two brothers, young Lewson happening to meet with Fanny and her sister at the house of a common acquaintance, renewed his intimacy with her. She at first appeared rather stiy, and played off I a Sew of those airs which She had
-caught from her genteel neighbours, and which might have discovered to many people, a total change in her manners: but the eyes of lovers arc not like the eyes of other men : sofar from feeing any improper reserve in his mistress, Lewfon thought that he himself had occasioned the alteration he ■perceived in her, by not Having attended her with his former assiduities: assiduities from thejceeping of which he was ^ prevented, by feeing her surrounded by
-Fij j
-*1 young people of both foxes, and elpe
-J p; I I '
-i daily by men Ib much Superior to him,
+Soon after the departure of the two brothers, young Lewson happening to meet with Fanny and her sister at the house of a common acquaintance, renewed his intimacy with her. She at first appeared rather shy, and played off a few of those airs which she had caught from her genteel neighbours, and which might have discovered to many people, a total change in her manners: but the eyes of lovers are not like the eyes of other men: so far from seeing any improper reserve in his mistress, Lewson thought that he himself had occasioned the alteration he perceived in her, by not having attended her with his former assiduities: assiduities from thejceeping of which he was  prevented, by seeing her surrounded by young people of both sexes, and especially by men so much superior to him,
+[103]
+apparently, in every respect. His natural modesty, and a consciousness o' his deficiencies, for want of a fashionable education, and a fashionable appearance, hindered him from intruding himself upon her, and from mixing with young fellows who seemed every way qualified to sink *him* into a *cypher*. But when he saw her again among her old neighbours and friends, he began to find both his passion and his courage revive, and once more resolved to pursue his first plan. With this view he endeavoured to make himself as agreeable to her as possible. She could not, however, now look upon him, now listen to him, without forming companions to his disadvantage; yet, as she had been accustomed to the attentions of Lumley, she thought that Lewson, as he had thrown himself in her way, might
+[104]
+supply his place till his return, so far as to do life little services, to say soft things to her, and to flatter her into a
+good-humour with herself, when any thing happened to disconcert her. On these terms, and on no other, could she think of suffering Lewson near her; and this extraordinary piece of condescension in her, elated him to such a degree, that he soon fancied he might venture to hope for every kind of indulgence which he ought to desire.
 
-apparently, in every respect. His natural modesty, and a consciousness o' his deficiencies, for want of a fashionable education, and a fasliionable appearance, hiirdered him from intruding himself upon her, .: and from mixing with young fellows w’ho Seemed every way qualified to Sink him into a cypher. But when he Saw her again among her old neighbours and friends,, he began to ind both his passion and his courage re' ', and once more resolved to pufsue his first plan. With this view he endeavoured to make himself as agreeable •toher as possible. She could not, however, now look upon him, now listie© to him, without forming comparffons
-ft
-■ to his disadvantage; yet, as she had been accustomed to the attentions of Lumley, she thought that lewson, as he had thrown himselsin her way, might
-F 4 Supply
-i
-I
-/
-|i|ji •TO London.
-Illlj Supply his place till his return, sofar
-J I shs to do life little Services, to Say Soft I j things to her, and to flatter her intost
-good-humour with heirself, when arty I ] thing happened to disconcert her. On
-I j thefo terms, ‘ and on 'no other, could
-11 It Ihe think of shffering Lewfon near her;
-lijj and this extraordinary piece of conde
-III feenfioh in her, elated him to shch st j 'degree, ' that he soon fancied lie ihigbt
-11 sttehture^ to kb{fe for every" kind of iii
-"dulgencfe Which he ought to desire,
-II dafter hstvisttk'followed Fanny for a week or tenfostys, and taken her flirt
-1 ing with'shim for a rfeal inclination,
-|1 ' W.. r
-jli lie foized thejflrst luck morfient, as he
-||| th6ught*uwhichsfocturred, ' and made an
+After having followed Fanny for a week or ten days, and taken her flirting with him for a real inclination, he seized the first lucky moment, as he thought, which occurred, and made an offer.
 
-, Fanny, had She never seen thelumleys, would not, perhaps, have refused le\y ion’s offer: ike would, probably, have'
-'^ • •. ^
+[105]
+Fanny, had she never seen the Lumleys, would not, perhaps, have refused le\y ion’s offer: ike would, probably, have'
 gladly accepted of it: but j after having entertained hopes of a baronet’s eldest
 fon, She could not think of becoming
-• ^ 00 •
+
 the wife of a farmer She,, therefore,
 re j tested, at once,, a fettlementy which
-«* • * •
 might have rendered her happy, - could file have brought herself'to look upon it in a proper light; but v^ity and.prid^, had made her infensible of her lover’s
 real merit, and fly refused him with a
 ^ *
@@ -700,16 +678,8 @@ that though he loved Miss Fanny Selby shetterstliah any Woman in the world, he
 'V * II ‘V ' y • J
 shoiild be very lorry to have her made uri ststfy iipon^^j account. If she iis not ‘‘ inclined, " added he, ' to yield to
 ^ my perfuastohsc J shust tip all
-< ' my
-4
-t
-%
-S
-\
-I
-I' 9
-!.
-J, . 109
+
+[109]
 my hopes of happiness with a womarr who appears to be of fo different ^
 way of thinking."
 * f ^
