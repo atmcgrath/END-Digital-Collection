@@ -614,31 +614,12 @@ good-humour with herself, when any thing happened to disconcert her. On these te
 After having followed Fanny for a week or ten days, and taken her flirting with him for a real inclination, he seized the first lucky moment, as he thought, which occurred, and made an offer.
 
 [105]
-Fanny, had she never seen the Lumleys, would not, perhaps, have refused le\y ion’s offer: ike would, probably, have'
-gladly accepted of it: but j after having entertained hopes of a baronet’s eldest
-fon, She could not think of becoming
+Fanny, had she never seen the Lumleys, would not, perhaps, have refused Lewson’s offer: she would, probably, have gladly accepted of it: but after having entertained hopes of a Baronet’s eldest
+son, she could not think of becoming the wife of a farmer. She, therefore, rejected, at once, a settlement which might have rendered her happy, could she have brought herself to look upon it in a proper light; but vanity and pride had made her insensible of her lover’s
+real merit, and she refused him with a haughtiness that lessened *her* exceedingly, and gave *him* great uneasiness. He was pained by her refusal, .doublypaim. ed to perceive a total; change in her disposition. Many men, indeed, in such a rejected situation, would have been less disturbed, by considering the Lady undeserving of their attachment to her;
 
-the wife of a farmer She,, therefore,
-re j tested, at once,, a fettlementy which
-might have rendered her happy, - could file have brought herself'to look upon it in a proper light; but v^ity and.prid^, had made her infensible of her lover’s
-real merit, and fly refused him with a
-^ *
-haughtiness that ititcned iber exceedihgir ly, and gave.great uneasiness. was pained by her refusal, .doublypaim. ed to perceive a total; change in her disposition. Many men, indeed,, in'such a rejecsted situation, would have been
-< less: disturbed, shy considering the Lady
-imdefcrving of their attachment to her; -
-F 5 they
-*
-
-
-•! f: Hi! II i
-If ills. they would have confbled themselves, LIII by thinking that their lost, in const
-■ i ** fi ^
-J! quence of the change in her, was not st
-I I great as they imagined it to be: but
-o / o
-i Lewstn, who really loved Fanny, was
-I of a different turn of mind : he felt a
-III sincere concern at finding her lest amiable
+[106]
+they would have consoled themselves, by thinking that their loss, in consequence of the change in *her*, was not so great as they imagined it to be: but Lewson, who really loved Fanny, was of a different turn of mind: he felt a sincere concern at finding her less amiable
 upon a more intimate acquaintance, with her, than be could have believed her to be. Agreeably to his feelings
 KD wi O
 upon the trying occasion, he left her with the strongest marks of regret in his countenance, with the keenest stnsa tions of sorrow in his heart: telling her, however, that he could not yet prevail on himself to give up the fond hopes he had fo long cherished of calling her his; that he would wait for a more favourable opportunity to renew rhe fiibjed nearest his. heart,
